@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and all that befell you on the day when the two hosts met in battle happened by God's leave, so that He might mark out the [true] believers,* — **Aal-i-Imraan (3:166)**
+> 📖 *Could not fetch verse at this time.* — ****
 <!-- quran-verse-end -->
 
 ---
