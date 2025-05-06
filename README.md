@@ -7,6 +7,13 @@
 
 ---
 
+### 🕋 Quranic Verse of the Hour
+
+<!-- quran-verse-start -->
+> 📖 *Loading verse...*  
+<!-- quran-verse-end -->
+
+
 ### 🚀 Languages and Tools I Use
 <p align="left">
   <a href="https://www.java.com/" target="_blank">
