@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Could not fetch verse at this time.* — ****
+> 📖 *Know that God is severe in retribution -and that God is much-forgiving, a dispenser of grace.* — **Al-Maaida (5:98)**
 <!-- quran-verse-end -->
 
 ---
