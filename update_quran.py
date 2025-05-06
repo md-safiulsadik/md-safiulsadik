@@ -2,7 +2,7 @@ import requests
 import random
 import re
 
-# Fetch random verse from the Quran API
+# Fetch random verse
 surah = random.randint(1, 114)
 ayah = random.randint(1, 286)
 response = requests.get(f"https://api.alquran.cloud/v1/ayah/{surah}:{ayah}/en.asad")
@@ -15,15 +15,19 @@ else:
     verse = "Could not fetch verse at this time."
     ref = ""
 
-# Read the current README.md
-with open("README.md", "r", encoding="utf-8") as f:
-    content = f.read()
+# Read README
+with open("README.md", "r", encoding="utf-8") as file:
+    content = file.read()
 
-# Replace the section between the markers
-pattern = r"<!-- quran-verse-start -->(.*?)<!-- quran-verse-end -->"
-replacement = f"<!-- quran-verse-start -->\n> 📖 *{verse}* — **{ref}**\n<!-- quran-verse-end -->"
-new_content = re.sub(pattern, replacement, content, flags=re.DOTALL)
+# Update only the verse section
+new_verse_block = f"<!-- quran-verse-start -->\n> 📖 *{verse}* — **{ref}**\n<!-- quran-verse-end -->"
+updated_content = re.sub(
+    r"<!-- quran-verse-start -->(.*?)<!-- quran-verse-end -->",
+    new_verse_block,
+    content,
+    flags=re.DOTALL,
+)
 
-# Write the updated content
-with open("README.md", "w", encoding="utf-8") as f:
-    f.write(new_content)
+# Write back
+with open("README.md", "w", encoding="utf-8") as file:
+    file.write(updated_content)

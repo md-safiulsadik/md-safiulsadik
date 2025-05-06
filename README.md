@@ -17,9 +17,6 @@
 ---
 
 
-
----
-
 ### 🚀 Languages and Tools I Use
 <p align="left">
   <a href="https://www.java.com/" target="_blank">
@@ -91,10 +88,13 @@
   </a>
 </p>
 
+
 ---
 
 ### 🐍 GitHub Contributions Snake
 
-<p align="center">
-  <img src="https://raw.githubusercontent.com/md-safiulsadik/md-safiulsadik/output/snake.svg" alt="Snake animation" />
-</p>
+<picture>
+  <source media="(prefers-color-scheme: dark)" srcset="https://raw.githubusercontent.com/md-safiulsadik/md-safiulsadik/output/github-snake-dark.svg" />
+  <source media="(prefers-color-scheme: light)" srcset="https://raw.githubusercontent.com/md-safiulsadik/md-safiulsadik/output/github-snake.svg" />
+  <img alt="github-snake" src="https://raw.githubusercontent.com/md-safiulsadik/md-safiulsadik/output/github-snake.svg" />
+</picture>
