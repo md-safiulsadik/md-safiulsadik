@@ -5,6 +5,7 @@
   I'm passionate about programming and problem-solving. Currently learning Python, Machine Learning, and Web Development. My goal is to build meaningful software that solves real-world problems.
 </p>
 
+
 ---
 
 ### 🕋 Quranic Verse of the Hour
@@ -13,6 +14,11 @@
 > 📖 *Loading verse...*  
 <!-- quran-verse-end -->
 
+---
+
+
+
+---
 
 ### 🚀 Languages and Tools I Use
 <p align="left">
@@ -89,9 +95,6 @@
 
 ### 🐍 GitHub Contributions Snake
 
-<picture>
-  <source media="(prefers-color-scheme: dark)" srcset="https://raw.githubusercontent.com/md-safiulsadik/md-safiulsadik/output/github-snake-dark.svg" />
-  <source media="(prefers-color-scheme: light)" srcset="https://raw.githubusercontent.com/md-safiulsadik/md-safiulsadik/output/github-snake.svg" />
-  <img alt="github-snake" src="https://raw.githubusercontent.com/md-safiulsadik/md-safiulsadik/output/github-snake.svg" />
-</picture>
-
+<p align="center">
+  <img src="https://raw.githubusercontent.com/md-safiulsadik/md-safiulsadik/output/snake.svg" alt="Snake animation" />
+</p>
