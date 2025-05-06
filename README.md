@@ -2,7 +2,7 @@
 <h2 align="center">Computer Science and Engineering (CSE) Student | Aspiring Software Engineer | Tech Explorer</h2>
 
 <p align="center">
-  I'm passionate about programming and problem-solving. Currently learning Python, Machine Learning, and Web Development. My goal is to build meaningful software that solves real-world problems.
+  I'm currently learning Python, Web Development, and Machine Learning to build impactful software solutions.
 </p>
 
 
