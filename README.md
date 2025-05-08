@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *This, because they who are bent on denying the truth pursue falsehood, whereas they who have attained to faith pursue [but] the truth [that flows] from their Sustainer. In this way does God set forth unto man the parables of their true state.* — **Muhammad (47:3)**
+> 📖 *yet, behold, this [rejection] will indeed become a source of bitter regret for all who deny the truth [of God's revelation] –* — **Al-Haaqqa (69:50)**
 <!-- quran-verse-end -->
 
 ---
