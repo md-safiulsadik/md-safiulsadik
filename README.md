@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *yet, behold, this [rejection] will indeed become a source of bitter regret for all who deny the truth [of God's revelation] –* — **Al-Haaqqa (69:50)**
+> 📖 *Behold, as for those who come to believe, and then deny the truth, and again come to believe, and again deny the truth, and thereafter grow stubborn in their denial of the truth - God will not forgive them, nor will He guide them in any way.* — **An-Nisaa (4:137)**
 <!-- quran-verse-end -->
 
 ---
