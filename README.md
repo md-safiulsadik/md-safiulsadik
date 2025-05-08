@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"who whispers in the hearts of men* — **An-Naas (114:5)**
+> 📖 *Such are they that have attained to righteousness;* — **Al-Balad (90:18)**
 <!-- quran-verse-end -->
 
 ---
