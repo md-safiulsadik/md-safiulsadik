@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *enjoying all that their Sustainer will have granted them [because], verily, they were doers of good in the past:* — **Adh-Dhaariyat (51:16)**
+> 📖 *And He it is who sends down, again and again, waters from the sky in due measure: and [as] We raise therewith dead land to life, even thus will you be brought forth [from the dead].* — **Az-Zukhruf (43:11)**
 <!-- quran-verse-end -->
 
 ---
