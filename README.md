@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, as for those who come to believe, and then deny the truth, and again come to believe, and again deny the truth, and thereafter grow stubborn in their denial of the truth - God will not forgive them, nor will He guide them in any way.* — **An-Nisaa (4:137)**
+> 📖 *And then Pharaoh resolved to wipe them off [the face of] the earth - whereupon We caused him and all who were with him to drown [in the sea].* — **Al-Israa (17:103)**
 <!-- quran-verse-end -->
 
 ---
