@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHOEVER does what is just and right, does so for his own good; and whoever does evil, does so to his own hurt: and never does God do the least wrong to His creatures.* — **Fussilat (41:46)**
+> 📖 *[But] how shall this remembrance avail them [at the Last Hour], seeing that an apostle had pre­viously come unto them, clearly expounding the truth,* — **Ad-Dukhaan (44:13)**
 <!-- quran-verse-end -->
 
 ---
