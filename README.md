@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And He it is who sends down, again and again, waters from the sky in due measure: and [as] We raise therewith dead land to life, even thus will you be brought forth [from the dead].* — **Az-Zukhruf (43:11)**
+> 📖 *Say: "In [this] bounty of God and in His grace-in this, then, let them rejoice: it is better than all [the worldly wealth] that they may amass!"* — **Yunus (10:58)**
 <!-- quran-verse-end -->
 
 ---
