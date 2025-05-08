@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Let them, then, wait] until the time when they behold that [doom] of which they were forewarned: for then they will come to understand which [kind of man] is more helpless and counts for less!* — **Al-Jinn (72:24)**
+> 📖 *This, because they who are bent on denying the truth pursue falsehood, whereas they who have attained to faith pursue [but] the truth [that flows] from their Sustainer. In this way does God set forth unto man the parables of their true state.* — **Muhammad (47:3)**
 <!-- quran-verse-end -->
 
 ---
