@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Know that God is severe in retribution -and that God is much-forgiving, a dispenser of grace.* — **Al-Maaida (5:98)**
+> 📖 *for thou takest vengeance on us only because we have come to believe in our Sustainer's messages as soon as they came to us. O our Sustainer! Shower us with patience in adversity, and make us die as men who have surrendered themselves unto Thee!"* — **Al-A'raaf (7:126)**
 <!-- quran-verse-end -->
 
 ---
