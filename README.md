@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But] how shall this remembrance avail them [at the Last Hour], seeing that an apostle had pre­viously come unto them, clearly expounding the truth,* — **Ad-Dukhaan (44:13)**
+> 📖 *with fruit thereon, and palm trees with sheathed clusters [of dates],* — **Ar-Rahmaan (55:11)**
 <!-- quran-verse-end -->
 
 ---
