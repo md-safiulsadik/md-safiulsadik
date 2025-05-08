@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They answered: “We augur evil from thee and those that follow thee!” Said he: “Your destiny, good or evil, rests with God yea, you are people undergoing a test!”* — **An-Naml (27:47)**
+> 📖 *enjoying all that their Sustainer will have granted them [because], verily, they were doers of good in the past:* — **Adh-Dhaariyat (51:16)**
 <!-- quran-verse-end -->
 
 ---
