@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
+> 📖 *"who whispers in the hearts of men* — **An-Naas (114:5)**
 <!-- quran-verse-end -->
 
 ---
