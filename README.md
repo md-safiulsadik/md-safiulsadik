@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for thou takest vengeance on us only because we have come to believe in our Sustainer's messages as soon as they came to us. O our Sustainer! Shower us with patience in adversity, and make us die as men who have surrendered themselves unto Thee!"* — **Al-A'raaf (7:126)**
+> 📖 *"And I do not say unto you, `God's treasures are with me'; nor [do I say], `I know the reality which is beyond the reach of human perception'; nor do I say, 'Behold, I am an angel'; nor do I say of those whom your eyes hold in contempt, `Never will God grant them any good'- for God is fully aware of what is in their hearts. [Were I to speak thus,] verily, I would indeed be among the evildoers."* — **Hud (11:31)**
 <!-- quran-verse-end -->
 
 ---
