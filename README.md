@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And then Pharaoh resolved to wipe them off [the face of] the earth - whereupon We caused him and all who were with him to drown [in the sea].* — **Al-Israa (17:103)**
+> 📖 *They answered: “We augur evil from thee and those that follow thee!” Said he: “Your destiny, good or evil, rests with God yea, you are people undergoing a test!”* — **An-Naml (27:47)**
 <!-- quran-verse-end -->
 
 ---
