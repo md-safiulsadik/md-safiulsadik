@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *with fruit thereon, and palm trees with sheathed clusters [of dates],* — **Ar-Rahmaan (55:11)**
+> 📖 *[Let them, then, wait] until the time when they behold that [doom] of which they were forewarned: for then they will come to understand which [kind of man] is more helpless and counts for less!* — **Al-Jinn (72:24)**
 <!-- quran-verse-end -->
 
 ---
