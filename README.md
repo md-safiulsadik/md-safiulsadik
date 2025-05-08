@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"And I do not say unto you, `God's treasures are with me'; nor [do I say], `I know the reality which is beyond the reach of human perception'; nor do I say, 'Behold, I am an angel'; nor do I say of those whom your eyes hold in contempt, `Never will God grant them any good'- for God is fully aware of what is in their hearts. [Were I to speak thus,] verily, I would indeed be among the evildoers."* — **Hud (11:31)**
+> 📖 *AND IT IS We who have built the universe with [Our creative] power; and, verily, it is We who are steadily expanding it.* — **Adh-Dhaariyat (51:47)**
 <!-- quran-verse-end -->
 
 ---
