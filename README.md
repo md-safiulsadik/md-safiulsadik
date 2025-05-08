@@ -93,8 +93,6 @@
 
 ### 🐍 GitHub Contributions Snake
 
-<picture>
-  <source media="(prefers-color-scheme: dark)" srcset="https://raw.githubusercontent.com/md-safiulsadik/md-safiulsadik/output/github-snake-dark.svg" />
-  <source media="(prefers-color-scheme: light)" srcset="https://raw.githubusercontent.com/md-safiulsadik/md-safiulsadik/output/github-snake.svg" />
-  <img alt="github-snake" src="https://raw.githubusercontent.com/md-safiulsadik/md-safiulsadik/output/github-snake.svg" />
-</picture>
+![GitHub Snake Light](https://raw.githubusercontent.com/md-safiulsadik/md-safiulsadik/main/github-snake.svg#gh-light-mode-only)
+![GitHub Snake Dark](https://raw.githubusercontent.com/md-safiulsadik/md-safiulsadik/main/github-snake-dark.svg#gh-dark-mode-only)
+
