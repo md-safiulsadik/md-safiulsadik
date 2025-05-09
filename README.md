@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The parable of those who take [beings or forces] other than God for their protectors is that of the spider which makes for itself a house: for, behold, the frailest of all houses is the spiders house. Could they but understand this!* — **Al-Ankaboot (29:41)**
+> 📖 *AND SO, [when you fight in a just cause,] do not lose heart and [never] beg for peace: for, seeing that God is with you, you are bound to rise high [in the end]; and never will He let your [good] deeds go to waste.* — **Muhammad (47:35)**
 <!-- quran-verse-end -->
 
 ---
