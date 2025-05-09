@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "In [this] bounty of God and in His grace-in this, then, let them rejoice: it is better than all [the worldly wealth] that they may amass!"* — **Yunus (10:58)**
+> 📖 *"and from the evil of the envious when he envies."* — **Al-Falaq (113:5)**
 <!-- quran-verse-end -->
 
 ---
