@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "I seek refuge with the Sustainer of men,* — **An-Naas (114:1)**
+> 📖 *Said [Hud]: "O my people! There is no weak-mindedness in me, but I am an apostle from the Sustainer of all the worlds.* — **Al-A'raaf (7:67)**
 <!-- quran-verse-end -->
 
 ---
