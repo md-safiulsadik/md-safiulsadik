@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the day as it reveals the world,* — **Ash-Shams (91:3)**
+> 📖 *The parable of those who take [beings or forces] other than God for their protectors is that of the spider which makes for itself a house: for, behold, the frailest of all houses is the spiders house. Could they but understand this!* — **Al-Ankaboot (29:41)**
 <!-- quran-verse-end -->
 
 ---
