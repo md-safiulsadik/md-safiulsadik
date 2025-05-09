@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "Can you imagine what your condition will be if God's chastisement befalls you, either suddenly or in a [gradually] perceptible manner? [But then-] will any but evildoing folk [ever] be destroyed?* — **Al-An'aam (6:47)**
+> 📖 *But Pharaoh said: “O Haman! Build me a lofty tower, that haply I may attain to the [right] means* — **Ghafir (40:36)**
 <!-- quran-verse-end -->
 
 ---
