@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *of fire fiercely burning [for all who have attained to faith]!* — **Al-Burooj (85:5)**
+> 📖 *[or] the withholder of good, [or] the sinful aggressor,* — **Al-Qalam (68:12)**
 <!-- quran-verse-end -->
 
 ---
