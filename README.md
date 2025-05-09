@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And He it is who has caused you to multiply on earth; and unto Him you shall be gathered.* — **Al-Muminoon (23:79)**
+> 📖 *[And God] would say: “After a little while they will surely be smitten with remorse!”* — **Al-Muminoon (23:40)**
 <!-- quran-verse-end -->
 
 ---
