@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But his people’s only answer was this: “Expel [Lot and] Lot’s followers from your township! Verily, they are folk who make themselves out to be pure!”* — **An-Naml (27:56)**
+> 📖 *SAY: "I seek refuge with the Sustainer of men,* — **An-Naas (114:1)**
 <!-- quran-verse-end -->
 
 ---
