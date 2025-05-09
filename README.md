@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But] it may well be that God will bring about [mutual] affection between you [O believers] and some of those whom you [now] face as enemies: for, God is all-powerful - and God is much-forgiving, a dispenser of grace.* — **Al-Mumtahana (60:7)**
+> 📖 *Say: "Can you imagine what your condition will be if God's chastisement befalls you, either suddenly or in a [gradually] perceptible manner? [But then-] will any but evildoing folk [ever] be destroyed?* — **Al-An'aam (6:47)**
 <!-- quran-verse-end -->
 
 ---
