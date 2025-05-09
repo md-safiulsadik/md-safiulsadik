@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[AS AGAINST this,] behold, the God-conscious shall dwell amidst [cooling] shades and springs,* — **Al-Mursalaat (77:41)**
+> 📖 *But his people’s only answer was this: “Expel [Lot and] Lot’s followers from your township! Verily, they are folk who make themselves out to be pure!”* — **An-Naml (27:56)**
 <!-- quran-verse-end -->
 
 ---
