@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said [Hud]: "O my people! There is no weak-mindedness in me, but I am an apostle from the Sustainer of all the worlds.* — **Al-A'raaf (7:67)**
+> 📖 *sparks of fire striking,* — **Al-Aadiyaat (100:2)**
 <!-- quran-verse-end -->
 
 ---
