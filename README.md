@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But Pharaoh said: “O Haman! Build me a lofty tower, that haply I may attain to the [right] means* — **Ghafir (40:36)**
+> 📖 *[AS AGAINST this,] behold, the God-conscious shall dwell amidst [cooling] shades and springs,* — **Al-Mursalaat (77:41)**
 <!-- quran-verse-end -->
 
 ---
