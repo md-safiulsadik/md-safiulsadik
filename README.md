@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and food that chokes, and grievous suffering* — **Al-Muzzammil (73:13)**
+> 📖 *ALL THAT IS in the heavens and all that is on earth extols God’s limitless glory: for He alone is almighty, truly wise.* — **Al-Hashr (59:1)**
 <!-- quran-verse-end -->
 
 ---
