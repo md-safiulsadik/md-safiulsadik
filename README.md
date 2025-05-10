@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that We might make all this a [lasting] reminder to you all, and that every wide-awake ear might consciously take it in.* — **Al-Haaqqa (69:12)**
+> 📖 *"Behold, [although] I have willed to keep it hidden, the Last Hour is bound to come, so that every human being may be recompensed in accordance with what he strove for [in life].* — **Taa-Haa (20:15)**
 <!-- quran-verse-end -->
 
 ---
