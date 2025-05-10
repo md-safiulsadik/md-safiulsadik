@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"Behold, [although] I have willed to keep it hidden, the Last Hour is bound to come, so that every human being may be recompensed in accordance with what he strove for [in life].* — **Taa-Haa (20:15)**
+> 📖 *For, behold, in times gone by they were wont to abandon themselves wholly to the pursuit of pleasures,* — **Al-Waaqia (56:45)**
 <!-- quran-verse-end -->
 
 ---
