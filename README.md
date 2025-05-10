@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Indeed, unto God belongs all that is in the heavens and all that is on earth: and so He will reward those who do evil in accordance with what they did, and will reward those who do good with ultimate good.* — **An-Najm (53:31)**
+> 📖 *and [to cause this message to spread] from them unto other people as soon as they come into contact with them: for He alone is almighty, truly wise!* — **Al-Jumu'a (62:3)**
 <!-- quran-verse-end -->
 
 ---
