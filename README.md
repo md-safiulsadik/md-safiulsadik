@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And who could be more wicked than one who invents [such] a lie about [a message from] God, seeing that he is [but] being called to self-surrender unto Him? But God does not bestow His guidance upon evil-doing folk.* — **As-Saff (61:7)**
+> 📖 *but all the while God encompasses them [with His knowledge and might] without their being aware of it.* — **Al-Burooj (85:20)**
 <!-- quran-verse-end -->
 
 ---
