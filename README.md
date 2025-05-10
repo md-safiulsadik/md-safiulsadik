@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
+> 📖 *And if anyone alters such a provision - after having come to know it, the sin of acting thus shall fall only upon those who have altered it. Verily, God is all-hearing, all-knowing.* — **Al-Baqara (2:181)**
 <!-- quran-verse-end -->
 
 ---
