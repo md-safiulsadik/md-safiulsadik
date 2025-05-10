@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And if anyone alters such a provision - after having come to know it, the sin of acting thus shall fall only upon those who have altered it. Verily, God is all-hearing, all-knowing.* — **Al-Baqara (2:181)**
+> 📖 *hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].* — **Al-Kawthar (108:2)**
 <!-- quran-verse-end -->
 
 ---
