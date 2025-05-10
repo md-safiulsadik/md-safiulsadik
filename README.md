@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *he who has denied the truth will have to bear [the burden of] his denial, whereas all who did what is right and just will have made goodly provision for themselves,* — **Ar-Room (30:44)**
+> 📖 *and, verily, [to this day] you pass by the remnants of their dwellings at morning-time* — **As-Saaffaat (37:137)**
 <!-- quran-verse-end -->
 
 ---
