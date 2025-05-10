@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *What, then, [O man,] could henceforth cause thee to give the lie to this moral law?* — **At-Tin (95:7)**
+> 📖 *And [thus, too,] We vouchsafed revelation unto Moses, and made it a [source of] guidance for the children of Israel, [commanding them:] "Do not ascribe to any but Me the power to determine your fate,* — **Al-Israa (17:2)**
 <!-- quran-verse-end -->
 
 ---
