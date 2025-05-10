@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ALL THAT IS in the heavens and all that is on earth extols God’s limitless glory: for He alone is almighty, truly wise.* — **Al-Hashr (59:1)**
+> 📖 *And were it not that [with the prospect of boundless riches before them] all people would become one [evil] community, We might indeed have provided for those who [now] deny the Most Gracious roofs of silver for their houses, and [silver] stairways whereon to ascend,* — **Az-Zukhruf (43:33)**
 <!-- quran-verse-end -->
 
 ---
