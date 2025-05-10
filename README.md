@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And were it not that [with the prospect of boundless riches before them] all people would become one [evil] community, We might indeed have provided for those who [now] deny the Most Gracious roofs of silver for their houses, and [silver] stairways whereon to ascend,* — **Az-Zukhruf (43:33)**
+> 📖 *of fire fiercely burning [for all who have attained to faith]!* — **Al-Burooj (85:5)**
 <!-- quran-verse-end -->
 
 ---
