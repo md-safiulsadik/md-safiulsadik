@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and, verily, [to this day] you pass by the remnants of their dwellings at morning-time* — **As-Saaffaat (37:137)**
+> 📖 *And who could be more wicked than one who invents [such] a lie about [a message from] God, seeing that he is [but] being called to self-surrender unto Him? But God does not bestow His guidance upon evil-doing folk.* — **As-Saff (61:7)**
 <!-- quran-verse-end -->
 
 ---
