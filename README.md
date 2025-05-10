@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [thus, too,] We vouchsafed revelation unto Moses, and made it a [source of] guidance for the children of Israel, [commanding them:] "Do not ascribe to any but Me the power to determine your fate,* — **Al-Israa (17:2)**
+> 📖 *those who give the lie to the [coming of] Judgment Day:* — **Al-Mutaffifin (83:11)**
 <!-- quran-verse-end -->
 
 ---
