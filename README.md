@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but all the while God encompasses them [with His knowledge and might] without their being aware of it.* — **Al-Burooj (85:20)**
+> 📖 *For such, there is suffering in the life of this world; but, truly, [their] suffering in the life to come will be harder still, and they will have none to shield them from God.* — **Ar-Ra'd (13:34)**
 <!-- quran-verse-end -->
 
 ---
