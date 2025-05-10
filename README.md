@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *yielding its fruit at all times by its Sustainer's leave. And [thus it is that] God propounds parables unto men,' so that they might bethink themselves [of the truth].* — **Ibrahim (14:25)**
+> 📖 *he who has denied the truth will have to bear [the burden of] his denial, whereas all who did what is right and just will have made goodly provision for themselves,* — **Ar-Room (30:44)**
 <!-- quran-verse-end -->
 
 ---
