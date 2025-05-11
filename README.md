@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and that in time [the nature of] all his striving will be shown [to him in its true light],* — **An-Najm (53:40)**
+> 📖 *And, indeed, We have adorned the skies nearest to the earth with lights, and have made them the object of futile guesses for the evil ones [from among men]: and for them have We readied suffering through a blazing flame –* — **Al-Mulk (67:5)**
 <!-- quran-verse-end -->
 
 ---
