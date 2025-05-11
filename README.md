@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[or] the withholder of good, [or] the sinful aggressor,* — **Al-Qalam (68:12)**
+> 📖 *[Whereupon God will command:] “Cast, cast into hell every [such] stubborn enemy of the truth,* — **Qaaf (50:24)**
 <!-- quran-verse-end -->
 
 ---
