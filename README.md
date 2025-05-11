@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And on that Day We shall place hell, for all to see, before those who denied the truth-* — **Al-Kahf (18:100)**
+> 📖 *It is all alike [to Him] whether any of you conceals his thought or brings it into the open, and whether he seeks to hide [his evil deeds] under the cover of night or walks [boldly] in the light of day,* — **Ar-Ra'd (13:10)**
 <!-- quran-verse-end -->
 
 ---
