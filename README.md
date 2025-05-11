@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "Invoke God, or invoke the Most Gracious: by whichever name you invoke Him, [He is always the One-for] His are all the attributes of perfection. And [pray unto Him; yet] be not too loud in thy prayer nor speak it in too low a voice, but follow a way in-between;* — **Al-Israa (17:110)**
+> 📖 *with fruit thereon, and palm trees with sheathed clusters [of dates],* — **Ar-Rahmaan (55:11)**
 <!-- quran-verse-end -->
 
 ---
