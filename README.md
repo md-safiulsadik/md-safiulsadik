@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *with fruit thereon, and palm trees with sheathed clusters [of dates],* — **Ar-Rahmaan (55:11)**
+> 📖 *and that in time [the nature of] all his striving will be shown [to him in its true light],* — **An-Najm (53:40)**
 <!-- quran-verse-end -->
 
 ---
