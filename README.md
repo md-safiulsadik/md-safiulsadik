@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[The brothers] said: "By God! Most certainly has God raised thee high above us, and we were indeed but sinners!"* — **Yusuf (12:91)**
+> 📖 *And on that Day We shall place hell, for all to see, before those who denied the truth-* — **Al-Kahf (18:100)**
 <!-- quran-verse-end -->
 
 ---
