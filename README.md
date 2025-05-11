@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *out of a [mere] drop of sperm as it is poured forth,* — **An-Najm (53:46)**
+> 📖 *and I said: "'Ask your Sustainer to forgive you your sins - for, verily, He is all-forgiving!* — **Nooh (71:10)**
 <!-- quran-verse-end -->
 
 ---
