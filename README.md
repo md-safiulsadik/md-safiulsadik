@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He will shower upon you heavenly blessings abundant,* — **Nooh (71:11)**
+> 📖 *out of a [mere] drop of sperm as it is poured forth,* — **An-Najm (53:46)**
 <!-- quran-verse-end -->
 
 ---
