@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They exclaimed: “Burn him, and [thereby] succour your gods, if you are going to do [anything]!”* — **Al-Anbiyaa (21:68)**
+> 📖 *[Ask them:] “Would you, perchance, after having turned away [from God’s commandment, pre­fer to revert to your old ways, and] spread corruption on earth, and [once again] cut asunder your ties of kinship?”* — **Muhammad (47:22)**
 <!-- quran-verse-end -->
 
 ---
