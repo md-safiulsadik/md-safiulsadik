@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and I said: "'Ask your Sustainer to forgive you your sins - for, verily, He is all-forgiving!* — **Nooh (71:10)**
+> 📖 *And so, on that Day their excuse will be of no avail to those who were bent on evildoing, nor will they be allowed to make amends.* — **Ar-Room (30:57)**
 <!-- quran-verse-end -->
 
 ---
