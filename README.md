@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, on that Day their excuse will be of no avail to those who were bent on evildoing, nor will they be allowed to make amends.* — **Ar-Room (30:57)**
+> 📖 *They exclaimed: “Burn him, and [thereby] succour your gods, if you are going to do [anything]!”* — **Al-Anbiyaa (21:68)**
 <!-- quran-verse-end -->
 
 ---
