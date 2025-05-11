@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And We send down from the skies water rich in blessings, and cause thereby gardens to grow, and fields of grain,* — **Qaaf (50:9)**
+> 📖 *[or] the withholder of good, [or] the sinful aggressor,* — **Al-Qalam (68:12)**
 <!-- quran-verse-end -->
 
 ---
