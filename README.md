@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, they were not expecting to be called to account,* — **An-Naba (78:27)**
+> 📖 *unless it be such [of them] as [repent, and] attain to faith, and do good works: for theirs shall be a reward unending!.* — **Al-Inshiqaaq (84:25)**
 <!-- quran-verse-end -->
 
 ---
