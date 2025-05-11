@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thereby raising clouds of dust,* — **Al-Aadiyaat (100:4)**
+> 📖 *He will shower upon you heavenly blessings abundant,* — **Nooh (71:11)**
 <!-- quran-verse-end -->
 
 ---
