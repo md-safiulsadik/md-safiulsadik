@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, behold, in times gone by they were wont to abandon themselves wholly to the pursuit of pleasures,* — **Al-Waaqia (56:45)**
+> 📖 *[The brothers] said: "By God! Most certainly has God raised thee high above us, and we were indeed but sinners!"* — **Yusuf (12:91)**
 <!-- quran-verse-end -->
 
 ---
