@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, indeed, We have adorned the skies nearest to the earth with lights, and have made them the object of futile guesses for the evil ones [from among men]: and for them have We readied suffering through a blazing flame –* — **Al-Mulk (67:5)**
+> 📖 *Behold, they were not expecting to be called to account,* — **An-Naba (78:27)**
 <!-- quran-verse-end -->
 
 ---
