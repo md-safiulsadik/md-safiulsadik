@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, he never thought that he would have to return [to God].* — **Al-Inshiqaaq (84:14)**
+> 📖 *and when the mountains are made to vanish as if they had been a mirage.* — **An-Naba (78:20)**
 <!-- quran-verse-end -->
 
 ---
