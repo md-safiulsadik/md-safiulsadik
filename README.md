@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *unless it be such [of them] as [repent, and] attain to faith, and do good works: for theirs shall be a reward unending!.* — **Al-Inshiqaaq (84:25)**
+> 📖 *[And when the son was born and grew up, he was told,] "O John! Hold fast unto the divine writ with [all thy] strength!" - for We granted him wisdom "while he was yet a little boy,* — **Maryam (19:12)**
 <!-- quran-verse-end -->
 
 ---
