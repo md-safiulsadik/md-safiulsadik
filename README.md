@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Most Gracious, the Dispenser of Grace,* — **Al-Faatiha (1:3)**
+> 📖 *and who have devised a most awesome blasphemy [against Thee],* — **Nooh (71:22)**
 <!-- quran-verse-end -->
 
 ---
