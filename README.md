@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *no headiness will be in it, and they will not get drunk thereon.* — **As-Saaffaat (37:47)**
+> 📖 *The Most Gracious, the Dispenser of Grace,* — **Al-Faatiha (1:3)**
 <!-- quran-verse-end -->
 
 ---
