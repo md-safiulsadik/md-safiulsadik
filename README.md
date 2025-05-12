@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And leave Me alone [to deal] with those who give the lie to the truth - those who enjoy the blessings of life [without any thought of God] - and bear thou with them for a little while:* — **Al-Muzzammil (73:11)**
+> 📖 *O PROPHET! Strive hard against the deniers of the truth and the hypocrites, and be adamant with them. And [if they do not repent,] their goal shall be hell - and how vile a journey’s end!* — **At-Tahrim (66:9)**
 <!-- quran-verse-end -->
 
 ---
