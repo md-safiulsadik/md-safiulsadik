@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And when the son was born and grew up, he was told,] "O John! Hold fast unto the divine writ with [all thy] strength!" - for We granted him wisdom "while he was yet a little boy,* — **Maryam (19:12)**
+> 📖 *And leave Me alone [to deal] with those who give the lie to the truth - those who enjoy the blessings of life [without any thought of God] - and bear thou with them for a little while:* — **Al-Muzzammil (73:11)**
 <!-- quran-verse-end -->
 
 ---
