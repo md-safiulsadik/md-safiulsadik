@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the mountains are made to vanish as if they had been a mirage.* — **An-Naba (78:20)**
+> 📖 *SUCH of the believers as remain passive - other than the disabled - cannot be deemed equal to those who strive hard in God's cause with their possessions and their lives: God has exalted those who strive hard with their possessions and their lives far above those who remain passive. Although God has promised the ultimate good unto all [believers], yet has God exalted those who strive hard above those who remain passive by [promising them] a mighty reward -* — **An-Nisaa (4:95)**
 <!-- quran-verse-end -->
 
 ---
