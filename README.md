@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who have devised a most awesome blasphemy [against Thee],* — **Nooh (71:22)**
+> 📖 *These it is who in the gardens [of paradise] shall be honoured!* — **Al-Ma'aarij (70:35)**
 <!-- quran-verse-end -->
 
 ---
