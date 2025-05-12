@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *All believers are but brethren. Hence, [when­ever they are at odds,] make peace between your two brethren, and remain conscious of God, so that you might be graced with His mercy.* — **Al-Hujuraat (49:10)**
+> 📖 *Say: “It has but been revealed unto me that your God is the One and Only God: will you, then, surrender yourselves unto Him?”* — **Al-Anbiyaa (21:108)**
 <!-- quran-verse-end -->
 
 ---
