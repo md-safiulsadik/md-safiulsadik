@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In the end you will indeed, most surely, behold it with the eye of certainty:* — **At-Takaathur (102:7)**
+> 📖 *[Or do they deny the existence of God?] Have they themselves been created without anything [that might have caused their creation]? or were they, perchance, their own creators?* — **At-Tur (52:35)**
 <!-- quran-verse-end -->
 
 ---
