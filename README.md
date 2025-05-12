@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Man’s other self’ will say: “O our Sustainer! It was not I that led his conscious mind into evil [nay,] but it had gone far astray [of its own accord]!* — **Qaaf (50:27)**
+> 📖 *no headiness will be in it, and they will not get drunk thereon.* — **As-Saaffaat (37:47)**
 <!-- quran-verse-end -->
 
 ---
