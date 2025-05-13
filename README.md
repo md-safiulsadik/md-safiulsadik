@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that you might walk thereon on spacious paths.’"* — **Nooh (71:20)**
+> 📖 *Answered [Moses]: “Thus shall it be between me and thee! Whichever of the two terms I fulfill, let there be no ill will against me. And God be witness to all that we say!”* — **Al-Qasas (28:28)**
 <!-- quran-verse-end -->
 
 ---
