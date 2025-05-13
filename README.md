@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *will be the food of the sinful:* — **Ad-Dukhaan (44:44)**
+> 📖 *and made the day [a symbol of] life.* — **An-Naba (78:11)**
 <!-- quran-verse-end -->
 
 ---
