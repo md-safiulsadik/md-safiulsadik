@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, those who are conscious of God [shall find themselves in the hereafter] amidst gardens and springs,* — **Al-Hijr (15:45)**
+> 📖 *will be the food of the sinful:* — **Ad-Dukhaan (44:44)**
 <!-- quran-verse-end -->
 
 ---
