@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [on that Day,] the evil of their doings will become obvious to them, and they will be over­whelmed by the very thing which they were wont to deride.* — **Al-Jaathiya (45:33)**
+> 📖 *[and for this,] behold, We caused the mountains to join him in extolling Our limitless glory at eventide and at sun­rise,* — **Saad (38:18)**
 <!-- quran-verse-end -->
 
 ---
