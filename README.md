@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Answered [Moses]: “Thus shall it be between me and thee! Whichever of the two terms I fulfill, let there be no ill will against me. And God be witness to all that we say!”* — **Al-Qasas (28:28)**
+> 📖 *And found thee lost on thy way, and guided thee?* — **Ad-Dhuhaa (93:7)**
 <!-- quran-verse-end -->
 
 ---
