@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the while they will be running confusedly to and fro, with their heads upraised [in supplication], unable to look away from what they shall behold, and their hearts an abysmal void.* — **Ibrahim (14:43)**
+> 📖 *And [thus it is:] had thy Sustainer so willed, all those who live on earth would surely have attained to faith, all of them: dost thou, then, think that thou couldst compel people to believe,* — **Yunus (10:99)**
 <!-- quran-verse-end -->
 
 ---
