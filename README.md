@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which smote them with stone-hard blows of chastisement pre-ordained,* — **Al-Fil (105:4)**
+> 📖 *This [for you, O enemies of God]! Taste it, then, [and know] that suffering through fire awaits those who deny the truth!* — **Al-Anfaal (8:14)**
 <!-- quran-verse-end -->
 
 ---
