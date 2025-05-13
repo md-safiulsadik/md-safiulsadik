@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen* — **Al-Qadr (97:4)**
+> 📖 *AS FOR THOSE who care for [no more than] the life of this world and its bounties -We shall repay them in full for all that they did in this [life], and they, shall not be deprived of their just due therein:* — **Hud (11:15)**
 <!-- quran-verse-end -->
 
 ---
