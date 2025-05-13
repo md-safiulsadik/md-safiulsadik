@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"God the Eternal, the Uncaused Cause of All Being.* — **Al-Ikhlaas (112:2)**
+> 📖 *And [on that Day,] the evil of their doings will become obvious to them, and they will be over­whelmed by the very thing which they were wont to deride.* — **Al-Jaathiya (45:33)**
 <!-- quran-verse-end -->
 
 ---
