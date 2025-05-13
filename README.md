@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *This [for you, O enemies of God]! Taste it, then, [and know] that suffering through fire awaits those who deny the truth!* — **Al-Anfaal (8:14)**
+> 📖 *and the Day of Judgment we were wont to call a lie –* — **Al-Muddaththir (74:46)**
 <!-- quran-verse-end -->
 
 ---
