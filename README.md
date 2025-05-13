@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AS FOR THOSE who care for [no more than] the life of this world and its bounties -We shall repay them in full for all that they did in this [life], and they, shall not be deprived of their just due therein:* — **Hud (11:15)**
+> 📖 *VERILY, those who are conscious of God [shall find themselves in the hereafter] amidst gardens and springs,* — **Al-Hijr (15:45)**
 <!-- quran-verse-end -->
 
 ---
