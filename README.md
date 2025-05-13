@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[how it is] that We pour down water, pouring it down abundantly;* — **Abasa (80:25)**
+> 📖 *secure in their winter and summer journeys,* — **Quraish (106:2)**
 <!-- quran-verse-end -->
 
 ---
