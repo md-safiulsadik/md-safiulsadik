@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and so We admitted them unto Our grace: behold, they were among the righteous!* — **Al-Anbiyaa (21:86)**
+> 📖 *the while they will be running confusedly to and fro, with their heads upraised [in supplication], unable to look away from what they shall behold, and their hearts an abysmal void.* — **Ibrahim (14:43)**
 <!-- quran-verse-end -->
 
 ---
