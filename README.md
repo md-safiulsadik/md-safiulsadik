@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then let him summon [to his aid] the counsels of his own [spurious] wisdom,* — **Al-Alaq (96:17)**
+> 📖 *so that you might walk thereon on spacious paths.’"* — **Nooh (71:20)**
 <!-- quran-verse-end -->
 
 ---
