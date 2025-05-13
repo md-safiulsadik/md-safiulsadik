@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [thus it is:] had thy Sustainer so willed, all those who live on earth would surely have attained to faith, all of them: dost thou, then, think that thou couldst compel people to believe,* — **Yunus (10:99)**
+> 📖 *and then let him summon [to his aid] the counsels of his own [spurious] wisdom,* — **Al-Alaq (96:17)**
 <!-- quran-verse-end -->
 
 ---
