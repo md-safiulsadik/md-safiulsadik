@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *These it is who in the gardens [of paradise] shall be honoured!* — **Al-Ma'aarij (70:35)**
+> 📖 *and so We admitted them unto Our grace: behold, they were among the righteous!* — **Al-Anbiyaa (21:86)**
 <!-- quran-verse-end -->
 
 ---
