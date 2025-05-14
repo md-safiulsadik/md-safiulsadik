@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [We have propounded yet another parable of God-consciousness in the story of] Mary, the daughter of Imran, who guarded her chastity, whereupon We breathed of Our spirit into that [which was in her womb], and who accepted the truth of her Sustainer’s words - and [thus,] of His revelations - and was one of the truly devout.* — **At-Tahrim (66:12)**
+> 📖 *But [nay,] they take to worshipping deities other than God, [hoping] to be succoured [by them, and not knowing that]* — **Yaseen (36:74)**
 <!-- quran-verse-end -->
 
 ---
