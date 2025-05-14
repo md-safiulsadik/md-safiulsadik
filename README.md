@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and all that is [hidden] in men's hearts is bared* — **Al-Aadiyaat (100:10)**
+> 📖 *[and he shall be told:] “This is an outcome of what thine own hands have wrought - for, never does God do the least wrong to His creatures!”* — **Al-Hajj (22:10)**
 <!-- quran-verse-end -->
 
 ---
