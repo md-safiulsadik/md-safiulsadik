@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let, then, the deniers of the truth have their will: let them have their will for a little while.* — **At-Taariq (86:17)**
+> 📖 *He knows all that is in the heavens and on earth; and He knows all that you keep secret as well as all that you bring into the open: for God has full knowledge of what is in the hearts [of men].* — **At-Taghaabun (64:4)**
 <!-- quran-verse-end -->
 
 ---
