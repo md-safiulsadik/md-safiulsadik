@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, if they had the patience [to wait] until thou come forth to them [of thine own accord], it would be for their own good. Still, God is much forgiving, a dispenser of grace.* — **Al-Hujuraat (49:5)**
+> 📖 *and find [yet other] benefits in them; and that through them you may attain to the fulfillment of [many] a heartfelt need: for on them, as on ships, you are borne [through life].* — **Ghafir (40:80)**
 <!-- quran-verse-end -->
 
 ---
