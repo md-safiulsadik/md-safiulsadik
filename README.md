@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and find [yet other] benefits in them; and that through them you may attain to the fulfillment of [many] a heartfelt need: for on them, as on ships, you are borne [through life].* — **Ghafir (40:80)**
+> 📖 *to be a herald of glad tidings as well as a warning. And yet, [whenever this divine writ is offered to men,] most of them turn away, so that they cannot hear [its message];* — **Fussilat (41:4)**
 <!-- quran-verse-end -->
 
 ---
