@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither will you [ever] worship that which I worship.* — **Al-Kaafiroon (109:5)**
+> 📖 *in the lands close-by; yet it is they who, notwithstanding this their defeat, shall be victorious* — **Ar-Room (30:3)**
 <!-- quran-verse-end -->
 
 ---
