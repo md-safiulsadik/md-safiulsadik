@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But [nay,] they take to worshipping deities other than God, [hoping] to be succoured [by them, and not knowing that]* — **Yaseen (36:74)**
+> 📖 *And they will all turn to one another, asking each other [about their past lives].* — **As-Saaffaat (37:50)**
 <!-- quran-verse-end -->
 
 ---
