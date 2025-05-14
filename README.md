@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! When the call to prayer is sounded on the day of congregation, hasten to the remembrance of God, and leave all worldly commerce: this is for your own good, if you but knew it.* — **Al-Jumu'a (62:9)**
+> 📖 *[or] one who is cruel, by greed possessed, and, in addition to all this, utterly useless [to his fellow-men].* — **Al-Qalam (68:13)**
 <!-- quran-verse-end -->
 
 ---
