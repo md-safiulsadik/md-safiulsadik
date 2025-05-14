@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[or] one who is cruel, by greed possessed, and, in addition to all this, utterly useless [to his fellow-men].* — **Al-Qalam (68:13)**
+> 📖 *for, if they had the patience [to wait] until thou come forth to them [of thine own accord], it would be for their own good. Still, God is much forgiving, a dispenser of grace.* — **Al-Hujuraat (49:5)**
 <!-- quran-verse-end -->
 
 ---
