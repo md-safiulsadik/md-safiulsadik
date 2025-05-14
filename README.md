@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and he shall be told:] “This is an outcome of what thine own hands have wrought - for, never does God do the least wrong to His creatures!”* — **Al-Hajj (22:10)**
+> 📖 *These it is that shall receive a twofold reward for having been patient in adversity, and having repelled evil with good, and having spent on others out of what We provided for them as sus­tenance,* — **Al-Qasas (28:54)**
 <!-- quran-verse-end -->
 
 ---
