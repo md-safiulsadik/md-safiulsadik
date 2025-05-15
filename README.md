@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, render unto the orphans their posses­sions, and do not substitute bad things [of your own] for the good things [that belong to them], and do not consume their possessions together with your own: this, verily, is a great crime.* — **An-Nisaa (4:2)**
+> 📖 *can cause anyone to fall prey to your temptation* — **As-Saaffaat (37:162)**
 <!-- quran-verse-end -->
 
 ---
