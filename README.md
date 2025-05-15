@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the sky and its wondrous make,* — **Ash-Shams (91:5)**
+> 📖 *reclining upon them, facing one another [in love].* — **Al-Waaqia (56:16)**
 <!-- quran-verse-end -->
 
 ---
