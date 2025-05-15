@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, indeed, We made this Qur’an easy to bear in mind: who, then, is willing to take it to heart?* — **Al-Qamar (54:32)**
+> 📖 *NOW, INDEED, We create man out of the essence of clay,* — **Al-Muminoon (23:12)**
 <!-- quran-verse-end -->
 
 ---
