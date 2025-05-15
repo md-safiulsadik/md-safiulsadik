@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But,] behold, today I have rewarded them for their patience in adversity: verily, it is they, they who have achieved a triumph!”* — **Al-Muminoon (23:111)**
+> 📖 *MAN NEVER TIRES of asking for the good [things of life]; and if evil fortune touches him, he abandons all hope, giving himself up to despair.* — **Fussilat (41:49)**
 <!-- quran-verse-end -->
 
 ---
