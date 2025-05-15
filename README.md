@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for him who is bent on denying the truth - let not his denial grieve thee: unto Us they must return, and then We shall make them [truly] understand all that they were doing [in life]: for, verily, God has full knowledge of what is in the hearts [of men].* — **Luqman (31:23)**
+> 📖 *Hence, render unto the orphans their posses­sions, and do not substitute bad things [of your own] for the good things [that belong to them], and do not consume their possessions together with your own: this, verily, is a great crime.* — **An-Nisaa (4:2)**
 <!-- quran-verse-end -->
 
 ---
