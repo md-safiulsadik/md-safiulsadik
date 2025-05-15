@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NOW, INDEED, We create man out of the essence of clay,* — **Al-Muminoon (23:12)**
+> 📖 *[Hence,] O you who are bent on denying the truth, make no [empty] excuses today: [in the life to come] you shall be but recompensed for what you were doing [in this world].* — **At-Tahrim (66:7)**
 <!-- quran-verse-end -->
 
 ---
