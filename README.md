@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that they might experience much that shall be of benefit to them, and that they might extol the name of God on the days appointed [for sacrifice], over whatever heads of cattle He may have provided for them [to this end]: eat, then, thereof, and feed the unfortunate poor.* — **Al-Hajj (22:28)**
+> 📖 *Hence, indeed, We made this Qur’an easy to bear in mind: who, then, is willing to take it to heart?* — **Al-Qamar (54:32)**
 <!-- quran-verse-end -->
 
 ---
