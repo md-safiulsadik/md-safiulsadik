@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He knows all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind -the Great One, the One far above anything that is or could ever be!* — **Ar-Ra'd (13:9)**
+> 📖 *God has already enjoined upon you [O believers] the breaking and expiation of [such of] your oaths [as may run counter to what is right and just]: for, God is your Lord Supreme, and He alone is all-knowing, truly wise.* — **At-Tahrim (66:2)**
 <!-- quran-verse-end -->
 
 ---
