@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Go on towards the threefold shadow* — **Al-Mursalaat (77:30)**
+> 📖 *Consider the sky and its wondrous make,* — **Ash-Shams (91:5)**
 <!-- quran-verse-end -->
 
 ---
