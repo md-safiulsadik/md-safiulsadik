@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *reclining upon them, facing one another [in love].* — **Al-Waaqia (56:16)**
+> 📖 *for, indeed, We did convey unto them a divine writ which We clearly, and wisely, spelled out - a guidance and a grace unto people who will believe."* — **Al-A'raaf (7:52)**
 <!-- quran-verse-end -->
 
 ---
