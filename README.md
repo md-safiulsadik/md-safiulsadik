@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "My Sustainer has [but] enjoined the doing of what is right; and [He desires you to] put your whole being into every act of worship, and to call unto Him, sincere in your faith in Him alone. As it was He who brought you into being in the first instance, so also [unto Him] you will return:* — **Al-A'raaf (7:29)**
+> 📖 *for, behold, If Thou dost leave them, they will [always try to] lead astray those who worship Thee, and will give birth to nothing but wickedness and stubborn ingratitude.* — **Nooh (71:27)**
 <!-- quran-verse-end -->
 
 ---
