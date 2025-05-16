@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say [O Muhammad]: "O mankind! Verily, I am an apostle of God to all of you, [sent by Him] unto whom the dominion over the heavens and the earth belongs! There is no deity save Him; He [alone] grants life and deals death!" Believe, then, in God and His Apostle-the unlettered Prophet who believes in God and His words-and follow him, so that you might find guidance!* — **Al-A'raaf (7:158)**
+> 📖 *HAST THOU, then, ever considered him who turns away [from remembering Us, and cares for no more than the life of this world],* — **An-Najm (53:33)**
 <!-- quran-verse-end -->
 
 ---
