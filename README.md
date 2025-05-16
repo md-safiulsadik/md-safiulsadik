@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, If Thou dost leave them, they will [always try to] lead astray those who worship Thee, and will give birth to nothing but wickedness and stubborn ingratitude.* — **Nooh (71:27)**
+> 📖 *And behold, whenever I called unto them with a view to Thy granting them forgiveness, they put their fingers into their ears, and wrapped themselves up in their garments [of sin]; and grew obstinate, and became [yet more] arrogant in their false pride.* — **Nooh (71:7)**
 <!-- quran-verse-end -->
 
 ---
