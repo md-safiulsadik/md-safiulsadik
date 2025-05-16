@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND UNTO GOD belongs the dominion over the heavens and the earth: and God has the power to will anything.* — **Aal-i-Imraan (3:189)**
+> 📖 *AND SO, when the piercing call [of resurrection] is heard* — **Abasa (80:33)**
 <!-- quran-verse-end -->
 
 ---
