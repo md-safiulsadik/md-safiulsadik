@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND SO, when the piercing call [of resurrection] is heard* — **Abasa (80:33)**
+> 📖 *But as soon as Moses came unto them with Our clear messages [Pharaoh and his great ones] said: “All this is nothing but spellbinding eloquence devised [by man]: and never did we hear [the like of] this, [nor has it ever been heard of] in the time of our forebears of old!”* — **Al-Qasas (28:36)**
 <!-- quran-verse-end -->
 
 ---
