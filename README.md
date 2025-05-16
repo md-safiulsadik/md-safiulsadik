@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And behold, whenever I called unto them with a view to Thy granting them forgiveness, they put their fingers into their ears, and wrapped themselves up in their garments [of sin]; and grew obstinate, and became [yet more] arrogant in their false pride.* — **Nooh (71:7)**
+> 📖 *Do not offer [empty] excuses! You have indeed denied the truth after [having professed] your belief [in it] - Though We may efface the sin of some of you, We shall chastise others - seeing that they were lost in sin.* — **At-Tawba (9:66)**
 <!-- quran-verse-end -->
 
 ---
