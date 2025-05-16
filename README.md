@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAST THOU, then, ever considered him who turns away [from remembering Us, and cares for no more than the life of this world],* — **An-Najm (53:33)**
+> 📖 *Thus, in the end, both [the deniers of the truth and the hypocrites] will find themselves in the fire, therein to abide: for such is the recompense of evil­doers.* — **Al-Hashr (59:17)**
 <!-- quran-verse-end -->
 
 ---
