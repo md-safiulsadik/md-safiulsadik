@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WE SHALL teach thee, and thou wilt not forget [aught of what thou art taught],* — **Al-A'laa (87:6)**
+> 📖 *AND UNTO GOD belongs the dominion over the heavens and the earth: and God has the power to will anything.* — **Aal-i-Imraan (3:189)**
 <!-- quran-verse-end -->
 
 ---
