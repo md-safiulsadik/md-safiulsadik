@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *that on that Day their Sustainer [will show that He] has always been fully aware of them?* — **Al-Aadiyaat (100:11)**
+> 📖 *Say: "My Sustainer has [but] enjoined the doing of what is right; and [He desires you to] put your whole being into every act of worship, and to call unto Him, sincere in your faith in Him alone. As it was He who brought you into being in the first instance, so also [unto Him] you will return:* — **Al-A'raaf (7:29)**
 <!-- quran-verse-end -->
 
 ---
