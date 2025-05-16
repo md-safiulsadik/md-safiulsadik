@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:55)**
+> 📖 *that on that Day their Sustainer [will show that He] has always been fully aware of them?* — **Al-Aadiyaat (100:11)**
 <!-- quran-verse-end -->
 
 ---
