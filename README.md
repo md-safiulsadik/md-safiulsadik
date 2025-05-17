@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Do not offer [empty] excuses! You have indeed denied the truth after [having professed] your belief [in it] - Though We may efface the sin of some of you, We shall chastise others - seeing that they were lost in sin.* — **At-Tawba (9:66)**
+> 📖 *CONSIDER the bright morning hours,* — **Ad-Dhuhaa (93:1)**
 <!-- quran-verse-end -->
 
 ---
