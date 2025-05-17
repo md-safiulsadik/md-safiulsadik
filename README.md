@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [know that] all of the divine writ with which We have inspired thee is the very truth, confirming the truth of whatever there still remains of earlier revelations for, behold, of [the needs of] His servants God is fully aware, all-seeing.* — **Faatir (35:31)**
+> 📖 *SAY: "O you who deny the truth!* — **Al-Kaafiroon (109:1)**
 <!-- quran-verse-end -->
 
 ---
