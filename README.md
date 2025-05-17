@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *with strength endowed, secure with Him who in almightiness is enthroned* — **At-Takwir (81:20)**
+> 📖 *HAVE WE NOT opened up thy heart,* — **Ash-Sharh (94:1)**
 <!-- quran-verse-end -->
 
 ---
