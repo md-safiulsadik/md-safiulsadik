@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the bright morning hours,* — **Ad-Dhuhaa (93:1)**
+> 📖 *with strength endowed, secure with Him who in almightiness is enthroned* — **At-Takwir (81:20)**
 <!-- quran-verse-end -->
 
 ---
