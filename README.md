@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And He will say unto the sinners:] “Taste, then, [the recompense] for your having been obli­vious of the coming of this your Day [of Judgment] - for, verily, We are [now] oblivious of you: taste, then, [this] abiding suffering for all [the evil] that you were wont to do!”* — **As-Sajda (32:14)**
+> 📖 *hence, as for those who would separate themselves from their wives by saying, “Thou art as unlawful to me as my mother”, and thereafter would go back on what they have said, [their atonement] shall be the freeing of a human being from bondage before the couple may touch one another again: this you are [hereby] exhorted to do - for God is fully aware of all that you do.* — **Al-Mujaadila (58:3)**
 <!-- quran-verse-end -->
 
 ---
