@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But [bear in mind that] neither your kinsfolk nor [even] your own children will be of any benefit to you on Resurrection Day, [for then] He will decide between you [on your merit alone]: and God sees all that you do.* — **Al-Mumtahana (60:3)**
+> 📖 *And [if] they who are bent on denying the truth say [unto thee, O Prophet], "Thou hast not been sent [by God]", say thou: "None can bear witness between me and you as God does; and [none can bear witness as does] he who truly understands this divine writ.* — **Ar-Ra'd (13:43)**
 <!-- quran-verse-end -->
 
 ---
