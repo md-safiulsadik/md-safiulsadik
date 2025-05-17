@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *rushing to assault at morn,* — **Al-Aadiyaat (100:3)**
+> 📖 *[And He will say unto the sinners:] “Taste, then, [the recompense] for your having been obli­vious of the coming of this your Day [of Judgment] - for, verily, We are [now] oblivious of you: taste, then, [this] abiding suffering for all [the evil] that you were wont to do!”* — **As-Sajda (32:14)**
 <!-- quran-verse-end -->
 
 ---
