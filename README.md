@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *those who want only to be seen and praised,* — **Al-Maa'un (107:6)**
+> 📖 *rushing to assault at morn,* — **Al-Aadiyaat (100:3)**
 <!-- quran-verse-end -->
 
 ---
