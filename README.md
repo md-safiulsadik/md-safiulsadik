@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAVE WE NOT opened up thy heart,* — **Ash-Sharh (94:1)**
+> 📖 *The way of those upon whom Thou hast bestowed Thy blessings, not of those who have been condemned [by Thee], nor of those who go astray!* — **Al-Faatiha (1:7)**
 <!-- quran-verse-end -->
 
 ---
