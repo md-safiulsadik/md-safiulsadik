@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "O you who deny the truth!* — **Al-Kaafiroon (109:1)**
+> 📖 *Step by step has He bestowed upon thee from on high this divine writ, setting forth the truth which confirms whatever there still remains [of earlier revelations]: for it is He who has bestowed from on high the Torah and the Gospel* — **Aal-i-Imraan (3:3)**
 <!-- quran-verse-end -->
 
 ---
