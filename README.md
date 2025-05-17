@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Step by step has He bestowed upon thee from on high this divine writ, setting forth the truth which confirms whatever there still remains [of earlier revelations]: for it is He who has bestowed from on high the Torah and the Gospel* — **Aal-i-Imraan (3:3)**
+> 📖 *SAY [O Prophet]: "What do you think? Whether God destroys me and those who follow me, or graces us with His mercy - is there anyone that could protect [you] deniers of the truth from grievous suffering [in the life to come]?"* — **Al-Mulk (67:28)**
 <!-- quran-verse-end -->
 
 ---
