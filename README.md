@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"Are these deniers of the truth being [thus] requited for [aught but] what they were wont to do?"* — **Al-Mutaffifin (83:36)**
+> 📖 *well-pleased with [the fruit of] their striving,* — **Al-Ghaashiya (88:9)**
 <!-- quran-verse-end -->
 
 ---
