@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [know, O men, that] whether you keep your beliefs secret or state them openly, He has full knowledge indeed of all that is in [your] hearts.* — **Al-Mulk (67:13)**
+> 📖 *IT IS NOT of God's ordaining that certain kinds of cattle should be marked out by superstition and set aside from the use of man; yet those who are bent on denying the truth attribute their own lying inventions to God. And most of them never use their reason:* — **Al-Maaida (5:103)**
 <!-- quran-verse-end -->
 
 ---
