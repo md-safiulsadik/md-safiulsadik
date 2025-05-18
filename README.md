@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *EXTOL the limitless glory of thy Sustainer's name: [the glory of] the Al-Highest,* — **Al-A'laa (87:1)**
+> 📖 *[with] fire closing in upon them.* — **Al-Balad (90:20)**
 <!-- quran-verse-end -->
 
 ---
