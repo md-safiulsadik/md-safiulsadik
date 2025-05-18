@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, God knows the hidden reality of the heavens and the earth; and God sees all that you do.* — **Al-Hujuraat (49:18)**
+> 📖 *and that [we were mistaken when] we thought that neither man nor [any of] the invisible forces would ever tell a lie about God.* — **Al-Jinn (72:5)**
 <!-- quran-verse-end -->
 
 ---
