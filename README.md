@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
+> 📖 *in sublime almightiness enthroned,* — **Al-Burooj (85:15)**
 <!-- quran-verse-end -->
 
 ---
