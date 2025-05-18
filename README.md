@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *in sublime almightiness enthroned,* — **Al-Burooj (85:15)**
+> 📖 *It is God who causes night and day to alter­nate: in this [too], behold, there is surely a lesson for all who have eyes to see!* — **An-Noor (24:44)**
 <!-- quran-verse-end -->
 
 ---
