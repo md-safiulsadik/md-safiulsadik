@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *as did the people of Abraham, and the people of Lot,* — **Al-Hajj (22:43)**
+> 📖 *that [Last Hour] which is so near draws ever nearer,* — **An-Najm (53:57)**
 <!-- quran-verse-end -->
 
 ---
