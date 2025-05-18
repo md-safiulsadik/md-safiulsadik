@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O you who have attained to faith! Do not raise your voices above the voice of the Prophet, and neither speak loudly to him, as you would speak loudly to one another, lest all your [good] deeds come to nought without your perceiving it.* — **Al-Hujuraat (49:2)**
+> 📖 *CONSIDER the sky full of great constellations,* — **Al-Burooj (85:1)**
 <!-- quran-verse-end -->
 
 ---
