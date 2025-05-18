@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[with] fire closing in upon them.* — **Al-Balad (90:20)**
+> 📖 *They answered: "Never shall we prefer thee to all the evidence of the truth that has come unto us, nor to Him who has brought us into being! Decree, then, whatever thou art going to decree: thou canst decree only [something that pertains to] this worldly life!* — **Taa-Haa (20:72)**
 <!-- quran-verse-end -->
 
 ---
