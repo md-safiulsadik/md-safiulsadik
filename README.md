@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the sky full of great constellations,* — **Al-Burooj (85:1)**
+> 📖 *Are they, then, not aware that We have set up a sanctuary secure [for those who believe in Us], the while all around them men are being carried away [by fear and despair]? Will they, then, [continue to] believe in things false and vain, and thus deny God’s blessings.* — **Al-Ankaboot (29:67)**
 <!-- quran-verse-end -->
 
 ---
