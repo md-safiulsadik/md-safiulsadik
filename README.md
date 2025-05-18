@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [bear in mind:] there is no community which We will not destroy before the Day of Resurrection, or chastise [even earlier, if it proves sinful,] with suffering severe: all this is laid down in Our decree.* — **Al-Israa (17:58)**
+> 📖 *the like of [what happens] when Satan says unto man, “Deny the truth!” - but as soon as [man] has denied the truth, [Satan] says, “Behold, I am not responsible for thee: behold, I fear God, the Sustainer of all the worlds!”* — **Al-Hashr (59:16)**
 <!-- quran-verse-end -->
 
 ---
