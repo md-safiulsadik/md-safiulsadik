@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Are they, then, not aware that We have set up a sanctuary secure [for those who believe in Us], the while all around them men are being carried away [by fear and despair]? Will they, then, [continue to] believe in things false and vain, and thus deny God’s blessings.* — **Al-Ankaboot (29:67)**
+> 📖 *as did the people of Abraham, and the people of Lot,* — **Al-Hajj (22:43)**
 <!-- quran-verse-end -->
 
 ---
