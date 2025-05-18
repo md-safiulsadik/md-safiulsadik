@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *that [Last Hour] which is so near draws ever nearer,* — **An-Najm (53:57)**
+> 📖 *EXTOL the limitless glory of thy Sustainer's name: [the glory of] the Al-Highest,* — **Al-A'laa (87:1)**
 <!-- quran-verse-end -->
 
 ---
