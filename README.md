@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let them, therefore, worship the Sustainer of this Temple;* — **Quraish (106:3)**
+> 📖 *And [bear in mind:] there is no community which We will not destroy before the Day of Resurrection, or chastise [even earlier, if it proves sinful,] with suffering severe: all this is laid down in Our decree.* — **Al-Israa (17:58)**
 <!-- quran-verse-end -->
 
 ---
