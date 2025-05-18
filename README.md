@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But nay! Verily, all [that awaits him] is a raging flame,* — **Al-Ma'aarij (70:15)**
+> 📖 *Thus, there shall be such as will have attained to what is right: oh, how [happy] will be they who have attained to what is right!* — **Al-Waaqia (56:8)**
 <!-- quran-verse-end -->
 
 ---
