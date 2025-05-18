@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, there shall be such as will have attained to what is right: oh, how [happy] will be they who have attained to what is right!* — **Al-Waaqia (56:8)**
+> 📖 *O you who have attained to faith! Do not raise your voices above the voice of the Prophet, and neither speak loudly to him, as you would speak loudly to one another, lest all your [good] deeds come to nought without your perceiving it.* — **Al-Hujuraat (49:2)**
 <!-- quran-verse-end -->
 
 ---
