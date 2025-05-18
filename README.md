@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [if] they who are bent on denying the truth say [unto thee, O Prophet], "Thou hast not been sent [by God]", say thou: "None can bear witness between me and you as God does; and [none can bear witness as does] he who truly understands this divine writ.* — **Ar-Ra'd (13:43)**
+> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
 <!-- quran-verse-end -->
 
 ---
