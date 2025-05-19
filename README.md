@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
+> 📖 *on that Day will she recount all her tidings,* — **Az-Zalzala (99:4)**
 <!-- quran-verse-end -->
 
 ---
