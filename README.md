@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [know that true servants of God are only] those who never bear witness to what is false, and [who], whenever they pass by [people engaged in] frivolity, pass on with dignity;* — **Al-Furqaan (25:72)**
+> 📖 *Unto those who are bent on denying the truth the life of this world [alone] seems goodly; hence, they scoff at those who have attained to faith: but they who are conscious of God shall be above them on Resurrection Day. And God grants sustenance unto whom He wills, beyond all reckoning.* — **Al-Baqara (2:212)**
 <!-- quran-verse-end -->
 
 ---
