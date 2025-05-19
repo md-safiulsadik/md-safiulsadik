@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Unto those who are bent on denying the truth the life of this world [alone] seems goodly; hence, they scoff at those who have attained to faith: but they who are conscious of God shall be above them on Resurrection Day. And God grants sustenance unto whom He wills, beyond all reckoning.* — **Al-Baqara (2:212)**
+> 📖 *SAY: "O you who deny the truth!* — **Al-Kaafiroon (109:1)**
 <!-- quran-verse-end -->
 
 ---
