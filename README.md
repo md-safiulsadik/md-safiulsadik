@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, verily, God is with those who are conscious of Him and are doers of good withal!* — **An-Nahl (16:128)**
+> 📖 *[for] no human being has ever been left unguarded.* — **At-Taariq (86:4)**
 <!-- quran-verse-end -->
 
 ---
