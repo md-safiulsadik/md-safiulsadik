@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But never does God grant a delay to a human being when his term has come; and God is fully aware of all that you do.* — **Al-Munaafiqoon (63:11)**
+> 📖 *for, verily, God is with those who are conscious of Him and are doers of good withal!* — **An-Nahl (16:128)**
 <!-- quran-verse-end -->
 
 ---
