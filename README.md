@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And so they perished: and] how many gardens did they leave behind, and water-runnels,* — **Ad-Dukhaan (44:25)**
+> 📖 *so that they become as scat­tered dust –* — **Al-Waaqia (56:6)**
 <!-- quran-verse-end -->
 
 ---
