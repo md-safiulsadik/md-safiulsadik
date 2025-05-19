@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 Could not fetch verse at this time. — ****
+> 📖 *[and he will be told:] "Read this thy record,! Sufficient is thine own self today to make out thine account!"* — **Al-Israa (17:14)**
 <!-- quran-verse-end -->
 
 ---
