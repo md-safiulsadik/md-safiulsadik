@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and he will be told:] "Read this thy record,! Sufficient is thine own self today to make out thine account!"* — **Al-Israa (17:14)**
+> 📖 *and none can bind with bonds like His.* — **Al-Fajr (89:26)**
 <!-- quran-verse-end -->
 
 ---
