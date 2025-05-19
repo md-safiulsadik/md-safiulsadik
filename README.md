@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who gives the lie to the truth and turns away [from it].* — **Al-Lail (92:16)**
+> 📖 *[Hence,] vie with one another in seeking to attain to your Sustainer’s forgiveness, and [thus] to a paradise as vast as the heavens and the earth, which has been readied for those who have attained to faith in God and His Apostle: such is the bounty of God which He grants unto whomever He wills - for God is limitless in His great bounty.* — **Al-Hadid (57:21)**
 <!-- quran-verse-end -->
 
 ---
