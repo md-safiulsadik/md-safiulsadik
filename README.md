@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, if he desist not, We shall most surely drag him down upon his forehead* — **Al-Alaq (96:15)**
+> 📖 *Said [Hud]: "O my people! There is no weak-mindedness in me, but I am an apostle from the Sustainer of all the worlds.* — **Al-A'raaf (7:67)**
 <!-- quran-verse-end -->
 
 ---
