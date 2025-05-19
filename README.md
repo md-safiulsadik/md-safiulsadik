@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[for] no human being has ever been left unguarded.* — **At-Taariq (86:4)**
+> 📖 *Nay, if he desist not, We shall most surely drag him down upon his forehead* — **Al-Alaq (96:15)**
 <!-- quran-verse-end -->
 
 ---
