@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *with strength endowed, secure with Him who in almightiness is enthroned* — **At-Takwir (81:20)**
+> 📖 Could not fetch verse at this time. — ****
 <!-- quran-verse-end -->
 
 ---
