@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But the great ones among his people, who refused to acknowledge the truth, replied: “This [man] is nothing but a mortal like yourselves who wants to make himself superior to you! For, if God had willed [to convey a message unto us], He would surely have sent down angels; [moreover,] we have never heard [any­thing like] this from our forebears of old!* — **Al-Muminoon (23:24)**
+> 📖 *and be not like those who say, "We have heard", the while they do not hearken.* — **Al-Anfaal (8:21)**
 <!-- quran-verse-end -->
 
 ---
