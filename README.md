@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *only burning despair and ice-cold darkness:* — **An-Naba (78:25)**
+> 📖 *ONLY THEY [truly] believe in Our messages who, whenever they are conveyed to them, fall down, prostrating themselves in adoration, and extol their Sustainer’s limitless glory and praise; and who are never filled with false pride;* — **As-Sajda (32:15)**
 <!-- quran-verse-end -->
 
 ---
