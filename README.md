@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 Could not fetch verse at this time. — ****
+> 📖 *"Verily, I - I alone - am God; there is no deity save Me. Hence, worship Me alone, and be constant in prayer, so as to remember Me!* — **Taa-Haa (20:14)**
 <!-- quran-verse-end -->
 
 ---
