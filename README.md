@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *blame attaches but to those who oppress [other] people and behave outrageously on earth, offending against all right: for them there is grievous suffering in store!* — **Ash-Shura (42:42)**
+> 📖 *and caused them to become like a field of grain that has been eaten down to stubble* — **Al-Fil (105:5)**
 <!-- quran-verse-end -->
 
 ---
