@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and caused them to become like a field of grain that has been eaten down to stubble* — **Al-Fil (105:5)**
+> 📖 *only burning despair and ice-cold darkness:* — **An-Naba (78:25)**
 <!-- quran-verse-end -->
 
 ---
