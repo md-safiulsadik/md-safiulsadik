@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, they [who refuse to accept it] devise many a false argument [to disprove its truth];* — **At-Taariq (86:15)**
+> 📖 *Verily, God loves [only] those who fight in His cause in [solid] ranks, as though they were a building firm and compact.* — **As-Saff (61:4)**
 <!-- quran-verse-end -->
 
 ---
