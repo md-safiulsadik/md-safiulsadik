@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ONLY THEY [truly] believe in Our messages who, whenever they are conveyed to them, fall down, prostrating themselves in adoration, and extol their Sustainer’s limitless glory and praise; and who are never filled with false pride;* — **As-Sajda (32:15)**
+> 📖 *But the great ones among his people, who refused to acknowledge the truth, replied: “This [man] is nothing but a mortal like yourselves who wants to make himself superior to you! For, if God had willed [to convey a message unto us], He would surely have sent down angels; [moreover,] we have never heard [any­thing like] this from our forebears of old!* — **Al-Muminoon (23:24)**
 <!-- quran-verse-end -->
 
 ---
