@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And for those who have attained to faith God has propounded a parable in [the story of] Pharaoh's wife as she prayed "O my Sustainer! Build Thou for me a mansion in the paradise [that is] with Thee, and save me from Pharaoh and his doings, and save me, from all evildoing folk!* — **At-Tahrim (66:11)**
+> 📖 *Behold, they [who refuse to accept it] devise many a false argument [to disprove its truth];* — **At-Taariq (86:15)**
 <!-- quran-verse-end -->
 
 ---
