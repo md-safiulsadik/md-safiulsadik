@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Do they who are bent on denying the truth think, perchance, that they could take [any of] My creatures for protectors against Me? Verily, We have readied hell to welcome all who [thus] deny the truth!* — **Al-Kahf (18:102)**
+> 📖 *[The other] answered: "Behold, thou wilt never be able to have patience with me –* — **Al-Kahf (18:67)**
 <!-- quran-verse-end -->
 
 ---
