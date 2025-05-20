@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND SO, [when you fight in a just cause,] do not lose heart and [never] beg for peace: for, seeing that God is with you, you are bound to rise high [in the end]; and never will He let your [good] deeds go to waste.* — **Muhammad (47:35)**
+> 📖 *with strength endowed, secure with Him who in almightiness is enthroned* — **At-Takwir (81:20)**
 <!-- quran-verse-end -->
 
 ---
