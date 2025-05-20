@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, God loves [only] those who fight in His cause in [solid] ranks, as though they were a building firm and compact.* — **As-Saff (61:4)**
+> 📖 *[And] Moses said unto his people: "Turn unto God for aid, and have patience in adversity. Verily, all the earth belongs to God: He gives it as a heritage - to such as He wills of His servants; and the future belongs to the God-conscious!"* — **Al-A'raaf (7:128)**
 <!-- quran-verse-end -->
 
 ---
