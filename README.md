@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *We did not bestow the Qur'an on thee from on high to make thee unhappy,* — **Taa-Haa (20:2)**
+> 📖 *and children as [love's] witnesses,* — **Al-Muddaththir (74:13)**
 <!-- quran-verse-end -->
 
 ---
