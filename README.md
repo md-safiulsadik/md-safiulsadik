@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And ere that suffering comes upon you of a sudden, without your being aware [of its approach], follow the most goodly [teaching] that has been revealed unto you by your Sustainer,* — **Az-Zumar (39:55)**
+> 📖 *"from the evil of the whispering, elusive tempter* — **An-Naas (114:4)**
 <!-- quran-verse-end -->
 
 ---
