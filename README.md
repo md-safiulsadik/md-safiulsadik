@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "O followers of earlier revelation! Do you find fault with us for no other reason than that we believe in God [alone], and in that which He has bestowed from on high upon us as well as that which He has bestowed aforetime? - or [is it only] because most of you are iniquitous?"* — **Al-Maaida (5:59)**
+> 📖 *Nay, but [in the life to come such as] he shall indeed be abandoned to crushing torment!* — **Al-Humaza (104:4)**
 <!-- quran-verse-end -->
 
 ---
