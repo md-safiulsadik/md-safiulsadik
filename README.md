@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and children as [love's] witnesses,* — **Al-Muddaththir (74:13)**
+> 📖 *INDEED, God has turned in His mercy unto the Prophet, as well as unto those who have forsaken the domain of evil and those who have sheltered and succoured the Faiths - [all] those who followed him in the hour of distress, when the hearts of some of the other believers had well-nigh swerved from faith. And once again: He has turned unto them in His mercy - for, behold, He is compassionate towards them, a dispenser of grace.* — **At-Tawba (9:117)**
 <!-- quran-verse-end -->
 
 ---
