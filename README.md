@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[As against this,] verily, those who attain to faith and do righteous deeds shall have gardens of bliss,* — **Luqman (31:8)**
+> 📖 *God - there is no deity save Him! In God then let the believers place their trust.* — **At-Taghaabun (64:13)**
 <!-- quran-verse-end -->
 
 ---
