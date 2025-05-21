@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *INDEED, God has turned in His mercy unto the Prophet, as well as unto those who have forsaken the domain of evil and those who have sheltered and succoured the Faiths - [all] those who followed him in the hour of distress, when the hearts of some of the other believers had well-nigh swerved from faith. And once again: He has turned unto them in His mercy - for, behold, He is compassionate towards them, a dispenser of grace.* — **At-Tawba (9:117)**
+> 📖 *Furthermore, the Jews assert, "The Christians have no valid ground for their beliefs," while the Christians assert, "The Jews have no valid ground for their beliefs" - and both quote the divine writ! Even thus, like unto what they say, have [always] spoken those who were devoid of knowledge;" but it is God who will judge between them on Resurrection Day with regard to all on which they were wont to differ.* — **Al-Baqara (2:113)**
 <!-- quran-verse-end -->
 
 ---
