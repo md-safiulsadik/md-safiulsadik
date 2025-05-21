@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *they fear their Sustainer high above them, and do whatever they are bidden to do.* — **An-Nahl (16:50)**
+> 📖 *And ere that suffering comes upon you of a sudden, without your being aware [of its approach], follow the most goodly [teaching] that has been revealed unto you by your Sustainer,* — **Az-Zumar (39:55)**
 <!-- quran-verse-end -->
 
 ---
