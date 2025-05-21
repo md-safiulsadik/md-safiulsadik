@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God annuls or confirms whatever He wills [of His earlier messages] -for with Him is the source of all revelation.* — **Ar-Ra'd (13:39)**
+> 📖 *a sovereign doer of whatever He wills.* — **Al-Burooj (85:16)**
 <!-- quran-verse-end -->
 
 ---
