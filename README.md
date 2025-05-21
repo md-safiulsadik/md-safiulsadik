@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Furthermore, the Jews assert, "The Christians have no valid ground for their beliefs," while the Christians assert, "The Jews have no valid ground for their beliefs" - and both quote the divine writ! Even thus, like unto what they say, have [always] spoken those who were devoid of knowledge;" but it is God who will judge between them on Resurrection Day with regard to all on which they were wont to differ.* — **Al-Baqara (2:113)**
+> 📖 *[As against this,] verily, those who attain to faith and do righteous deeds shall have gardens of bliss,* — **Luqman (31:8)**
 <!-- quran-verse-end -->
 
 ---
