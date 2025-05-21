@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but [in the life to come such as] he shall indeed be abandoned to crushing torment!* — **Al-Humaza (104:4)**
+> 📖 *Deaf, dumb, blind - and they cannot turn back.* — **Al-Baqara (2:18)**
 <!-- quran-verse-end -->
 
 ---
