@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and how it is imbued with moral failings as well as with consciousness of God!* — **Ash-Shams (91:8)**
+> 📖 Could not fetch verse at this time. — ****
 <!-- quran-verse-end -->
 
 ---
