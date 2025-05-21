@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Deaf, dumb, blind - and they cannot turn back.* — **Al-Baqara (2:18)**
+> 📖 *[And] have they created the heavens and the earth? Nay, but they have no certainty of anything!* — **At-Tur (52:36)**
 <!-- quran-verse-end -->
 
 ---
