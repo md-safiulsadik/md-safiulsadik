@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now if he [whom We have entrusted with it] had dared to attribute some [of his own] sayings unto Us,* — **Al-Haaqqa (69:44)**
+> 📖 *CONSIDER the night as it veils [the earth] in darkness,* — **Al-Lail (92:1)**
 <!-- quran-verse-end -->
 
 ---
