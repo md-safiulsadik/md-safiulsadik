@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 Could not fetch verse at this time. — ****
+> 📖 *they fear their Sustainer high above them, and do whatever they are bidden to do.* — **An-Nahl (16:50)**
 <!-- quran-verse-end -->
 
 ---
