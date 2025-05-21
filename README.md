@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *a sovereign doer of whatever He wills.* — **Al-Burooj (85:16)**
+> 📖 *Now if he [whom We have entrusted with it] had dared to attribute some [of his own] sayings unto Us,* — **Al-Haaqqa (69:44)**
 <!-- quran-verse-end -->
 
 ---
