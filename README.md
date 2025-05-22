@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *he said: "Behold, you are people unknown [here]!"* — **Al-Hijr (15:62)**
+> 📖 *[As for such sinners,] behold, We [but] try them as We tried the owners of a certain garden who vowed that they would surely harvest its fruit on the morrow,* — **Al-Qalam (68:17)**
 <!-- quran-verse-end -->
 
 ---
