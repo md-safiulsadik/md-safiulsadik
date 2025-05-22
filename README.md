@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and] to whom the dominion of the heavens and the earth belongs. But God is witness unto everything!* — **Al-Burooj (85:9)**
+> 📖 *and unto thy Sustainer turn with love.* — **Ash-Sharh (94:8)**
 <!-- quran-verse-end -->
 
 ---
