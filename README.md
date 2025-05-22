@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the night as it veils [the earth] in darkness,* — **Al-Lail (92:1)**
+> 📖 *but him We bore on that [vessel] made of [mere] planks and nails,* — **Al-Qamar (54:13)**
 <!-- quran-verse-end -->
 
 ---
