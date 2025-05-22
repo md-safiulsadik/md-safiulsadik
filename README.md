@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, [O men,] We have sent unto you an apostle who shall bear witness to the truth before you, even as We sent an apostle unto Pharaoh:* — **Al-Muzzammil (73:15)**
+> 📖 *WOE UNTO THOSE who give short measure:* — **Al-Mutaffifin (83:1)**
 <!-- quran-verse-end -->
 
 ---
