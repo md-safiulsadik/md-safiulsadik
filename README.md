@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WOE UNTO THOSE who give short measure:* — **Al-Mutaffifin (83:1)**
+> 📖 *which We then let remain in [the womb's] firm keeping* — **Al-Mursalaat (77:21)**
 <!-- quran-verse-end -->
 
 ---
