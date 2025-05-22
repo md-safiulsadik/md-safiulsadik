@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Neither coolness shall they taste therein nor any [thirst-quenching] drink –* — **An-Naba (78:24)**
+> 📖 *Some faces will on that Day be downcast,* — **Al-Ghaashiya (88:2)**
 <!-- quran-verse-end -->
 
 ---
