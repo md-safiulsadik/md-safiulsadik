@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *To a happy state shall indeed attain he who causes this [self] to grow in purity,* — **Ash-Shams (91:9)**
+> 📖 *who turn others away from God's path and try to make it appear crooked, and who refuse to acknowledge the truth of the life to come!"* — **Al-A'raaf (7:45)**
 <!-- quran-verse-end -->
 
 ---
