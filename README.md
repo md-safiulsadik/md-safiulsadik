@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who turn others away from God's path and try to make it appear crooked, and who refuse to acknowledge the truth of the life to come!"* — **Al-A'raaf (7:45)**
+> 📖 *However, he who does not have the where­withal shall fast [instead] for two consecutive months before the couple may touch one another again; and he who is unable to do it shall feed sixty needy ones: this, so that you might prove your faith in God and His Apostle. Now these are the bounds set by God; and grievous suffering [in the life to come] awaits all who deny the truth.* — **Al-Mujaadila (58:4)**
 <!-- quran-verse-end -->
 
 ---
