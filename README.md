@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, behold, with every hardship comes ease:* — **Ash-Sharh (94:5)**
+> 📖 *whereas the invisible beings We had created, [long] before that, out of the fire of scorching winds.* — **Al-Hijr (15:27)**
 <!-- quran-verse-end -->
 
 ---
