@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas those who have attained to faith and do righteous deeds, and have come to believe in what has been bestowed from on high on Muhammad - for it is the truth from their Sustainer - [shall attain to God’s grace:] He will efface their [past] bad deeds, and will set their hearts at rest.* — **Muhammad (47:2)**
+> 📖 *BEHOLD, [O men,] We have sent unto you an apostle who shall bear witness to the truth before you, even as We sent an apostle unto Pharaoh:* — **Al-Muzzammil (73:15)**
 <!-- quran-verse-end -->
 
 ---
