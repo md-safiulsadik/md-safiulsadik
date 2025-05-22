@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Man’s other self’ will say: “O our Sustainer! It was not I that led his conscious mind into evil [nay,] but it had gone far astray [of its own accord]!* — **Qaaf (50:27)**
+> 📖 *And, behold, with every hardship comes ease:* — **Ash-Sharh (94:5)**
 <!-- quran-verse-end -->
 
 ---
