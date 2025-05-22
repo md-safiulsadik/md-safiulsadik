@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Some faces will on that Day be downcast,* — **Al-Ghaashiya (88:2)**
+> 📖 *To a happy state shall indeed attain he who causes this [self] to grow in purity,* — **Ash-Shams (91:9)**
 <!-- quran-verse-end -->
 
 ---
