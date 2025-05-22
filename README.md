@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[As for such sinners,] behold, We [but] try them as We tried the owners of a certain garden who vowed that they would surely harvest its fruit on the morrow,* — **Al-Qalam (68:17)**
+> 📖 *for him shall We make easy the path towards [ultimate] ease.* — **Al-Lail (92:7)**
 <!-- quran-verse-end -->
 
 ---
