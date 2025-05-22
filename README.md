@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but him We bore on that [vessel] made of [mere] planks and nails,* — **Al-Qamar (54:13)**
+> 📖 *he said: "Behold, you are people unknown [here]!"* — **Al-Hijr (15:62)**
 <!-- quran-verse-end -->
 
 ---
