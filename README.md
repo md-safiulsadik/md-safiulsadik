@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and man cries out, "What has happened to her?" -* — **Az-Zalzala (99:3)**
+> 📖 *Consider the multiple and the One!* — **Al-Fajr (89:3)**
 <!-- quran-verse-end -->
 
 ---
