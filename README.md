@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They said: "O thou Two-Horned One! Behold, Gog and Magog" are spoiling this land. May we, then, pay unto thee a tribute on the understanding that thou wilt erect a barrier between us and them?"* — **Al-Kahf (18:94)**
+> 📖 *And what would they have to fear if they would but believe in God and the Last Day, and spend [in His way] out of what God has granted them as sustenance - since God has indeed full knowledge of them?* — **An-Nisaa (4:39)**
 <!-- quran-verse-end -->
 
 ---
