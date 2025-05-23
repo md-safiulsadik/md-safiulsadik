@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and believes in the truth of the ultimate good* — **Al-Lail (92:6)**
+> 📖 *O you who have attained to faith! Offend not against the symbols set up by God, nor against the sacred month [of pilgrimage], nor against the garlanded offerings, nor against those who flock to the Inviolable Temple, seeking favour with their Sustainer and His goodly acceptance; and [only] after your pilgrimage is over are you free to hunt. And never let your hatred of people who would bar you from the Inviolable House of Worship lead you into the sin of aggression: but rather help one another in furthering virtue and God-consciousness, and do not help one another in furthering evil and enmity; and remain conscious of God: for, behold, God is severe in retribution!* — **Al-Maaida (5:2)**
 <!-- quran-verse-end -->
 
 ---
