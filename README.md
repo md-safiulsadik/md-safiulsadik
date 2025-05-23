@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[for] it is God [Himself] who has bestowed revelation from on high, setting forth the truth, and [thus given man] a balance [wherewith to weigh right and wrong]. And for all thou knowest, the Last Hour may well be near!* — **Ash-Shura (42:17)**
+> 📖 *[For,] were it Our will, We could indeed turn it into chaff, and you would be left to wonder [and to lament],* — **Al-Waaqia (56:65)**
 <!-- quran-verse-end -->
 
 ---
