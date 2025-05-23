@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Have they, then, never beheld the birds above them, spreading their wings and drawing them in? None but the Most Gracious upholds them: for, verily, He keeps all things in His sight.* — **Al-Mulk (67:19)**
+> 📖 *But does he not know that [on the Last Day,] when all that is in the graves is raised and brought out,* — **Al-Aadiyaat (100:9)**
 <!-- quran-verse-end -->
 
 ---
