@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what would they have to fear if they would but believe in God and the Last Day, and spend [in His way] out of what God has granted them as sustenance - since God has indeed full knowledge of them?* — **An-Nisaa (4:39)**
+> 📖 *HAST THOU ever considered [the kind of man] who makes his own desires his deity, and whom God has [thereupon] let go astray, knowing [that his mind is closed to all guidance], and whose hearing and heart He has sealed, and upon whose sight He has placed a veil? Who, then, could guide him after God [has abandoned him]? Will you not, then, bethink your­selves?* — **Al-Jaathiya (45:23)**
 <!-- quran-verse-end -->
 
 ---
