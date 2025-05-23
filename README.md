@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet, [O believers,] it was not you who slew the enemy, but it was God who slew them; and it was not thou who cast [terror into them, O Prophet], when thou didst cast it, but it was God who cast it: and [He did all this] in order that He might test the believers by a goodly test of His Own or daining. Verily, God is all-hearing, all-knowing!* — **Al-Anfaal (8:17)**
+> 📖 *on the Day when God will raise them all from the dead and will make them truly understand all that they did [in life]: God will have taken [all of] it into account, even though they [themselves] may have forgotten it - for God is wit­ness unto everything.* — **Al-Mujaadila (58:6)**
 <!-- quran-verse-end -->
 
 ---
