@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[yet] between them is a barrier which they may not transgress.* — **Ar-Rahmaan (55:20)**
+> 📖 *[for] it is God [Himself] who has bestowed revelation from on high, setting forth the truth, and [thus given man] a balance [wherewith to weigh right and wrong]. And for all thou knowest, the Last Hour may well be near!* — **Ash-Shura (42:17)**
 <!-- quran-verse-end -->
 
 ---
