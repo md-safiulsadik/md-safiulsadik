@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the multiple and the One!* — **Al-Fajr (89:3)**
+> 📖 *VERILY, towards his Sustainer man is most ungrateful* — **Al-Aadiyaat (100:6)**
 <!-- quran-verse-end -->
 
 ---
