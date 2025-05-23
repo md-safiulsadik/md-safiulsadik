@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, towards his Sustainer man is most ungrateful* — **Al-Aadiyaat (100:6)**
+> 📖 *and believes in the truth of the ultimate good* — **Al-Lail (92:6)**
 <!-- quran-verse-end -->
 
 ---
