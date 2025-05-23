@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas the invisible beings We had created, [long] before that, out of the fire of scorching winds.* — **Al-Hijr (15:27)**
+> 📖 *They said: "O thou Two-Horned One! Behold, Gog and Magog" are spoiling this land. May we, then, pay unto thee a tribute on the understanding that thou wilt erect a barrier between us and them?"* — **Al-Kahf (18:94)**
 <!-- quran-verse-end -->
 
 ---
