@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND IF any [secret] matter pertaining to peace or war comes within their ken, they spread it abroad - whereas, if they would but refer it unto the Apostle and unto those from among the believers who have been entrusted with authority, such of them as are engaged in obtaining intelligence would indeed know [what to do with] it And but for God's bounty towards you, and His grace, all but a few of you would certainly have followed Satan.* — **An-Nisaa (4:83)**
+> 📖 *and gardens dense with foliage,* — **Abasa (80:30)**
 <!-- quran-verse-end -->
 
 ---
