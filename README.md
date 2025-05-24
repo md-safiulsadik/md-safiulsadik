@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Unto you, your moral law, and unto me, mine!"* — **Al-Kaafiroon (109:6)**
+> 📖 *unless it be such [of them] as [repent, and] attain to faith, and do good works: for theirs shall be a reward unending!.* — **Al-Inshiqaaq (84:25)**
 <!-- quran-verse-end -->
 
 ---
