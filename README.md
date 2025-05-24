@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WE who have created you, [O men:] why, then, do you not accept the truth?* — **Al-Waaqia (56:57)**
+> 📖 *Now those beings that some people invoke beside God cannot create anything, since they themselves are but created:* — **An-Nahl (16:20)**
 <!-- quran-verse-end -->
 
 ---
