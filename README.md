@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the sun and its radiant brightness,* — **Ash-Shams (91:1)**
+> 📖 *WE who have created you, [O men:] why, then, do you not accept the truth?* — **Al-Waaqia (56:57)**
 <!-- quran-verse-end -->
 
 ---
