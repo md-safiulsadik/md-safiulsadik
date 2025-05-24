@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now those beings that some people invoke beside God cannot create anything, since they themselves are but created:* — **An-Nahl (16:20)**
+> 📖 *SAY: "[God is] He who has brought you [all] into being, and has endowed you with hearing, and sight, and hearts: [yet] how seldom are you grateful!"* — **Al-Mulk (67:23)**
 <!-- quran-verse-end -->
 
 ---
