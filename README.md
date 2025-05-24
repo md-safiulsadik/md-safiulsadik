@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Lord of the Day of Judgment!* — **Al-Faatiha (1:4)**
+> 📖 *OH, THE LAYING-BARE of the truth!* — **Al-Haaqqa (69:1)**
 <!-- quran-verse-end -->
 
 ---
