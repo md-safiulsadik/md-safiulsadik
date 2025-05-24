@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Does he, then, think that no one has power over him?* — **Al-Balad (90:5)**
+> 📖 *Say: "If that which you so hastily demand were in my power, everything would indeed have been decided between me and you. But God knows best as to who is doing wrong."* — **Al-An'aam (6:58)**
 <!-- quran-verse-end -->
 
 ---
