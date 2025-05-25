@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Are, then, they [whose hearts are sealed] wait­ing for the Last Hour - [waiting] that it come upon them of a sudden? But it has already been foretold! And what will their remembrance [of their past sins] avail them, once it has come upon them?* — **Muhammad (47:18)**
+> 📖 *And [they] will be told: “Call [now] unto those [beings or powers] to whom you were wont to ascribe a share in God’s divinity!” and they will call unto them [for help], but those [fake objects of worship] will not respond to them: whereupon they will see the suffering [that awaits them - the suffering which could have been avoided] if only they had allowed them­selves to be guided!* — **Al-Qasas (28:64)**
 <!-- quran-verse-end -->
 
 ---
