@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *You worship only [lifeless] idols instead of God, and [thus] you give visible shape to a lie! Behold, those [things and beings] that you worship instead of God have it not in their power to provide sustenance for you: seek, then, all [your] sustenance from God, and worship Him [alone] and be grateful to Him: [for] unto Him you shall be brought back!* — **Al-Ankaboot (29:17)**
+> 📖 *And it will not be within your power to treat your wives with equal fairness, however much you may desire it; and so, do not allow yourselves to incline towards one to the exclusion of the other, leaving her in a state, as it were, of having and not having a husband. But if you put things to rights and are conscious of Him - behold, God is indeed much-forgiving, a dispenser of grace.* — **An-Nisaa (4:129)**
 <!-- quran-verse-end -->
 
 ---
