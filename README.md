@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and gardens dense with foliage,* — **Abasa (80:30)**
+> 📖 *Are, then, they [whose hearts are sealed] wait­ing for the Last Hour - [waiting] that it come upon them of a sudden? But it has already been foretold! And what will their remembrance [of their past sins] avail them, once it has come upon them?* — **Muhammad (47:18)**
 <!-- quran-verse-end -->
 
 ---
