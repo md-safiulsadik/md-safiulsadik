@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Point out to me those [beings] that you have joined with Him [in your minds] as partners [in His divinity]! Nay - nay, but He [alone] is God, the Almighty, the Wise!”* — **Saba (34:27)**
+> 📖 *And the earth -We have spread it out wide, and placed on it mountains firm, and caused [life] of every kind to grow on it in a balanced manner,* — **Al-Hijr (15:19)**
 <!-- quran-verse-end -->
 
 ---
