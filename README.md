@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, he who shall have done an atom's weight of good, shall behold it;* — **Az-Zalzala (99:7)**
+> 📖 *Say: “Point out to me those [beings] that you have joined with Him [in your minds] as partners [in His divinity]! Nay - nay, but He [alone] is God, the Almighty, the Wise!”* — **Saba (34:27)**
 <!-- quran-verse-end -->
 
 ---
