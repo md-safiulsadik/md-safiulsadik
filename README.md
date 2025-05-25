@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Every tiding [from God] has a term set for its fulfilment: and in time you will come to know [the truth]."* — **Al-An'aam (6:67)**
+> 📖 *CONVEY [unto others] whatever of this divine writ has been revealed unto thee, and be constant in prayer: for, behold, prayer restrains [man] from loathsome deeds and from all that runs counter to reason; and remembrance of God is indeed the greatest [good]. And God knows all that you do.* — **Al-Ankaboot (29:45)**
 <!-- quran-verse-end -->
 
 ---
