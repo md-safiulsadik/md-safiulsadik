@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on the Day when all secrets will be laid bare,* — **At-Taariq (86:9)**
+> 📖 *will you, then, contend with him as to what he saw?* — **An-Najm (53:12)**
 <!-- quran-verse-end -->
 
 ---
