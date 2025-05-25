@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONVEY [unto others] whatever of this divine writ has been revealed unto thee, and be constant in prayer: for, behold, prayer restrains [man] from loathsome deeds and from all that runs counter to reason; and remembrance of God is indeed the greatest [good]. And God knows all that you do.* — **Al-Ankaboot (29:45)**
+> 📖 *and that there might grow out of you a community [of people] who invite unto all that is good, and enjoin the doing of what is right and forbid the doing of what is wrong: and it is they, they who shall attain to a happy state!* — **Aal-i-Imraan (3:104)**
 <!-- quran-verse-end -->
 
 ---
