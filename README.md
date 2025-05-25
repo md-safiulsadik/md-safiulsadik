@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“This, then, is the hell of which you were warned again and again:* — **Yaseen (36:63)**
+> 📖 *and then, behold! you shall be raised from the dead on Resurrection Day.* — **Al-Muminoon (23:16)**
 <!-- quran-verse-end -->
 
 ---
