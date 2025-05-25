@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and being, withal, of those who have attained to faith, and who enjoin upon one another patience in adversity, and enjoin upon one another compassion.* — **Al-Balad (90:17)**
+> 📖 *“This, then, is the hell of which you were warned again and again:* — **Yaseen (36:63)**
 <!-- quran-verse-end -->
 
 ---
