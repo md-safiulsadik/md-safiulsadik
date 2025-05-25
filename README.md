@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And the earth -We have spread it out wide, and placed on it mountains firm, and caused [life] of every kind to grow on it in a balanced manner,* — **Al-Hijr (15:19)**
+> 📖 *Every tiding [from God] has a term set for its fulfilment: and in time you will come to know [the truth]."* — **Al-An'aam (6:67)**
 <!-- quran-verse-end -->
 
 ---
