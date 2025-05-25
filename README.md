@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And once again: Nay, but in time they will come to understand!* — **An-Naba (78:5)**
+> 📖 *O PROPHET! Why dost thou, out of a desire to please [one or another of] thy wives, impose [on thyself] a prohibition of something that God has made lawful to thee? But God is much-forgiving, a dispenser of grace:* — **At-Tahrim (66:1)**
 <!-- quran-verse-end -->
 
 ---
