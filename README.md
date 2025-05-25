@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and so I warn you of the raging fire -* — **Al-Lail (92:14)**
+> 📖 *and being, withal, of those who have attained to faith, and who enjoin upon one another patience in adversity, and enjoin upon one another compassion.* — **Al-Balad (90:17)**
 <!-- quran-verse-end -->
 
 ---
