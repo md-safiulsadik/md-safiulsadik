@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then, behold! you shall be raised from the dead on Resurrection Day.* — **Al-Muminoon (23:16)**
+> 📖 *And once again: Nay, but in time they will come to understand!* — **An-Naba (78:5)**
 <!-- quran-verse-end -->
 
 ---
