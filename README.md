@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *till, when they come close to it, their hearing and their sight and their [very] skins will bear witness against them, speaking of what they were doing [on earth].* — **Fussilat (41:20)**
+> 📖 *It is He who from on high has bestowed inner peace upon the hearts of the believers, so that - seeing that God’s are all the forces of the heavens and the earth, and that God is all-knowing, truly wise - they might grow yet more firm in their faith;* — **Al-Fath (48:4)**
 <!-- quran-verse-end -->
 
 ---
