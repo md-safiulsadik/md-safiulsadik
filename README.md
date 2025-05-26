@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on which they [so utterly] disagree.* — **An-Naba (78:3)**
+> 📖 *And [one day,] when [the child] had become old enough to share in his [father’s] endeavours, the latter said: “O my dear son! I have seen in a dream that I should sacrifice thee: consider, then, what would be thy view!” [Ishmael] answered: “O my father! Do as thou art bidden: thou wilt find me, if God so wills, among those who are patient in adversity!”* — **As-Saaffaat (37:102)**
 <!-- quran-verse-end -->
 
 ---
