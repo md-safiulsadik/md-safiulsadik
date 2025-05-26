@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, in all this there are messages indeed for those who can read the signs:* — **Al-Hijr (15:75)**
+> 📖 *And [Joseph] said to his servants: "Place their merchandise in their camel-packs, so that they may find it there when they come home, and hence be the more eager to return.* — **Yusuf (12:62)**
 <!-- quran-verse-end -->
 
 ---
