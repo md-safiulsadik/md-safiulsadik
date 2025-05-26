@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [Joseph] said to his servants: "Place their merchandise in their camel-packs, so that they may find it there when they come home, and hence be the more eager to return.* — **Yusuf (12:62)**
+> 📖 *and make it your daily bread [as it were] to call the truth a lie?* — **Al-Waaqia (56:82)**
 <!-- quran-verse-end -->
 
 ---
