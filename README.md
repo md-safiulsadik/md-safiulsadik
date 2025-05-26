@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and, withal, deny all assistance [to their fellow-men]!* — **Al-Maa'un (107:7)**
+> 📖 *Hast thou considered whether he may [not] be giving the lie to the truth and turning his back [upon it]?* — **Al-Alaq (96:13)**
 <!-- quran-verse-end -->
 
 ---
