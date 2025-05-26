@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and make it your daily bread [as it were] to call the truth a lie?* — **Al-Waaqia (56:82)**
+> 📖 *on which they [so utterly] disagree.* — **An-Naba (78:3)**
 <!-- quran-verse-end -->
 
 ---
