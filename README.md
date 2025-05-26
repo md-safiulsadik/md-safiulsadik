@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ALL PRAISE is due to God, Originator of the heavens and the earth, who causes the angels to be (His) message-bearers, endowed with wings, two, or three, or four. [Unceasingly] He adds to His creation whatever He wills: for, verily, God has the power to will anything.* — **Faatir (35:1)**
+> 📖 *having given the lie to Our messages one and all:* — **An-Naba (78:28)**
 <!-- quran-verse-end -->
 
 ---
