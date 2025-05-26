@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].* — **Al-Kawthar (108:2)**
+> 📖 *And [thus it is:] when we let men taste [Our] grace, they rejoice in it; but if evil befalls them as an outcome of what their own hands have wrought lo! they lose all hope!* — **Ar-Room (30:36)**
 <!-- quran-verse-end -->
 
 ---
