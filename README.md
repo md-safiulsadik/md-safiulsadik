@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hast thou considered whether he may [not] be giving the lie to the truth and turning his back [upon it]?* — **Al-Alaq (96:13)**
+> 📖 *whom they hate for no other reason than that they believe in God, the Almighty, the One to whom all praise is due,* — **Al-Burooj (85:8)**
 <!-- quran-verse-end -->
 
 ---
