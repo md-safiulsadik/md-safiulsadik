@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And among His signs are the ships that sail like [floating] mountains through the seas:* — **Ash-Shura (42:32)**
+> 📖 *And thereupon, by God's leave, they routed them. And David slew Goliath; and God bestowed upon him dominion, and wisdom, and imparted to him the knowledge of whatever He willed. And if God had not enabled people to defend themselves against one another, corruption would surely overwhelm the earth: but God is limitless in His bounty unto all the worlds.* — **Al-Baqara (2:251)**
 <!-- quran-verse-end -->
 
 ---
