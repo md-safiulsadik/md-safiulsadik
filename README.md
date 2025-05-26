@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [thus it is:] when we let men taste [Our] grace, they rejoice in it; but if evil befalls them as an outcome of what their own hands have wrought lo! they lose all hope!* — **Ar-Room (30:36)**
+> 📖 *Verily, in all this there are messages indeed for those who can read the signs:* — **Al-Hijr (15:75)**
 <!-- quran-verse-end -->
 
 ---
