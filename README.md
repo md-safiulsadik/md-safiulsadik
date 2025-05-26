@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thereupon, by God's leave, they routed them. And David slew Goliath; and God bestowed upon him dominion, and wisdom, and imparted to him the knowledge of whatever He willed. And if God had not enabled people to defend themselves against one another, corruption would surely overwhelm the earth: but God is limitless in His bounty unto all the worlds.* — **Al-Baqara (2:251)**
+> 📖 *and, withal, deny all assistance [to their fellow-men]!* — **Al-Maa'un (107:7)**
 <!-- quran-verse-end -->
 
 ---
