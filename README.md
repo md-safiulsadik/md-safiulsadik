@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].* — **Al-Kawthar (108:2)**
+> 📖 *Is, then, He who has created the heavens and the earth not able to create [anew] the like of those [who have died]? Yea, indeed - for He alone is the all-knowing Crea­tor:* — **Yaseen (36:81)**
 <!-- quran-verse-end -->
 
 ---
