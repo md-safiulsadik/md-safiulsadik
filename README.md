@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [now] throw that [staff] which is in thy right hand -it shall swallow up all that they have wrought: [for] they have wrought only a sorcerer's artifice, and the sorcerer can never come to any good, whatever he may aim at!"* — **Taa-Haa (20:69)**
+> 📖 *YOU ARE OBSESSED by greed for more and more* — **At-Takaathur (102:1)**
 <!-- quran-verse-end -->
 
 ---
