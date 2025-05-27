@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Hence,] gardens of perpetual bliss will they enter, therein to be adorned with bracelets of gold and pearls, and therein to be clad in raiments of silk;* — **Faatir (35:33)**
+> 📖 *Unto Him belongs all that is in the heavens and all that is on earth; and, verily, God - He alone - is self-sufficient, the One to whom all praise is due.* — **Al-Hajj (22:64)**
 <!-- quran-verse-end -->
 
 ---
