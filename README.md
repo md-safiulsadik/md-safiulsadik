@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But God said:] "Now? -when ever before this thou hast been rebelling [against Us], and hast been among those who spread corruption?* — **Yunus (10:91)**
+> 📖 *and when paradise is brought into view:* — **At-Takwir (81:13)**
 <!-- quran-verse-end -->
 
 ---
