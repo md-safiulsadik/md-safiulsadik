@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Is, then, He who has created the heavens and the earth not able to create [anew] the like of those [who have died]? Yea, indeed - for He alone is the all-knowing Crea­tor:* — **Yaseen (36:81)**
+> 📖 *[But God said:] "Now? -when ever before this thou hast been rebelling [against Us], and hast been among those who spread corruption?* — **Yunus (10:91)**
 <!-- quran-verse-end -->
 
 ---
