@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Unto Him belongs all that is in the heavens and all that is on earth; and, verily, God - He alone - is self-sufficient, the One to whom all praise is due.* — **Al-Hajj (22:64)**
+> 📖 *But he would not try to ascend the steep uphill road...* — **Al-Balad (90:11)**
 <!-- quran-verse-end -->
 
 ---
