@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On the Day when they shall be dragged into the fire on their faces, [they will be told:] “Taste now the touch of hell-fire!”* — **Al-Qamar (54:48)**
+> 📖 *And it moved on with them into waves that were like mountains. At that [moment] Noah cried out to a son of his, who had kept himself aloof [from the others]: "O my dear son! Embark with us, and remain not with those who deny the truth!"* — **Hud (11:42)**
 <!-- quran-verse-end -->
 
 ---
