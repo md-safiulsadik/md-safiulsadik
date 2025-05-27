@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when paradise is brought into view:* — **At-Takwir (81:13)**
+> 📖 *yea, enter thou My paradise!"* — **Al-Fajr (89:30)**
 <!-- quran-verse-end -->
 
 ---
