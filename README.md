@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *yea, enter thou My paradise!"* — **Al-Fajr (89:30)**
+> 📖 *and bids you only to do evil, and to commit deeds of abomination, and to attribute unto God something of which you have no knowledge.* — **Al-Baqara (2:169)**
 <!-- quran-verse-end -->
 
 ---
