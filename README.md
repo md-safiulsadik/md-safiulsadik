@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And it moved on with them into waves that were like mountains. At that [moment] Noah cried out to a son of his, who had kept himself aloof [from the others]: "O my dear son! Embark with us, and remain not with those who deny the truth!"* — **Hud (11:42)**
+> 📖 *Say: "I invoke my Sustainer alone, for I do not ascribe divinity to anyone beside Him."* — **Al-Jinn (72:20)**
 <!-- quran-verse-end -->
 
 ---
