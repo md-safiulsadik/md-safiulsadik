@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, too, have We vouchsafed revelation unto Moses aforetime, and thereupon disputes arose about it. And [then, as now,] had it not been for a decree that had already gone forth from thy Sustainer, all would indeed have been decided between them [from the outset]. As it is, behold, they [who will not believe in this divine writ] are in grave doubt, amounting to suspicion, about what it portends.* — **Fussilat (41:45)**
+> 📖 *Now those people have passed away; unto them shall be accounted what they have earned, and unto you, what you have earned; and you will not be, judged on the strength of what they did.* — **Al-Baqara (2:134)**
 <!-- quran-verse-end -->
 
 ---
