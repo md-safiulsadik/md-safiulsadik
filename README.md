@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But [there is many a one] who says to his parents [whenever they try to imbue him with faith in God]: “Fie upon both of you! Do you promise me that I shall be brought forth [from the dead], although [so many] generations have passed away before me?” And [while] they both pray for God’s help [and say], “Alas for thee! For, behold, God’s promise always comes true!” - he but answers, “All this is nothing but fables of ancient times!”* — **Al-Ahqaf (46:17)**
+> 📖 *But those among them who were bent on wrongdoing substituted another saying for that which they had been given: and so We let loose against them a plague from heaven in requital of all their evil doings.* — **Al-A'raaf (7:162)**
 <!-- quran-verse-end -->
 
 ---
