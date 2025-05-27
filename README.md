@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [on that Day] the Apostle will say: “O my Sustainer! Behold, [some of] my people have come to regard this Qur’an as something [that ought to be] discarded!”* — **Al-Furqaan (25:30)**
+> 📖 *Thus, too, have We vouchsafed revelation unto Moses aforetime, and thereupon disputes arose about it. And [then, as now,] had it not been for a decree that had already gone forth from thy Sustainer, all would indeed have been decided between them [from the outset]. As it is, behold, they [who will not believe in this divine writ] are in grave doubt, amounting to suspicion, about what it portends.* — **Fussilat (41:45)**
 <!-- quran-verse-end -->
 
 ---
