@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But he would not try to ascend the steep uphill road...* — **Al-Balad (90:11)**
+> 📖 *On the Day when they shall be dragged into the fire on their faces, [they will be told:] “Taste now the touch of hell-fire!”* — **Al-Qamar (54:48)**
 <!-- quran-verse-end -->
 
 ---
