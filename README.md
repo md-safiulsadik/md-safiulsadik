@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and bids you only to do evil, and to commit deeds of abomination, and to attribute unto God something of which you have no knowledge.* — **Al-Baqara (2:169)**
+> 📖 *issuing from between the loins [of man] and the pelvic arch [of woman].* — **At-Taariq (86:7)**
 <!-- quran-verse-end -->
 
 ---
