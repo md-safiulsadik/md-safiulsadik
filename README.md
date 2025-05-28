@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *LET [all] this be a reminder [to those who believe in God] - for, verily, the most beauteous of all goals awaits the God-conscious:* — **Saad (38:49)**
+> 📖 *and neither will you [ever] worship that which I worship.* — **Al-Kaafiroon (109:5)**
 <!-- quran-verse-end -->
 
 ---
