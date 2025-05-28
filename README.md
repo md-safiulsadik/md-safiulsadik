@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[although] none but God can unveil it....* — **An-Najm (53:58)**
+> 📖 *LET [all] this be a reminder [to those who believe in God] - for, verily, the most beauteous of all goals awaits the God-conscious:* — **Saad (38:49)**
 <!-- quran-verse-end -->
 
 ---
