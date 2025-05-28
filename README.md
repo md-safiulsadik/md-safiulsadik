@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Hence,] O you who have attained to faith, when you do hold secret confabulations, do not conspire with one another with a view to sinful doings, and aggressive conduct, and disobedience to the Apostle, but [rather] hold counsel in the cause of virtue and God-consciousness: and [always] remain conscious of God, unto whom you all shall be gathered.* — **Al-Mujaadila (58:9)**
+> 📖 *Thus, in the end, both [the deniers of the truth and the hypocrites] will find themselves in the fire, therein to abide: for such is the recompense of evil­doers.* — **Al-Hashr (59:17)**
 <!-- quran-verse-end -->
 
 ---
