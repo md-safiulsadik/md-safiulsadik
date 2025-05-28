@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *issuing from between the loins [of man] and the pelvic arch [of woman].* — **At-Taariq (86:7)**
+> 📖 *[although] none but God can unveil it....* — **An-Najm (53:58)**
 <!-- quran-verse-end -->
 
 ---
