@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and from the evil of the black darkness whenever it descends,* — **Al-Falaq (113:3)**
+> 📖 *and those that speed along with gentle ease,* — **Adh-Dhaariyat (51:3)**
 <!-- quran-verse-end -->
 
 ---
