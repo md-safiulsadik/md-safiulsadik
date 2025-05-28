@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither will you [ever] worship that which I worship.* — **Al-Kaafiroon (109:5)**
+> 📖 *O you who have attained to faith! Do not take the deniers of the truth for your allies in preference to the believers! Do you want to place before God a manifest proof of your guilt?* — **An-Nisaa (4:144)**
 <!-- quran-verse-end -->
 
 ---
