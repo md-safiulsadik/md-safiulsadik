@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and so God has graced us with His favour, and has warded off from us all suffering through the scorching winds [of frustration].* — **At-Tur (52:27)**
+> 📖 *And in your own nature, and in [that of] all the animals which He scatters [over the earth] there are messages for people who are endowed with inner certainty.* — **Al-Jaathiya (45:4)**
 <!-- quran-verse-end -->
 
 ---
