@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *then He causes him to be begotten out of the essence of a humble fluid;* — **As-Sajda (32:8)**
+> 📖 *SAY: "It has been revealed to me that some of the unseen beings gave ear [to this divine writ], and thereupon said [unto their fellow-beings]: "'Verily, we have heard a wondrous discourse,* — **Al-Jinn (72:1)**
 <!-- quran-verse-end -->
 
 ---
