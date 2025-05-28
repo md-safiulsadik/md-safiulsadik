@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And should they but seek to play false with thee -well, they were false to God [Himself] ere this: but He gave [the believers] mastery over them. And God is all-knowing, wise.* — **Al-Anfaal (8:71)**
+> 📖 *and so God has graced us with His favour, and has warded off from us all suffering through the scorching winds [of frustration].* — **At-Tur (52:27)**
 <!-- quran-verse-end -->
 
 ---
