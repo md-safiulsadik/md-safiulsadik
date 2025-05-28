@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, it is We who grant life and deal death; and with Us will be all journeys’ end* — **Qaaf (50:43)**
+> 📖 *Behold how they have lied to themselves -and [how] their false imagery has forsaken them!* — **Al-An'aam (6:24)**
 <!-- quran-verse-end -->
 
 ---
