@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, [O Muhammad, say unto them:] “Flee unto God [from all that is false and evil]! Verily, I am a plain warner to you from Him!* — **Adh-Dhaariyat (51:50)**
+> 📖 *Verily, it is We who grant life and deal death; and with Us will be all journeys’ end* — **Qaaf (50:43)**
 <!-- quran-verse-end -->
 
 ---
