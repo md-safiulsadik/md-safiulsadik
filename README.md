@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and will they [continue to] worship, instead of God, something that has it not within its power to provide for them any sustenance whatever from the heavens or the earth, and can do nothing at all?* — **An-Nahl (16:73)**
+> 📖 *To a happy state shall indeed attain he who causes this [self] to grow in purity,* — **Ash-Shams (91:9)**
 <!-- quran-verse-end -->
 
 ---
