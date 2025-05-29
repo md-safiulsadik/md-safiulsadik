@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now as for those who will not believe in God and His Apostle - verily, We have readied a blazing flame for all [such] deniers of the truth!* — **Al-Fath (48:13)**
+> 📖 *and will they [continue to] worship, instead of God, something that has it not within its power to provide for them any sustenance whatever from the heavens or the earth, and can do nothing at all?* — **An-Nahl (16:73)**
 <!-- quran-verse-end -->
 
 ---
