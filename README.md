@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold how they have lied to themselves -and [how] their false imagery has forsaken them!* — **Al-An'aam (6:24)**
+> 📖 *and will aid you with worldly goods and children, and will bestow upon you gardens, and bestow upon you running waters.* — **Nooh (71:12)**
 <!-- quran-verse-end -->
 
 ---
