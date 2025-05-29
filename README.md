@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY [to the deniers of the truth]: "Behold, I have been forbidden to worship those [beings] whom you invoke instead of God." Say: "I do not follow your errant views -or else I should have gone astray, and should not be among those who have found the right path."* — **Al-An'aam (6:56)**
+> 📖 *And, verily, thou callest them onto a straight way –* — **Al-Muminoon (23:73)**
 <!-- quran-verse-end -->
 
 ---
