@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and will aid you with worldly goods and children, and will bestow upon you gardens, and bestow upon you running waters.* — **Nooh (71:12)**
+> 📖 *And, verily, thine shall be a reward neverending –* — **Al-Qalam (68:3)**
 <!-- quran-verse-end -->
 
 ---
