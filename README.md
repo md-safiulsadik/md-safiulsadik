@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *if He so wills, He stills the wind, and then they lie motion­less on the sea’s surface - [and] herein, behold, there are messages indeed for all who are wholly patient in adversity and deeply grateful [to God];* — **Ash-Shura (42:33)**
+> 📖 *Now as for those who will not believe in God and His Apostle - verily, We have readied a blazing flame for all [such] deniers of the truth!* — **Al-Fath (48:13)**
 <!-- quran-verse-end -->
 
 ---
