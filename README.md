@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, verily, thou callest them onto a straight way –* — **Al-Muminoon (23:73)**
+> 📖 *And He it is who, in the valley of Mecca, stayed their hands from you, and your hands from them, after He had enabled you to vanquish them; and God saw indeed what you were doing.* — **Al-Fath (48:24)**
 <!-- quran-verse-end -->
 
 ---
