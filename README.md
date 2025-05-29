@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, [O Muhammad,] We have sent thee as a witness [to the truth], and as a herald of glad tidings and a warner –* — **Al-Fath (48:8)**
+> 📖 *and gardens dense with follage.* — **An-Naba (78:16)**
 <!-- quran-verse-end -->
 
 ---
