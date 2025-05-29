@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And among the many objects of His creation, God has appointed for you [various] means of protection: thus, He has given you in the mountains places of shelter, and has endowed you with [the ability to make] garments to protect you from heat [and cold], as well as such garments as might protect you from your [mutual] violence. In this way does He bestow the full measure of His blessings on you, so that you might surrender yourselves unto Him.* — **An-Nahl (16:81)**
+> 📖 *[the while] We shall summon the forces of heavenly chastisement!* — **Al-Alaq (96:18)**
 <!-- quran-verse-end -->
 
 ---
