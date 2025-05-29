@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and reminded: for, never do We wrong [anyone].* — **Ash-Shu'araa (26:209)**
+> 📖 *But as for those who are bent on denying the truth, their [good] deeds are like a mirage in the desert, which the thirsty supposes to be water – until, when he approaches it, he finds that it was nothing: instead, he finds [that] God [has always been present] with him, and [that] He will pay him his account in full - for God is swift in reckoning!* — **An-Noor (24:39)**
 <!-- quran-verse-end -->
 
 ---
