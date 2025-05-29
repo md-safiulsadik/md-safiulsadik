@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *does it make secure, until the rise of dawn.* — **Al-Qadr (97:5)**
+> 📖 *but pray God to forgive [them]: behold, God is indeed much-forgiving, a dispenser of grace.* — **An-Nisaa (4:106)**
 <!-- quran-verse-end -->
 
 ---
