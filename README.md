@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but pray God to forgive [them]: behold, God is indeed much-forgiving, a dispenser of grace.* — **An-Nisaa (4:106)**
+> 📖 *But on the Day [of Judgment], they who had attained to faith will [be able to] laugh at the [erstwhile] deniers of the truth:* — **Al-Mutaffifin (83:34)**
 <!-- quran-verse-end -->
 
 ---
