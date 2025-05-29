@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *To a happy state shall indeed attain he who causes this [self] to grow in purity,* — **Ash-Shams (91:9)**
+> 📖 *VERILY, [O Muhammad,] We have sent thee as a witness [to the truth], and as a herald of glad tidings and a warner –* — **Al-Fath (48:8)**
 <!-- quran-verse-end -->
 
 ---
