@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for those who are bent on denying the truth, their [good] deeds are like a mirage in the desert, which the thirsty supposes to be water – until, when he approaches it, he finds that it was nothing: instead, he finds [that] God [has always been present] with him, and [that] He will pay him his account in full - for God is swift in reckoning!* — **An-Noor (24:39)**
+> 📖 *SAY [to the deniers of the truth]: "Behold, I have been forbidden to worship those [beings] whom you invoke instead of God." Say: "I do not follow your errant views -or else I should have gone astray, and should not be among those who have found the right path."* — **Al-An'aam (6:56)**
 <!-- quran-verse-end -->
 
 ---
