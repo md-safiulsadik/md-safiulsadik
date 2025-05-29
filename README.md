@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what it is, that Night of Destiny?* — **Al-Qadr (97:2)**
+> 📖 *and during some of the night, and prostrate thyself before Him, and extol His limitless glory throughout the long night.* — **Al-Insaan (76:26)**
 <!-- quran-verse-end -->
 
 ---
