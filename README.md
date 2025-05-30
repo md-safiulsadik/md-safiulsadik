@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, all who say, “Our Sustainer is God”, and thereafter stand firm [in their faith] - no fear need they have, and neither shall they grieve:* — **Al-Ahqaf (46:13)**
+> 📖 *Tell the believing men to lower their gaze and to be mindful of their chastity: this will be most con­ducive to their purity – [and,] verily, God is aware of all that they do.* — **An-Noor (24:30)**
 <!-- quran-verse-end -->
 
 ---
