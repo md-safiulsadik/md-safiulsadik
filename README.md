@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither will you [ever] worship that which I worship.* — **Al-Kaafiroon (109:5)**
+> 📖 *And so We seized him and his hosts and cast them into the sea: and behold what happened in the end to those evildoers:* — **Al-Qasas (28:40)**
 <!-- quran-verse-end -->
 
 ---
