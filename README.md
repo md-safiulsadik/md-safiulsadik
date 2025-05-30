@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"He begets not, and neither is He begotten;* — **Al-Ikhlaas (112:3)**
+> 📖 *THEY WILL ASK thee [O Prophet] about the Last Hour: "When will it come to pass?"* — **An-Naazi'aat (79:42)**
 <!-- quran-verse-end -->
 
 ---
