@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[It will occur] on the Day when men will be like moths swarming in confusion,* — **Al-Qaari'a (101:4)**
+> 📖 *Was it, then, a delusion or is it that you failed to see [its truth]?* — **At-Tur (52:15)**
 <!-- quran-verse-end -->
 
 ---
