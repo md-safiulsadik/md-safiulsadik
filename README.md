@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for him whose record shall be given to him behind his back;* — **Al-Inshiqaaq (84:10)**
+> 📖 *Consider the heavens, ever-revolving,* — **At-Taariq (86:11)**
 <!-- quran-verse-end -->
 
 ---
