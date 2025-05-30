@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The life of this world is but a play and a passing delight: but if you believe [in God] and are conscious of Him, He will grant you your deserts. And withal, He does not demand of you [to sacrifice in His cause all of] your possessions:* — **Muhammad (47:36)**
+> 📖 *[Know that true] believers are only those who have attained to faith in God and His Apostle and have left all doubt behind, and who strive hard in God’s cause with their possessions and their lives: it is they, they who are true to their word!* — **Al-Hujuraat (49:15)**
 <!-- quran-verse-end -->
 
 ---
