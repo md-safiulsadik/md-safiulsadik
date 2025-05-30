@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, he did not believe in God, the Tremendous,* — **Al-Haaqqa (69:33)**
+> 📖 *the planets that run their course and set,* — **At-Takwir (81:16)**
 <!-- quran-verse-end -->
 
 ---
