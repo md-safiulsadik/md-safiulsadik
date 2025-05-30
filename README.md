@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Was it, then, a delusion or is it that you failed to see [its truth]?* — **At-Tur (52:15)**
+> 📖 *[For,] lo, thy Sustainer said unto the angels: “Behold, I am about to create a human being out of clay;* — **Saad (38:71)**
 <!-- quran-verse-end -->
 
 ---
