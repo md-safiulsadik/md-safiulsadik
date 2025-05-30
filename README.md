@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Know that true] believers are only those who have attained to faith in God and His Apostle and have left all doubt behind, and who strive hard in God’s cause with their possessions and their lives: it is they, they who are true to their word!* — **Al-Hujuraat (49:15)**
+> 📖 *AND, INDEED, We have propounded unto men all kinds of parables in this Qur’an. But thus it is: if thou approach them with any [such] message, those who are bent on denying the truth are sure to say, “You are but making false claims!”* — **Ar-Room (30:58)**
 <!-- quran-verse-end -->
 
 ---
