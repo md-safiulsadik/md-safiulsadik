@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THEY WILL ASK thee [O Prophet] about the Last Hour: "When will it come to pass?"* — **An-Naazi'aat (79:42)**
+> 📖 *ALL THAT IS in the heavens and all that is on earth extols God’s limitless glory: for He alone is almighty, truly wise.* — **Al-Hashr (59:1)**
 <!-- quran-verse-end -->
 
 ---
