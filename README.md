@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the heavens, ever-revolving,* — **At-Taariq (86:11)**
+> 📖 *CONSIDER the heavens and that which comes in the night!* — **At-Taariq (86:1)**
 <!-- quran-verse-end -->
 
 ---
