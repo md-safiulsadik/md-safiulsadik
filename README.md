@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[For,] lo, thy Sustainer said unto the angels: “Behold, I am about to create a human being out of clay;* — **Saad (38:71)**
+> 📖 *“Hence, be modest in thy bearing, and lower thy voice: for, behold, the ugliest of all voices is the [loud] voice of asses…”* — **Luqman (31:19)**
 <!-- quran-verse-end -->
 
 ---
