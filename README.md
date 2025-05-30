@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so We seized him and his hosts and cast them into the sea: and behold what happened in the end to those evildoers:* — **Al-Qasas (28:40)**
+> 📖 *[The brothers] said: "By God! Most certainly has God raised thee high above us, and we were indeed but sinners!"* — **Yusuf (12:91)**
 <!-- quran-verse-end -->
 
 ---
