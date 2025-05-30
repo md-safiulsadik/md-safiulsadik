@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *As for those who avoid the [truly] grave sins and shameful deeds - even though they may some­times stumble behold, thy Sustainer is abounding in forgiveness. He is fully aware of you when He brings you into being out of dust, and when you are still hidden in your mothers’ wombs: do not, then, consider your­selves pure - [for] He knows best as to who is conscious of Him.* — **An-Najm (53:32)**
+> 📖 *for, behold, all who say, “Our Sustainer is God”, and thereafter stand firm [in their faith] - no fear need they have, and neither shall they grieve:* — **Al-Ahqaf (46:13)**
 <!-- quran-verse-end -->
 
 ---
