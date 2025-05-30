@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and gardens dense with follage.* — **An-Naba (78:16)**
+> 📖 *"'Yet [it is true] that among us are such as have surrendered themselves to God - just as there are among us such as have abandoned themselves to wrongdoing. Now as for those who surrender themselves to Him - it is they that have attained to consciousness of what is right;* — **Al-Jinn (72:14)**
 <!-- quran-verse-end -->
 
 ---
