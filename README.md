@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And abide quietly in your homes, and do not flaunt your charms as they used to flaunt them in the old days of pagan ignorance; and be constant in prayer, and render the purifying dues, and pay heed unto God and His Apostle: for God only wants to remove from you all that might be loathsome, O you members of the [Prophet’s] household, and to purify you to utmost purity.* — **Al-Ahzaab (33:33)**
+> 📖 *IT IS GOD who has created the heavens and the earth and all that is between them in six aeons, and is established on the throne of His almightiness. You have none to protect you from God, and none to intercede for you [on Judgment Day]: will you not, then, bethink yourselves?* — **As-Sajda (32:4)**
 <!-- quran-verse-end -->
 
 ---
