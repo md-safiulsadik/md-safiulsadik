@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Woe, then, unto those praying ones* — **Al-Maa'un (107:4)**
+> 📖 *They will answer: ‘We have spent there a day, or part of a day; but ask those who [are able to] count [time] …”* — **Al-Muminoon (23:113)**
 <!-- quran-verse-end -->
 
 ---
