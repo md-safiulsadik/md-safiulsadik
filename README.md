@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *OH, the sudden calamity!* — **Al-Qaari'a (101:1)**
+> 📖 *and when all beasts are gathered together,* — **At-Takwir (81:5)**
 <!-- quran-verse-end -->
 
 ---
