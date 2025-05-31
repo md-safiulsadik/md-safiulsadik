@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, when Our judgment came to pass, by Our grace We saved Salih and those who shared his faith; and [We saved them, too,] from the ignominy of [Our rejection on] that Day [of Resurrection]. Verily, thy Sustainer alone is powerful, almighty!* — **Hud (11:66)**
+> 📖 *Woe, then, unto those praying ones* — **Al-Maa'un (107:4)**
 <!-- quran-verse-end -->
 
 ---
