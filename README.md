@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and says: “By God! Verily, thou hast almost destroyed me [too, O my erstwhile companion]* — **As-Saaffaat (37:56)**
+> 📖 *And so, when Our judgment came to pass, by Our grace We saved Salih and those who shared his faith; and [We saved them, too,] from the ignominy of [Our rejection on] that Day [of Resurrection]. Verily, thy Sustainer alone is powerful, almighty!* — **Hud (11:66)**
 <!-- quran-verse-end -->
 
 ---
