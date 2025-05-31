@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet, they [who deny the truth] are wont to ask, "When is that promise [of resurrection and judgment] to be fulfilled? [Answer this, O you who believe in it,] if you are men of truth!"* — **Yunus (10:48)**
+> 📖 *To a happy state shall indeed attain he who causes this [self] to grow in purity,* — **Ash-Shams (91:9)**
 <!-- quran-verse-end -->
 
 ---
