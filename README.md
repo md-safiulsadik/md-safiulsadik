@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Yet] on that Day - the Day on which they shall see the angels there will be no glad tiding for those who were lost in sin; and they will exclaim, “By a forbidding ban [are we from God’s grace debarred]!” –* — **Al-Furqaan (25:22)**
+> 📖 *SAY [O Muhammad]: “O men! I am but a plain warner [sent by God] unto you!”* — **Al-Hajj (22:49)**
 <!-- quran-verse-end -->
 
 ---
