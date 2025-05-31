@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and lifted from thee the burden* — **Ash-Sharh (94:2)**
+> 📖 *but my call has only caused them to flee farther and farther away [from Thee].* — **Nooh (71:6)**
 <!-- quran-verse-end -->
 
 ---
