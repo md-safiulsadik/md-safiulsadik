@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY [O Muhammad]: “O men! I am but a plain warner [sent by God] unto you!”* — **Al-Hajj (22:49)**
+> 📖 *Behold, it is He who creates [man] in the first instance, and He [it is who] will bring him forth anew.* — **Al-Burooj (85:13)**
 <!-- quran-verse-end -->
 
 ---
