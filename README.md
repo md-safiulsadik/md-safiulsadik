@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then, verily, O you who have gone astray and called the truth a lie,* — **Al-Waaqia (56:51)**
+> 📖 *OH, the sudden calamity!* — **Al-Qaari'a (101:1)**
 <!-- quran-verse-end -->
 
 ---
