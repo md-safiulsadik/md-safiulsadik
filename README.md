@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Tell the believing men to lower their gaze and to be mindful of their chastity: this will be most con­ducive to their purity – [and,] verily, God is aware of all that they do.* — **An-Noor (24:30)**
+> 📖 *and says: “By God! Verily, thou hast almost destroyed me [too, O my erstwhile companion]* — **As-Saaffaat (37:56)**
 <!-- quran-verse-end -->
 
 ---
