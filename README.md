@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and we were wont to indulge in sinning together with all [the others] who indulged in it;* — **Al-Muddaththir (74:45)**
+> 📖 *- [for] you call upon me to deny [the one­ness of] God and to ascribe a share in His divinity to aught of which I cannot [possibly] have any knowl­edge the while I summon you to [a cognition of] the Almighty, the All-Forgiving!* — **Ghafir (40:42)**
 <!-- quran-verse-end -->
 
 ---
