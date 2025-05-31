@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but my call has only caused them to flee farther and farther away [from Thee].* — **Nooh (71:6)**
+> 📖 *And yet, they [who deny the truth] are wont to ask, "When is that promise [of resurrection and judgment] to be fulfilled? [Answer this, O you who believe in it,] if you are men of truth!"* — **Yunus (10:48)**
 <!-- quran-verse-end -->
 
 ---
