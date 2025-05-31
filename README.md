@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *that had weighed so heavily on thy back?* — **Ash-Sharh (94:3)**
+> 📖 *and then, verily, O you who have gone astray and called the truth a lie,* — **Al-Waaqia (56:51)**
 <!-- quran-verse-end -->
 
 ---
