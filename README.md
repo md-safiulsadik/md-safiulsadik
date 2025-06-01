@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HEY WILL ASK thee about the spoils of war. Say: "All spoils of war belong to God and the Apostle." Remain, then, conscious of God, and keep alive the bonds of brotherhood among yourselves, and pay heed unto God and His Apostle, if you are [truly] believers!* — **Al-Anfaal (8:1)**
+> 📖 *IT IS GOD who has made the night for you, so that you might rest therein, and the day, to make [you] see. Behold, God is indeed limitless in His bounty unto man - but most men are ungrateful.* — **Ghafir (40:61)**
 <!-- quran-verse-end -->
 
 ---
