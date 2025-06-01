@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *IT IS GOD who has made the night for you, so that you might rest therein, and the day, to make [you] see. Behold, God is indeed limitless in His bounty unto man - but most men are ungrateful.* — **Ghafir (40:61)**
+> 📖 *Just as [we do not know how it happens] that some from among us are righteous, while some of us are [far] below that: we have always followed widely divergent paths.* — **Al-Jinn (72:11)**
 <!-- quran-verse-end -->
 
 ---
