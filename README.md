@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Have We not given him two eyes,* — **Al-Balad (90:8)**
+> 📖 *Say: “Neither shall you be called to account for whatever we may have become guilty of, nor shall we be called to account for whatever you are doing.”* — **Saba (34:25)**
 <!-- quran-verse-end -->
 
 ---
