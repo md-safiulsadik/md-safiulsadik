@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "I seek refuge with the Sustainer of men,* — **An-Naas (114:1)**
+> 📖 *REMIND, THEN, [others of the truth, regardless of] whether this reminding [would seem to] be of use [or not]:* — **Al-A'laa (87:9)**
 <!-- quran-verse-end -->
 
 ---
