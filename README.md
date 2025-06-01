@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the lying, rebellious forehead! –* — **Al-Alaq (96:16)**
+> 📖 *noble, recording,* — **Al-Infitaar (82:11)**
 <!-- quran-verse-end -->
 
 ---
