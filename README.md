@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *a sovereign doer of whatever He wills.* — **Al-Burooj (85:16)**
+> 📖 *HEY WILL ASK thee about the spoils of war. Say: "All spoils of war belong to God and the Apostle." Remain, then, conscious of God, and keep alive the bonds of brotherhood among yourselves, and pay heed unto God and His Apostle, if you are [truly] believers!* — **Al-Anfaal (8:1)**
 <!-- quran-verse-end -->
 
 ---
