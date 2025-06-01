@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, if you could but understand [it] with an understanding [born] of certainty,* — **At-Takaathur (102:5)**
+> 📖 *O you who have attained to faith! Remain conscious of God, and [always] speak with a will to bring out [only] what is just and true -* — **Al-Ahzaab (33:70)**
 <!-- quran-verse-end -->
 
 ---
