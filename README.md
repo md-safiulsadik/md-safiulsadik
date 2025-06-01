@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *or add to it [at will]; and [during that time] recite the Qur’an calmly and distinctly, with thy mind attuned to its meaning.* — **Al-Muzzammil (73:4)**
+> 📖 *For, whatever good thing comes to you, comes from God; and whenever harm befalls you, it is unto Him that you cry for help* — **An-Nahl (16:53)**
 <!-- quran-verse-end -->
 
 ---
