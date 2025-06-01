@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *REMIND, THEN, [others of the truth, regardless of] whether this reminding [would seem to] be of use [or not]:* — **Al-A'laa (87:9)**
+> 📖 *And most certainly did We overwhelm Pharaoh's people with drought and scarcity of fruits, so that they might take it to heart.* — **Al-A'raaf (7:130)**
 <!-- quran-verse-end -->
 
 ---
