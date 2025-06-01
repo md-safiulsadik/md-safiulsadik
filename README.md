@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Answered he: “Yea - and, verily, in that case you shall be among those who are near unto me.* — **Ash-Shu'araa (26:42)**
+> 📖 *And there are among them such as will in time come to believe in this [divine writ], just as there are among them such as will never believe in it; and thy Sustainer is fully aware as to who are the spreaders of corruption.* — **Yunus (10:40)**
 <!-- quran-verse-end -->
 
 ---
