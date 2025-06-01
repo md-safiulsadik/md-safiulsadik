@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Just as [we do not know how it happens] that some from among us are righteous, while some of us are [far] below that: we have always followed widely divergent paths.* — **Al-Jinn (72:11)**
+> 📖 *Have We not given him two eyes,* — **Al-Balad (90:8)**
 <!-- quran-verse-end -->
 
 ---
