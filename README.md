@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And most certainly did We overwhelm Pharaoh's people with drought and scarcity of fruits, so that they might take it to heart.* — **Al-A'raaf (7:130)**
+> 📖 *and when thou seest [anything that is] there thou wilt see [only] bliss and a realm transcendent* — **Al-Insaan (76:20)**
 <!-- quran-verse-end -->
 
 ---
