@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Countless springs will flow therein,* — **Al-Ghaashiya (88:12)**
+> 📖 *Answered he: “Yea - and, verily, in that case you shall be among those who are near unto me.* — **Ash-Shu'araa (26:42)**
 <!-- quran-verse-end -->
 
 ---
