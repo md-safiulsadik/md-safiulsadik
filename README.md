@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And there are among them such as will in time come to believe in this [divine writ], just as there are among them such as will never believe in it; and thy Sustainer is fully aware as to who are the spreaders of corruption.* — **Yunus (10:40)**
+> 📖 *the lying, rebellious forehead! –* — **Al-Alaq (96:16)**
 <!-- quran-verse-end -->
 
 ---
