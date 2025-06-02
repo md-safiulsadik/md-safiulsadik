@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Woe, then, unto those who write down, with their own hands, [something which they claim to be] divine writ, and then say. "This is from God," in order to acquire a trifling gain thereby; woe, then, unto them for what their hands have written, and woe unto them for all that they may have gained!* — **Al-Baqara (2:79)**
+> 📖 *Say: "If you were to own' all the treasure-houses of my Sustainer's bounty, lo! you would still try to hold on [to them] tightly for fear of spending [too much]: for man has always been avaricious [whereas God is limitless in His bounty].* — **Al-Israa (17:100)**
 <!-- quran-verse-end -->
 
 ---
