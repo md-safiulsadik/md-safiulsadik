@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Does he, then, not know that God sees [all]?* — **Al-Alaq (96:14)**
+> 📖 *and when the seas boil over,* — **At-Takwir (81:6)**
 <!-- quran-verse-end -->
 
 ---
