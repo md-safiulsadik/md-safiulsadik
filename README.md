@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *theirs shall be gardens of perpetual bliss - [gardens] through which running waters flow - wherein they will be adorned with bracelets of gold and will wear green garments of silk and brocade, [and] wherein upon couches they will recline:" how excellent a recompense, and how goodly a place to rest!* — **Al-Kahf (18:31)**
+> 📖 *whose hearts He has brought together: [for,] if thou hadst expended all that is on earth, thou couldst not have brought their hearts together [by thyself]: but God did bring them together. Verily, He is almighty, wise.* — **Al-Anfaal (8:63)**
 <!-- quran-verse-end -->
 
 ---
