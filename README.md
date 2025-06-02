@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whose hearts He has brought together: [for,] if thou hadst expended all that is on earth, thou couldst not have brought their hearts together [by thyself]: but God did bring them together. Verily, He is almighty, wise.* — **Al-Anfaal (8:63)**
+> 📖 *And once again: evil is bound to be the end of those who do evil by giving the lie to God’s messages and deriding them.* — **Ar-Room (30:10)**
 <!-- quran-verse-end -->
 
 ---
