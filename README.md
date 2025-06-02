@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the night as it veils [the earth] in darkness,* — **Al-Lail (92:1)**
+> 📖 *Thee alone do we worship; and unto Thee alone do we turn for aid.* — **Al-Faatiha (1:5)**
 <!-- quran-verse-end -->
 
 ---
