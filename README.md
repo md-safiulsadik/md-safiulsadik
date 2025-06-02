@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Shall I point out to you a bargain that will save you from grievous suffering [in this world and in the life to come]?* — **As-Saff (61:10)**
+> 📖 *High has He reared its vault and formed it in accordance with what it was meant to be;* — **An-Naazi'aat (79:28)**
 <!-- quran-verse-end -->
 
 ---
