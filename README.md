@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "If you were to own' all the treasure-houses of my Sustainer's bounty, lo! you would still try to hold on [to them] tightly for fear of spending [too much]: for man has always been avaricious [whereas God is limitless in His bounty].* — **Al-Israa (17:100)**
+> 📖 *But if the truth were in accord with their own likes and dislikes, the heavens and the earth would surely have fallen into ruin, and all that lives in them [would long ago have perished]! Nay, [in this divine writ] We have conveyed unto them all that they ought to bear in mind: and from this their reminder they [heedlessly] turn away!* — **Al-Muminoon (23:71)**
 <!-- quran-verse-end -->
 
 ---
