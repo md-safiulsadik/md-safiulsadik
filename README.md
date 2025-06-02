@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *High has He reared its vault and formed it in accordance with what it was meant to be;* — **An-Naazi'aat (79:28)**
+> 📖 *nor is this difficult for God.* — **Faatir (35:17)**
 <!-- quran-verse-end -->
 
 ---
