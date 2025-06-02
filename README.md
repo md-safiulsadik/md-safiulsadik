@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "[God is] He who has brought you [all] into being, and has endowed you with hearing, and sight, and hearts: [yet] how seldom are you grateful!"* — **Al-Mulk (67:23)**
+> 📖 *[And they will be told:] “Eat and drink with good cheer as an outcome of what you were wont to do,* — **At-Tur (52:19)**
 <!-- quran-verse-end -->
 
 ---
