@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Woe on that Day unto those who give the lie to the truth!* — **Al-Mursalaat (77:15)**
+> 📖 *Woe, then, unto those who write down, with their own hands, [something which they claim to be] divine writ, and then say. "This is from God," in order to acquire a trifling gain thereby; woe, then, unto them for what their hands have written, and woe unto them for all that they may have gained!* — **Al-Baqara (2:79)**
 <!-- quran-verse-end -->
 
 ---
