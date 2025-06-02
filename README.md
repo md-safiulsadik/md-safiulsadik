@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[All this will be] a reward from thy Sustainer, a gift in accordance with [His Own] reckoning –* — **An-Naba (78:36)**
+> 📖 *Does he, then, not know that God sees [all]?* — **Al-Alaq (96:14)**
 <!-- quran-verse-end -->
 
 ---
