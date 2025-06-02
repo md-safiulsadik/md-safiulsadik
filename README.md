@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, whatever good thing comes to you, comes from God; and whenever harm befalls you, it is unto Him that you cry for help* — **An-Nahl (16:53)**
+> 📖 *SAY: "[God is] He who has brought you [all] into being, and has endowed you with hearing, and sight, and hearts: [yet] how seldom are you grateful!"* — **Al-Mulk (67:23)**
 <!-- quran-verse-end -->
 
 ---
