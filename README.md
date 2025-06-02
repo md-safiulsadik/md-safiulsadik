@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And once again: evil is bound to be the end of those who do evil by giving the lie to God’s messages and deriding them.* — **Ar-Room (30:10)**
+> 📖 *Woe on that Day unto those who give the lie to the truth!* — **Al-Mursalaat (77:15)**
 <!-- quran-verse-end -->
 
 ---
