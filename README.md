@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And then, he whose weight [of good deeds] is heavy in the balance* — **Al-Qaari'a (101:6)**
+> 📖 *[All this will be] a reward from thy Sustainer, a gift in accordance with [His Own] reckoning –* — **An-Naba (78:36)**
 <!-- quran-verse-end -->
 
 ---
