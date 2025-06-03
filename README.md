@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet God has full knowledge of what they conceal [in their hearts].* — **Al-Inshiqaaq (84:23)**
+> 📖 *Verily, herein lies a message indeed for all who believe [in God].* — **Al-Hijr (15:77)**
 <!-- quran-verse-end -->
 
 ---
