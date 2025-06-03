@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the Day when they shall come forth in haste from their graves, as if racing towards a goal-post,* — **Al-Ma'aarij (70:43)**
+> 📖 *[and such will always be His way with] those who convey God’s messages [to the world], and stand in awe of Him, and hold none but God in awe: for none can take count [of man’s doings] as God does!* — **Al-Ahzaab (33:39)**
 <!-- quran-verse-end -->
 
 ---
