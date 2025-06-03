@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In matters of faith, He has ordained for you that which He had enjoined upon Noah - and into which We gave thee [O Muhammad] insight through revelation as well as that which We had enjoined upon Abraham, and Moses, and Jesus: Steadfastly uphold the [true] faith, and do not break up your unity therein. [And even though] that [unity of faith] to which thou callest them appears oppressive to those who are wont to ascribe to other beings or forces a share in His divinity, God draws unto Himself everyone who is willing, and guides unto Himself everyone who turns unto Him.* — **Ash-Shura (42:13)**
+> 📖 *AND [thus], indeed, did We grace David with Our favour: “O you mountains! Sing with him the praise of God! And [likewise] you birds!” And We softened all sharpness in him,* — **Saba (34:10)**
 <!-- quran-verse-end -->
 
 ---
