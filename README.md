@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and bethink thyself, too, of] the Day on which all [human beings] will in truth hear the final blast - that Day of [their] coming-forth [from death].* — **Qaaf (50:42)**
+> 📖 *And yet, [O believers,] it was not you who slew the enemy, but it was God who slew them; and it was not thou who cast [terror into them, O Prophet], when thou didst cast it, but it was God who cast it: and [He did all this] in order that He might test the believers by a goodly test of His Own or daining. Verily, God is all-hearing, all-knowing!* — **Al-Anfaal (8:17)**
 <!-- quran-verse-end -->
 
 ---
