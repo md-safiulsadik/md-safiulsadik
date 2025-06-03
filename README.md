@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [thus], indeed, did We grace David with Our favour: “O you mountains! Sing with him the praise of God! And [likewise] you birds!” And We softened all sharpness in him,* — **Saba (34:10)**
+> 📖 *or, if thou hast reason to fear treachery from people [with whom thou hast made a covenant], cast it back at them in an equitable manner: for, verily, God does not love the treacherous!* — **Al-Anfaal (8:58)**
 <!-- quran-verse-end -->
 
 ---
