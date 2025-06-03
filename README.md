@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, alas, there has never yet been any community that attained to faith [in its entirety,] and thereupon benefited by its faith, except the people of Jonah. When they came to believe, We removed from them the suffering of disgrace [which otherwise would have befallen them even] in the life of this world, and allowed them to enjoy their life during the time allotted to them.* — **Yunus (10:98)**
+> 📖 *LET MAN, then, observe out of what he has been created:* — **At-Taariq (86:5)**
 <!-- quran-verse-end -->
 
 ---
