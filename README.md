@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BUT WHETHER We let thee see [in thy lifetime, O Prophet, the fulfilment of] some of what We have promised them, or whether We cause thee to die [before its fulfilment] - thy duty is no more than to deliver the message; and the reckoning is Ours.* — **Ar-Ra'd (13:40)**
+> 📖 *In matters of faith, He has ordained for you that which He had enjoined upon Noah - and into which We gave thee [O Muhammad] insight through revelation as well as that which We had enjoined upon Abraham, and Moses, and Jesus: Steadfastly uphold the [true] faith, and do not break up your unity therein. [And even though] that [unity of faith] to which thou callest them appears oppressive to those who are wont to ascribe to other beings or forces a share in His divinity, God draws unto Himself everyone who is willing, and guides unto Himself everyone who turns unto Him.* — **Ash-Shura (42:13)**
 <!-- quran-verse-end -->
 
 ---
