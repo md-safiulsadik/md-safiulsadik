@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O MAN! What is it that lures thee away from thy bountiful Sustainer,* — **Al-Infitaar (82:6)**
+> 📖 *therein to abide beyond the count of time: no protec­tor will they find, and none to bring them succour.* — **Al-Ahzaab (33:65)**
 <!-- quran-verse-end -->
 
 ---
