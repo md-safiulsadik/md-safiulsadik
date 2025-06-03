@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and such will always be His way with] those who convey God’s messages [to the world], and stand in awe of Him, and hold none but God in awe: for none can take count [of man’s doings] as God does!* — **Al-Ahzaab (33:39)**
+> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:61)**
 <!-- quran-verse-end -->
 
 ---
