@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *therein to abide beyond the count of time: no protec­tor will they find, and none to bring them succour.* — **Al-Ahzaab (33:65)**
+> 📖 *Yet God has full knowledge of what they conceal [in their hearts].* — **Al-Inshiqaaq (84:23)**
 <!-- quran-verse-end -->
 
 ---
