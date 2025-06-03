@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet God has full knowledge of what they conceal [in their hearts].* — **Al-Inshiqaaq (84:23)**
+> 📖 *until you go down to your graves.* — **At-Takaathur (102:2)**
 <!-- quran-verse-end -->
 
 ---
