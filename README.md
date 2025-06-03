@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yea, everyone of them claims that he [himself] ought to have been given revelations unfolded!* — **Al-Muddaththir (74:52)**
+> 📖 *O MAN! What is it that lures thee away from thy bountiful Sustainer,* — **Al-Infitaar (82:6)**
 <!-- quran-verse-end -->
 
 ---
