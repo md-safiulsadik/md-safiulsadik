@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *or, if thou hast reason to fear treachery from people [with whom thou hast made a covenant], cast it back at them in an equitable manner: for, verily, God does not love the treacherous!* — **Al-Anfaal (8:58)**
+> 📖 *the Day when they shall come forth in haste from their graves, as if racing towards a goal-post,* — **Al-Ma'aarij (70:43)**
 <!-- quran-verse-end -->
 
 ---
