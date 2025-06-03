@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but my call has only caused them to flee farther and farther away [from Thee].* — **Nooh (71:6)**
+> 📖 *BUT NAY! I call to witness the sunset's [fleeting] afterglow,* — **Al-Inshiqaaq (84:16)**
 <!-- quran-verse-end -->
 
 ---
