@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:61)**
+> 📖 *but my call has only caused them to flee farther and farther away [from Thee].* — **Nooh (71:6)**
 <!-- quran-verse-end -->
 
 ---
