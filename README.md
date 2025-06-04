@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet they say, “Why have no miraculous signs ever been bestowed upon him from on high by his Sustainer?” Say: “Miracles are in the power of God alone; and as for me - I am but a plain warner.”* — **Al-Ankaboot (29:50)**
+> 📖 *Behold, [in his earthly life] he lived joyfully among people of his own kind* — **Al-Inshiqaaq (84:13)**
 <!-- quran-verse-end -->
 
 ---
