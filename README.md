@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what that crushing torment will be?* — **Al-Humaza (104:5)**
+> 📖 *and who brings forth herbage,* — **Al-A'laa (87:4)**
 <!-- quran-verse-end -->
 
 ---
