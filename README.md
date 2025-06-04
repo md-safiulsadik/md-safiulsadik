@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And nothing has prevented Us from sending [this message, like the earlier ones,] with miraculous signs [in its wake], save [Our knowledge] that the people of olden times [only too often] gave the lie to them: thus, We provided for [the tribe of] Thamud the she-camel as a light-giving portent, and they sinned against it. And never did We send those signs for any other purpose than to convey a warning.* — **Al-Israa (17:59)**
+> 📖 *Tell those who are bent on denying the truth that if they desist, all that is past shall be forgiven them; but if they revert [to their wrongdoing], let them remember what happened to the like of them in times gone by.* — **Al-Anfaal (8:38)**
 <!-- quran-verse-end -->
 
 ---
