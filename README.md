@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THE PARABLE of those who were graced with the burden of the Torah, and thereafter failed to bear this burden, is that of an ass that carries a load of books [but cannot benefit from them]. Calamitous is the parable of people who are bent on giving the lie to God's messages - for God does not bestow His guidance upon such evildoing folk!* — **Al-Jumu'a (62:5)**
+> 📖 *And yet they say, “Why have no miraculous signs ever been bestowed upon him from on high by his Sustainer?” Say: “Miracles are in the power of God alone; and as for me - I am but a plain warner.”* — **Al-Ankaboot (29:50)**
 <!-- quran-verse-end -->
 
 ---
