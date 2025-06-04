@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Never will they fight you, [even] in unison, otherwise than from within fortified strongholds or from behind walls. Severe is their warlike discord among themselves: thou wouldst think that they are united, whereas [in fact] their hearts are at odds [with one another]: this, because they are people who will not use their reason.* — **Al-Hashr (59:14)**
+> 📖 *They have made their oaths a cover [for their falseness], and thus they turn others away from the Path of God. Evil indeed is all that they are wont to do:* — **Al-Munaafiqoon (63:2)**
 <!-- quran-verse-end -->
 
 ---
