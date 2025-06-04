@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the mountains will be like fluffy tufts of wool....* — **Al-Qaari'a (101:5)**
+> 📖 *and food that chokes, and grievous suffering* — **Al-Muzzammil (73:13)**
 <!-- quran-verse-end -->
 
 ---
