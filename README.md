@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For the Day of Distinction [between the true and the false]!* — **Al-Mursalaat (77:13)**
+> 📖 *Even as We have sent unto you an apostle from among yourselves to convey unto you Our messages, and to cause you to grow in purity, and to impart unto you revelation and wisdom, and to teach you that which you knew not:* — **Al-Baqara (2:151)**
 <!-- quran-verse-end -->
 
 ---
