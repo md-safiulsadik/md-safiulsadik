@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Zachariah] prayed: "O my Sustainer! Appoint a sign for me!" Said [the angel]: "Thy sign shall be that for full three nights [and days] thou wilt not speak unto men.* — **Maryam (19:10)**
+> 📖 *extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.* — **An-Nasr (110:3)**
 <!-- quran-verse-end -->
 
 ---
