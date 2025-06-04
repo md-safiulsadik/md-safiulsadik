@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, [in his earthly life] he lived joyfully among people of his own kind* — **Al-Inshiqaaq (84:13)**
+> 📖 *HAST THOU ever considered him who tries to prevent* — **Al-Alaq (96:9)**
 <!-- quran-verse-end -->
 
 ---
