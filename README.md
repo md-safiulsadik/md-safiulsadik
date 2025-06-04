@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who brings forth herbage,* — **Al-A'laa (87:4)**
+> 📖 *OH, VERILY, unto God belongs whoever is in the heavens and whoever is on earth: hence, what is it that they follow-those who invoke, beside God. beings to whom they ascribe a share in His divinity? They follow but the conjectures [of others], and themselves do nothing but guess -* — **Yunus (10:66)**
 <!-- quran-verse-end -->
 
 ---
