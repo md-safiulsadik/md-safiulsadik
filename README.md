@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then he frowns and glares,* — **Al-Muddaththir (74:22)**
+> 📖 *[Zachariah] prayed: "O my Sustainer! Appoint a sign for me!" Said [the angel]: "Thy sign shall be that for full three nights [and days] thou wilt not speak unto men.* — **Maryam (19:10)**
 <!-- quran-verse-end -->
 
 ---
