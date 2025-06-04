@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAST THOU ever considered him who tries to prevent* — **Al-Alaq (96:9)**
+> 📖 *And what could make thee conceive what that crushing torment will be?* — **Al-Humaza (104:5)**
 <!-- quran-verse-end -->
 
 ---
