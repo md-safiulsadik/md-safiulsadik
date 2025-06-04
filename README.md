@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *OH, VERILY, unto God belongs whoever is in the heavens and whoever is on earth: hence, what is it that they follow-those who invoke, beside God. beings to whom they ascribe a share in His divinity? They follow but the conjectures [of others], and themselves do nothing but guess -* — **Yunus (10:66)**
+> 📖 *and you cannot elude Him on earth, and you will have none to protect you from God [in the life to come], and none to bring you succour.* — **Ash-Shura (42:31)**
 <!-- quran-verse-end -->
 
 ---
