@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and so he chose the right means [in whatever he did].* — **Al-Kahf (18:85)**
+> 📖 *Never will they fight you, [even] in unison, otherwise than from within fortified strongholds or from behind walls. Severe is their warlike discord among themselves: thou wouldst think that they are united, whereas [in fact] their hearts are at odds [with one another]: this, because they are people who will not use their reason.* — **Al-Hashr (59:14)**
 <!-- quran-verse-end -->
 
 ---
