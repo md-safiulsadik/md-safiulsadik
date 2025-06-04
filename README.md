@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *seeing that we are, verily, a nation united, fully prepared against danger –* — **Ash-Shu'araa (26:56)**
+> 📖 *and the mountains will be like fluffy tufts of wool....* — **Al-Qaari'a (101:5)**
 <!-- quran-verse-end -->
 
 ---
