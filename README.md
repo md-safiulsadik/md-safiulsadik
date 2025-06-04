@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Even as We have sent unto you an apostle from among yourselves to convey unto you Our messages, and to cause you to grow in purity, and to impart unto you revelation and wisdom, and to teach you that which you knew not:* — **Al-Baqara (2:151)**
+> 📖 *seeing that we are, verily, a nation united, fully prepared against danger –* — **Ash-Shu'araa (26:56)**
 <!-- quran-verse-end -->
 
 ---
