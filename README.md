@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whose hearts from their prayer are remote* — **Al-Maa'un (107:5)**
+> 📖 *But when he came close to it, a voice called out: "O Moses!* — **Taa-Haa (20:11)**
 <!-- quran-verse-end -->
 
 ---
