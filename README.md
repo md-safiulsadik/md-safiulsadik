@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and will [be able to] turn joyfully to those of his own kind.* — **Al-Inshiqaaq (84:9)**
+> 📖 *What, then, is amiss with them that they will not believe [in a life to come]?* — **Al-Inshiqaaq (84:20)**
 <!-- quran-verse-end -->
 
 ---
