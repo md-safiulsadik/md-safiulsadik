@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But when he came close to it, a voice called out: "O Moses!* — **Taa-Haa (20:11)**
+> 📖 *Yet they were succeeded by generations [of people] who lost all [thought of] prayer and followed [but] their own lusts; and these will, in time, meet with utter disillusion.* — **Maryam (19:59)**
 <!-- quran-verse-end -->
 
 ---
