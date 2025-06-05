@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and has caused its waters to come out of it, and its pastures,* — **An-Naazi'aat (79:31)**
+> 📖 *And if all the trees on earth were pens, and the sea [were] ink, with seven [morel seas yet added to it, the words of God would not be exhausted: for, verily, God is almighty, wise.* — **Luqman (31:27)**
 <!-- quran-verse-end -->
 
 ---
