@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“[As for me,] why should I not worship Him who has brought me into being, and to whom you all will be brought back?* — **Yaseen (36:22)**
+> 📖 *BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.* — **Al-Qadr (97:1)**
 <!-- quran-verse-end -->
 
 ---
