@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He will shower upon you heavenly blessings abundant,* — **Nooh (71:11)**
+> 📖 *and yet overtake [one another] with swift overtaking:* — **An-Naazi'aat (79:4)**
 <!-- quran-verse-end -->
 
 ---
