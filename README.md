@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider these [messages] that spread [the truth] far and wide,* — **Al-Mursalaat (77:3)**
+> 📖 *“[As for me,] why should I not worship Him who has brought me into being, and to whom you all will be brought back?* — **Yaseen (36:22)**
 <!-- quran-verse-end -->
 
 ---
