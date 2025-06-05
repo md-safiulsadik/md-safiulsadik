@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He knows all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind -the Great One, the One far above anything that is or could ever be!* — **Ar-Ra'd (13:9)**
+> 📖 *Consider these [messages] that spread [the truth] far and wide,* — **Al-Mursalaat (77:3)**
 <!-- quran-verse-end -->
 
 ---
