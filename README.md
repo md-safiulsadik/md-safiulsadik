@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“O my dear son! Be constant in prayer, and enjoin the doing of what is right and forbid the doing of what is wrong, and bear in patience whatever [ill] may befall thee: this, behold, is something to set one’s heart upon!* — **Luqman (31:17)**
+> 📖 *O YOU who have attained to faith! Spend [in Our way] out of what We have granted you as sustenance ere there come a Day when there will be no bargaining, and no friendship, and no intercession. And they who deny the truth -it is they who are evildoers!* — **Al-Baqara (2:254)**
 <!-- quran-verse-end -->
 
 ---
