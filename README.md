@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *EXHORT, then, [O Prophet, all men:] for, by thy Sustainer’s grace, thou art neither a soothsayer nor a madman.* — **At-Tur (52:29)**
+> 📖 *and their prayers before the Temple are nothing but whistling and clapping of hands. Taste then, [O unbelievers,] this chastisement as an outcome of your persistent denial of the truth!* — **Al-Anfaal (8:35)**
 <!-- quran-verse-end -->
 
 ---
