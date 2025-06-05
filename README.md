@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet they were succeeded by generations [of people] who lost all [thought of] prayer and followed [but] their own lusts; and these will, in time, meet with utter disillusion.* — **Maryam (19:59)**
+> 📖 *Ha. Mim.* — **Al-Ahqaf (46:1)**
 <!-- quran-verse-end -->
 
 ---
