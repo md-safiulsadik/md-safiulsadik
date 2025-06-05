@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and their prayers before the Temple are nothing but whistling and clapping of hands. Taste then, [O unbelievers,] this chastisement as an outcome of your persistent denial of the truth!* — **Al-Anfaal (8:35)**
+> 📖 *He will shower upon you heavenly blessings abundant,* — **Nooh (71:11)**
 <!-- quran-verse-end -->
 
 ---
