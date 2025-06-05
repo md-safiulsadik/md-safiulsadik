@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [have We not] raised thee high in dignity?* — **Ash-Sharh (94:4)**
+> 📖 *and has caused its waters to come out of it, and its pastures,* — **An-Naazi'aat (79:31)**
 <!-- quran-verse-end -->
 
 ---
