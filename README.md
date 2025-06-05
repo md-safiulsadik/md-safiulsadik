@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Spend [in Our way] out of what We have granted you as sustenance ere there come a Day when there will be no bargaining, and no friendship, and no intercession. And they who deny the truth -it is they who are evildoers!* — **Al-Baqara (2:254)**
+> 📖 *For, no true understanding of God have they when they say, "Never has God revealed anything unto man." Say: "Who has bestowed from on high the divine writ which Moses brought unto men as a light and a guidance, [and] which you treat as [mere] leaves of paper, making a show of them the while you conceal [so] much - although you have been taught [by it] what neither you nor your forefathers had ever known?" Say: "God [has revealed that divine writ]!" - and then leave them to play at their vain talk.* — **Al-An'aam (6:91)**
 <!-- quran-verse-end -->
 
 ---
