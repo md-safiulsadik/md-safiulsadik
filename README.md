@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] it is in no wise for thee [O Prophet] to decide whether He shall accept their repentance or chastise them - for, behold, they are but wrongdoers,* — **Aal-i-Imraan (3:128)**
+> 📖 *and [when] the earth yields up her burdens,* — **Az-Zalzala (99:2)**
 <!-- quran-verse-end -->
 
 ---
