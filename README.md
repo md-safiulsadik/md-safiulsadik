@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what that sudden calamity will be?* — **Al-Qaari'a (101:3)**
+> 📖 *of fire fiercely burning [for all who have attained to faith]!* — **Al-Burooj (85:5)**
 <!-- quran-verse-end -->
 
 ---
