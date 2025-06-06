@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] some faces will on that Day shine with bliss,* — **Al-Ghaashiya (88:8)**
+> 📖 *Verily, they who are bent on denying the truth of this reminder as soon as it comes to them - [they are the losers]: for, behold, it is a sublime divine writ:* — **Fussilat (41:41)**
 <!-- quran-verse-end -->
 
 ---
