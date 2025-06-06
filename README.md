@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "I seek refuge with the Sustainer of the rising dawn,* — **Al-Falaq (113:1)**
+> 📖 *And down fell the sorcerers, prostrating themselves* — **Al-A'raaf (7:120)**
 <!-- quran-verse-end -->
 
 ---
