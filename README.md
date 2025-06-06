@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, await in patience thy Sustainer’s judgment, for thou art well within Our sight. And extol thy Sustainer’s limitless glory and praise whenever thou risest up,* — **At-Tur (52:48)**
+> 📖 *VERILY, in the Apostle of God you have a good example for everyone who looks forward [with hope and awe] to God and the Last Day, and remembers God unceasingly.* — **Al-Ahzaab (33:21)**
 <!-- quran-verse-end -->
 
 ---
