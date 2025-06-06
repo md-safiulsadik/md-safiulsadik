@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *of fire fiercely burning [for all who have attained to faith]!* — **Al-Burooj (85:5)**
+> 📖 *but my call has only caused them to flee farther and farther away [from Thee].* — **Nooh (71:6)**
 <!-- quran-verse-end -->
 
 ---
