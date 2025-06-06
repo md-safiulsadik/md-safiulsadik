@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but my call has only caused them to flee farther and farther away [from Thee].* — **Nooh (71:6)**
+> 📖 *YOU ARE OBSESSED by greed for more and more* — **At-Takaathur (102:1)**
 <!-- quran-verse-end -->
 
 ---
