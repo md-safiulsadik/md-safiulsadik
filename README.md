@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND HOW MANY a community has turned with disdain from the commandment of its Sustainer and His apostles! -whereupon We callled them all to account with an accounting severe, and caused them to suffer with a suffering unnameable:* — **At-Talaaq (65:8)**
+> 📖 *For those who are bent on denying the truth God has propounded a parable in [the stories of] Noah's wife and Lot's wife: they were wedded to two of Our righteous servants, and each one betrayed her husband; and neither of the two [husbands] will be of any avail to these two women when they are told [on Judgment Day], "Enter the fire with all those [other sinners] who enter it!"* — **At-Tahrim (66:10)**
 <!-- quran-verse-end -->
 
 ---
