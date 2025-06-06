@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Do not ask about matters which, if they were to be made manifest to you [in terms of law], might cause you hardship; for, if you should ask about them while the Qur'an is being revealed, they might [indeed] be made manifest to you [as laws]. God has absolved [you from any obligation] in this respect: for God is much-forgiving, forbearing.* — **Al-Maaida (5:101)**
+> 📖 *AND HOW MANY a community has turned with disdain from the commandment of its Sustainer and His apostles! -whereupon We callled them all to account with an accounting severe, and caused them to suffer with a suffering unnameable:* — **At-Talaaq (65:8)**
 <!-- quran-verse-end -->
 
 ---
