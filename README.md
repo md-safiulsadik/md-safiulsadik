@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [when] the earth yields up her burdens,* — **Az-Zalzala (99:2)**
+> 📖 *[And] some faces will on that Day shine with bliss,* — **Al-Ghaashiya (88:8)**
 <!-- quran-verse-end -->
 
 ---
