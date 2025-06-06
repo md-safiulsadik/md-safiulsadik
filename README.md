@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Ha. Mim.* — **Al-Ahqaf (46:1)**
+> 📖 *And so, await in patience thy Sustainer’s judgment, for thou art well within Our sight. And extol thy Sustainer’s limitless glory and praise whenever thou risest up,* — **At-Tur (52:48)**
 <!-- quran-verse-end -->
 
 ---
