@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the mountains are made to vanish as if they had been a mirage.* — **An-Naba (78:20)**
+> 📖 *As for that [happy] life in the hereafter, We grant it [only] to those who do not seek to exalt themselves on earth, nor yet to spread corruption: for the future belongs to the God-conscious.* — **Al-Qasas (28:83)**
 <!-- quran-verse-end -->
 
 ---
