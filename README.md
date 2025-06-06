@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *YOU ARE OBSESSED by greed for more and more* — **At-Takaathur (102:1)**
+> 📖 *[And] it is in no wise for thee [O Prophet] to decide whether He shall accept their repentance or chastise them - for, behold, they are but wrongdoers,* — **Aal-i-Imraan (3:128)**
 <!-- quran-verse-end -->
 
 ---
