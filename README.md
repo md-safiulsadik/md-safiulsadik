@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and caused the earth to burst forth with springs, so that the waters met for a purpose pre-ordained:* — **Al-Qamar (54:12)**
+> 📖 *And what could make thee conceive what that sudden calamity will be?* — **Al-Qaari'a (101:3)**
 <!-- quran-verse-end -->
 
 ---
