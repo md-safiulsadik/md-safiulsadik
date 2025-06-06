@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, they who are bent on denying the truth of this reminder as soon as it comes to them - [they are the losers]: for, behold, it is a sublime divine writ:* — **Fussilat (41:41)**
+> 📖 *SAY: "I seek refuge with the Sustainer of the rising dawn,* — **Al-Falaq (113:1)**
 <!-- quran-verse-end -->
 
 ---
