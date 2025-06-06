@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *As for that [happy] life in the hereafter, We grant it [only] to those who do not seek to exalt themselves on earth, nor yet to spread corruption: for the future belongs to the God-conscious.* — **Al-Qasas (28:83)**
+> 📖 *O YOU who have attained to faith! Do not ask about matters which, if they were to be made manifest to you [in terms of law], might cause you hardship; for, if you should ask about them while the Qur'an is being revealed, they might [indeed] be made manifest to you [as laws]. God has absolved [you from any obligation] in this respect: for God is much-forgiving, forbearing.* — **Al-Maaida (5:101)**
 <!-- quran-verse-end -->
 
 ---
