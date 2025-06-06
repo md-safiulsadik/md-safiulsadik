@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and splendid companions well matched,* — **An-Naba (78:33)**
+> 📖 *and when the mountains are made to vanish as if they had been a mirage.* — **An-Naba (78:20)**
 <!-- quran-verse-end -->
 
 ---
