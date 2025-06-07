@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but as for those who abandon themselves to wrongdoing - they are indeed but fuel for [the fires of] hell!’"* — **Al-Jinn (72:15)**
+> 📖 *And so, on that Day their excuse will be of no avail to those who were bent on evildoing, nor will they be allowed to make amends.* — **Ar-Room (30:57)**
 <!-- quran-verse-end -->
 
 ---
