@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *they who are true to their bond with God and never break their covenant;* — **Ar-Ra'd (13:20)**
+> 📖 *And who could be more wicked than one who invents [such] a lie about [a message from] God, seeing that he is [but] being called to self-surrender unto Him? But God does not bestow His guidance upon evil-doing folk.* — **As-Saff (61:7)**
 <!-- quran-verse-end -->
 
 ---
