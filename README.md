@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, on that Day their excuse will be of no avail to those who were bent on evildoing, nor will they be allowed to make amends.* — **Ar-Room (30:57)**
+> 📖 *[And] some faces will on that Day shine with bliss,* — **Al-Ghaashiya (88:8)**
 <!-- quran-verse-end -->
 
 ---
