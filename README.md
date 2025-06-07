@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, [in the life to come,] all shall have their degrees in accordance with whatever [good or evil] they did: and so, He will repay them in full for their doings, and none shall be wronged.* — **Al-Ahqaf (46:19)**
+> 📖 *and has caused its waters to come out of it, and its pastures,* — **An-Naazi'aat (79:31)**
 <!-- quran-verse-end -->
 
 ---
