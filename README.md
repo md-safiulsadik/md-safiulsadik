@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“Nay,” they say, “[Muhammad propounds] the most involved and confusing of dreams!” “Nay, but he has invented [all] this!” - “Nay, but he is [only] a poet!” - [and,] “Let him, then, come unto us with a miracle, just as those [prophets] of old were sent [with miracles]?”* — **Al-Anbiyaa (21:5)**
+> 📖 *"and from the evil of the black darkness whenever it descends,* — **Al-Falaq (113:3)**
 <!-- quran-verse-end -->
 
 ---
