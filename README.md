@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And on the morrow, those who but yesterday had longed to be in his place exclaimed: “Alas [for our not having been aware] that it is indeed God [alone] who grants abundant sustenance, or gives it in scant measure, unto whichever He wills of His crea­tures! Had not God been gracious to us, He might have caused [the earth] to swallow us, too! Alas [for our having forgotten] that those who deny the truth can never attain to a happy state!”* — **Al-Qasas (28:82)**
+> 📖 *for, [in the life to come,] all shall have their degrees in accordance with whatever [good or evil] they did: and so, He will repay them in full for their doings, and none shall be wronged.* — **Al-Ahqaf (46:19)**
 <!-- quran-verse-end -->
 
 ---
