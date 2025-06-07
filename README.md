@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereupon causes it to decay into rust-brown stubble!* — **Al-A'laa (87:5)**
+> 📖 *and never yet came an apostle to them without their deriding him.* — **Al-Hijr (15:11)**
 <!-- quran-verse-end -->
 
 ---
