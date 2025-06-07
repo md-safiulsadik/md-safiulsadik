@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, [in the life to come,] all shall have their degrees in accordance with whatever [good or evil] they did: and so, He will repay them in full for their doings, and none shall be wronged.* — **Al-Ahqaf (46:19)**
+> 📖 *in God’s succour: [for] He gives suc­cour to whomever He wills, since He alone is almighty, a dispenser of grace.* — **Ar-Room (30:5)**
 <!-- quran-verse-end -->
 
 ---
