@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [then bethink thyself of] the promised Day,* — **Al-Burooj (85:2)**
+> 📖 *for, [in the life to come,] all shall have their degrees in accordance with whatever [good or evil] they did: and so, He will repay them in full for their doings, and none shall be wronged.* — **Al-Ahqaf (46:19)**
 <!-- quran-verse-end -->
 
 ---
