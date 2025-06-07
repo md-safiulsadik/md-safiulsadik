@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *in God’s succour: [for] He gives suc­cour to whomever He wills, since He alone is almighty, a dispenser of grace.* — **Ar-Room (30:5)**
+> 📖 *And We send [Our] message-bearers only as heralds of glad tidings and as warners: hence, all who believe and live righteously -no fear need they have, and neither shall they grieve;* — **Al-An'aam (6:48)**
 <!-- quran-verse-end -->
 
 ---
