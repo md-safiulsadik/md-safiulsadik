@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and yet, they [who are bent on denying the truth] assert, “[Muhammad] has invented it!” Nay, but it is the truth from thy Sustainer, enabling thee to warn [this] people to whom no warner has come before thee, so that they might follow the right path.* — **As-Sajda (32:3)**
+> 📖 *[It will be] a Day when no human being shall be of the least avail to another human being: for on that Day [it will become manifest that] all sovereignty is God's alone.* — **Al-Infitaar (82:19)**
 <!-- quran-verse-end -->
 
 ---
