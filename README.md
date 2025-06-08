@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God annuls or confirms whatever He wills [of His earlier messages] -for with Him is the source of all revelation.* — **Ar-Ra'd (13:39)**
+> 📖 *they would lie asleep during but a small part of the night,* — **Adh-Dhaariyat (51:17)**
 <!-- quran-verse-end -->
 
 ---
