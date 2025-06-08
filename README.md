@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[It will be] a Day when no human being shall be of the least avail to another human being: for on that Day [it will become manifest that] all sovereignty is God's alone.* — **Al-Infitaar (82:19)**
+> 📖 *Thereupon the angels prostrated themselves, all of them together,* — **Saad (38:73)**
 <!-- quran-verse-end -->
 
 ---
