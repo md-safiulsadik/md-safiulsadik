@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas, whenever He tries him by straitening his means of livelihood, he says, "My Sustainer has disgraced me!"* — **Al-Fajr (89:16)**
+> 📖 *Lo! God said: "O Jesus! Verily, I shall cause thee to die, and shall exalt thee unto Me, and cleanse thee of [the presence of] those who are bent on denying the truth; and I shall place those who follow thee [far] above those who are bent on denying the truth, unto the Day of Resurrection. In the end, unto Me you all must return, and I shall judge between you with regard to all on which you were wont to differ.* — **Aal-i-Imraan (3:55)**
 <!-- quran-verse-end -->
 
 ---
