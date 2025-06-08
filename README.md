@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THUS, INDEED, have We propounded unto men all kinds of parables in this Qur’an, so that they might bethink themselves; [and We have revealed it]* — **Az-Zumar (39:27)**
+> 📖 *and those that speed along with gentle ease,* — **Adh-Dhaariyat (51:3)**
 <!-- quran-verse-end -->
 
 ---
