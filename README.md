@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and those that speed along with gentle ease,* — **Adh-Dhaariyat (51:3)**
+> 📖 *And His alone is all majesty in the heavens and on earth; and He alone is almighty, truly wise!* — **Al-Jaathiya (45:37)**
 <!-- quran-verse-end -->
 
 ---
