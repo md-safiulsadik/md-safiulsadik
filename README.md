@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so as to make manifest that it is indeed [but] their Sustainer's messages that these [apostles] deliver: for it is He who encompasses [with His knowledge] all that they have [to say], just as He takes count, one by one, of everything [that exists].* — **Al-Jinn (72:28)**
+> 📖 *“O my people! This worldly life is but a brief enjoyment, whereas, behold, the life to come is the home abiding.* — **Ghafir (40:39)**
 <!-- quran-verse-end -->
 
 ---
