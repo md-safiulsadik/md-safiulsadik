@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“O my people! This worldly life is but a brief enjoyment, whereas, behold, the life to come is the home abiding.* — **Ghafir (40:39)**
+> 📖 *whereas, whenever He tries him by straitening his means of livelihood, he says, "My Sustainer has disgraced me!"* — **Al-Fajr (89:16)**
 <!-- quran-verse-end -->
 
 ---
