@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Why do not their men of God and their rabbis forbid them to make sinful assertions and to swallow all that is evil? Vile indeed is what they contrive!* — **Al-Maaida (5:63)**
+> 📖 *And He it is who makes the night a garment for you, and [your] sleep a rest, and causes every [new] day to be a resurrection.* — **Al-Furqaan (25:47)**
 <!-- quran-verse-end -->
 
 ---
