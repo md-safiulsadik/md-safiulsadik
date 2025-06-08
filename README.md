@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and from the evil of the envious when he envies."* — **Al-Falaq (113:5)**
+> 📖 *Why do not their men of God and their rabbis forbid them to make sinful assertions and to swallow all that is evil? Vile indeed is what they contrive!* — **Al-Maaida (5:63)**
 <!-- quran-verse-end -->
 
 ---
