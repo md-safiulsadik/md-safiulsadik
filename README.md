@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thereupon the angels prostrated themselves, all of them together,* — **Saad (38:73)**
+> 📖 *or should We, perchance, treat those who surrender themselves unto Us as [We would treat] those who remain lost in sin?* — **Al-Qalam (68:35)**
 <!-- quran-verse-end -->
 
 ---
