@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And His alone is all majesty in the heavens and on earth; and He alone is almighty, truly wise!* — **Al-Jaathiya (45:37)**
+> 📖 *For, none can make suffer as He will make suffer [the sinners] on that Day,* — **Al-Fajr (89:25)**
 <!-- quran-verse-end -->
 
 ---
