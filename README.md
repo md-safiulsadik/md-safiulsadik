@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Lo! God said: "O Jesus! Verily, I shall cause thee to die, and shall exalt thee unto Me, and cleanse thee of [the presence of] those who are bent on denying the truth; and I shall place those who follow thee [far] above those who are bent on denying the truth, unto the Day of Resurrection. In the end, unto Me you all must return, and I shall judge between you with regard to all on which you were wont to differ.* — **Aal-i-Imraan (3:55)**
+> 📖 *and caused the earth to burst forth with springs, so that the waters met for a purpose pre-ordained:* — **Al-Qamar (54:12)**
 <!-- quran-verse-end -->
 
 ---
