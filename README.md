@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *or should We, perchance, treat those who surrender themselves unto Us as [We would treat] those who remain lost in sin?* — **Al-Qalam (68:35)**
+> 📖 *But God did not choose thus to chastise them whip thou [O Prophet] wert still among them, nor would God chastise them when they [might yet] ask for forgiveness.* — **Al-Anfaal (8:33)**
 <!-- quran-verse-end -->
 
 ---
