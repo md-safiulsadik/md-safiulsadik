@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And He it is who makes the night a garment for you, and [your] sleep a rest, and causes every [new] day to be a resurrection.* — **Al-Furqaan (25:47)**
+> 📖 *so as to make manifest that it is indeed [but] their Sustainer's messages that these [apostles] deliver: for it is He who encompasses [with His knowledge] all that they have [to say], just as He takes count, one by one, of everything [that exists].* — **Al-Jinn (72:28)**
 <!-- quran-verse-end -->
 
 ---
