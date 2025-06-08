@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and man cries out, "What has happened to her?" -* — **Az-Zalzala (99:3)**
+> 📖 *God annuls or confirms whatever He wills [of His earlier messages] -for with Him is the source of all revelation.* — **Ar-Ra'd (13:39)**
 <!-- quran-verse-end -->
 
 ---
