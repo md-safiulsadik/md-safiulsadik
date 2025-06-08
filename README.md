@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[O YOU who deny the truth!] Should We, perchance, withdraw this reminder from you altogether, seeing that you are people bent on wasting your own selves?* — **Az-Zukhruf (43:5)**
+> 📖 *THUS, INDEED, have We propounded unto men all kinds of parables in this Qur’an, so that they might bethink themselves; [and We have revealed it]* — **Az-Zumar (39:27)**
 <!-- quran-verse-end -->
 
 ---
