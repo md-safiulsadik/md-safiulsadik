@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *they would lie asleep during but a small part of the night,* — **Adh-Dhaariyat (51:17)**
+> 📖 *But those among them who were bent on wrongdoing substituted another saying for that which they had been given: and so We let loose against them a plague from heaven in requital of all their evil doings.* — **Al-A'raaf (7:162)**
 <!-- quran-verse-end -->
 
 ---
