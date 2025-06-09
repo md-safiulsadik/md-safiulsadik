@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and he who shall have done an atom's weight of evil, shall behold it.* — **Az-Zalzala (99:8)**
+> 📖 *How could it be that He who has created [all] should not know [all]? Yea, He alone is unfathomable [in His wisdom], aware!* — **Al-Mulk (67:14)**
 <!-- quran-verse-end -->
 
 ---
