@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND WHEN the messengers [of God] came to the house of Lot,* — **Al-Hijr (15:61)**
+> 📖 *If you are ingrate behold, God has no need of you; none the less, He does not approve of in­gratitude in His servants: whereas, if you show grati­tude, He approves it in you. And no bearer of burdens shall be made to bear another’s burden. In time, unto your Sustainer you all must return, and then He will make you [truly] understand all that you were doing [in life]: for, verily, He has full knowledge of what is in the hearts [of men].* — **Az-Zumar (39:7)**
 <!-- quran-verse-end -->
 
 ---
