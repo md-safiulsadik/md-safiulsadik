@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who brings forth herbage,* — **Al-A'laa (87:4)**
+> 📖 *pouring forth with a fragrance of musk. To that [wine of paradise], then, let all such aspire as [are willing to] aspire to things of high account:* — **Al-Mutaffifin (83:26)**
 <!-- quran-verse-end -->
 
 ---
