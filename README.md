@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, when they are told, "Come, the Apostle of God will pray [unto God] that you be forgiven", they turn their heads away, and thou canst see how they draw back in their false pride.* — **Al-Munaafiqoon (63:5)**
+> 📖 *And once again: Nay, in time you will come to understand!* — **At-Takaathur (102:4)**
 <!-- quran-verse-end -->
 
 ---
