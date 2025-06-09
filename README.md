@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *pouring forth with a fragrance of musk. To that [wine of paradise], then, let all such aspire as [are willing to] aspire to things of high account:* — **Al-Mutaffifin (83:26)**
+> 📖 *and he who shall have done an atom's weight of evil, shall behold it.* — **Az-Zalzala (99:8)**
 <!-- quran-verse-end -->
 
 ---
