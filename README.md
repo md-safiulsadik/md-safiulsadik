@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“Verily, God is my Sustainer as well as your Sustainer; so worship [none but] Him: this [alone] is a straight way!”* — **Az-Zukhruf (43:64)**
+> 📖 *for, when they are told, "Come, the Apostle of God will pray [unto God] that you be forgiven", they turn their heads away, and thou canst see how they draw back in their false pride.* — **Al-Munaafiqoon (63:5)**
 <!-- quran-verse-end -->
 
 ---
