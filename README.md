@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But those among them who were bent on wrongdoing substituted another saying for that which they had been given: and so We let loose against them a plague from heaven in requital of all their evil doings.* — **Al-A'raaf (7:162)**
+> 📖 *[the Day] on which the skies shall be rent asunder, [and] His promise [of resurrection] fulfilled?* — **Al-Muzzammil (73:18)**
 <!-- quran-verse-end -->
 
 ---
