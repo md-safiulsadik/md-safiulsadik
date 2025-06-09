@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "O you who deny the truth!* — **Al-Kaafiroon (109:1)**
+> 📖 *If thou couldst but see [how it will be on Judgment Day], when those who are lost in sin will hang their heads before their Sustainer, [saying:] “O our Sustainer! [Now] we have seen, and we have heard! Return us, then, [to our earthly life] that we may do good deeds: for [now], behold, we are certain [of the truth]!”* — **As-Sajda (32:12)**
 <!-- quran-verse-end -->
 
 ---
