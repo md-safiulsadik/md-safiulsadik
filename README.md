@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so she said to his sister, “Follow him” - and [the girl] watched him from afar, while they [who had taken him in] were not aware of it,* — **Al-Qasas (28:11)**
+> 📖 *AND WHEN the messengers [of God] came to the house of Lot,* — **Al-Hijr (15:61)**
 <!-- quran-verse-end -->
 
 ---
