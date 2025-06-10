@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Did He not utterly confound their artful planning?* — **Al-Fil (105:2)**
+> 📖 *And what could make thee conceive what it is, that steep uphill road?* — **Al-Balad (90:12)**
 <!-- quran-verse-end -->
 
 ---
