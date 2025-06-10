@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, [O man,] the suffering decreed by thy Sustainer [for the sinners] will indeed come to pass:* — **At-Tur (52:7)**
+> 📖 *Lo! [With glee do] they contemplate that [fire],* — **Al-Burooj (85:6)**
 <!-- quran-verse-end -->
 
 ---
