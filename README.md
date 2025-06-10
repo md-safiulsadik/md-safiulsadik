@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and do not touch the substance of an orphan - save to improve it-before he comes of age." And [in all your dealings] give full measure and weight, with equity: [however,] We do not burden any human being with more than he is well able to bear; and when you voice an opinion, be just, even though it be [against] one near of kin. And [always] observe your bond with God: this has He enjoined upon you, so that you might keep it in mind.* — **Al-An'aam (6:152)**
+> 📖 *and thereupon causes it to decay into rust-brown stubble!* — **Al-A'laa (87:5)**
 <!-- quran-verse-end -->
 
 ---
