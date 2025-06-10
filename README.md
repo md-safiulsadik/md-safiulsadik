@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[As for your adopted children,] call them by their [real] fathers’ names: this is more equitable in the sight of God; and if you know not who their fathers were, [call them] your brethren in faith and your friends. However, you will incur no sin if you err in this respect: [what really matters is] but what your hearts intend - for God is indeed much-forgiv­ing, a dispenser of grace!* — **Al-Ahzaab (33:5)**
+> 📖 *SAY: "O you who deny the truth!* — **Al-Kaafiroon (109:1)**
 <!-- quran-verse-end -->
 
 ---
