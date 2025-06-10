@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who was wont to ask [me], ‘Why - art thou really one of those who believe it to be true* — **As-Saaffaat (37:52)**
+> 📖 *Verily, as for those who like [to hear] foul slander spread against [any of] those who have attained to faith grievous suffering awaits them in this world and in the life to come: for God knows [the full truth], whereas you know [it] not.* — **An-Noor (24:19)**
 <!-- quran-verse-end -->
 
 ---
