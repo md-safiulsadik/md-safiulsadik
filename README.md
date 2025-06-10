@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what it is, that steep uphill road?* — **Al-Balad (90:12)**
+> 📖 *These two contrary kinds of man have become engrossed in contention about their Sus­tainer! But [thus it is:] as for those who are bent on denying the truth garments of fire shall be cut out for them [in the life to come]; burning despair will be poured over their heads,* — **Al-Hajj (22:19)**
 <!-- quran-verse-end -->
 
 ---
