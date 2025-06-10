@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *secure in their winter and summer journeys,* — **Quraish (106:2)**
+> 📖 *Nay, in time you will come to understand!* — **At-Takaathur (102:3)**
 <!-- quran-verse-end -->
 
 ---
