@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is all alike [to Him] whether any of you conceals his thought or brings it into the open, and whether he seeks to hide [his evil deeds] under the cover of night or walks [boldly] in the light of day,* — **Ar-Ra'd (13:10)**
+> 📖 *out of a [mere] drop of sperm as it is poured forth,* — **An-Najm (53:46)**
 <!-- quran-verse-end -->
 
 ---
