@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *These two contrary kinds of man have become engrossed in contention about their Sus­tainer! But [thus it is:] as for those who are bent on denying the truth garments of fire shall be cut out for them [in the life to come]; burning despair will be poured over their heads,* — **Al-Hajj (22:19)**
+> 📖 *It is all alike [to Him] whether any of you conceals his thought or brings it into the open, and whether he seeks to hide [his evil deeds] under the cover of night or walks [boldly] in the light of day,* — **Ar-Ra'd (13:10)**
 <!-- quran-verse-end -->
 
 ---
