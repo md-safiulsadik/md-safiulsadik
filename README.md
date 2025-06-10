@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Lo! [With glee do] they contemplate that [fire],* — **Al-Burooj (85:6)**
+> 📖 *far-reaching wisdom [was held out to them]: but [since] all warnings have been of no avail,* — **Al-Qamar (54:5)**
 <!-- quran-verse-end -->
 
 ---
