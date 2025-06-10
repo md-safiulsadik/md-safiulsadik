@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They will say: “Behold, aforetime - when we were [still living] in the midst of our kith and kin - we were full of fear [at the thought of God’s dis­pleasure]:* — **At-Tur (52:26)**
+> 📖 *and kept herself in seclusion from them, whereupon We sent unto her Our angel of revelation, who appeared to her in the shape of a well-made human being.* — **Maryam (19:17)**
 <!-- quran-verse-end -->
 
 ---
