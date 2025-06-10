@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "O you who deny the truth!* — **Al-Kaafiroon (109:1)**
+> 📖 *and none can bind with bonds like His.* — **Al-Fajr (89:26)**
 <!-- quran-verse-end -->
 
 ---
