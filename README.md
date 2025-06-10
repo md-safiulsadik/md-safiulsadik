@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [remember] David and Solomon - [how it was] when both of them gave judgment concerning the field into which some people’s sheep had strayed by night and pastured therein, and [how] We bore witness to their judgment:* — **Al-Anbiyaa (21:78)**
+> 📖 *who was wont to ask [me], ‘Why - art thou really one of those who believe it to be true* — **As-Saaffaat (37:52)**
 <!-- quran-verse-end -->
 
 ---
