@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"I do not worship that which you worship,* — **Al-Kaafiroon (109:2)**
+> 📖 *who gives the lie to the truth and turns away [from it].* — **Al-Lail (92:16)**
 <!-- quran-verse-end -->
 
 ---
