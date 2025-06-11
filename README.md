@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *out of a [mere] drop of sperm as it is poured forth,* — **An-Najm (53:46)**
+> 📖 *Vile is that [false pride] for which they have sold their own selves by denying the truth of what God has bestowed from on high, out of envy that God should bestow aught of His favour upon whomsoever He wills of His servants: and thus have they earned the burden of God's condemnation, over and over. And for those who deny the truth there is shameful suffering in store.* — **Al-Baqara (2:90)**
 <!-- quran-verse-end -->
 
 ---
