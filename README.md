@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND UNTO Solomon [We made subservient] the wind: its morning course [covered the distance of] a month’s journey, and its evening course, a month’s journey. And We caused a fountain of molten copper to flow at his behest; and [even] among the invisible beings there were some that had [been constrained] to labour for him by his Sustainer’s leave and whichever of them deviated from Our command, him would We let taste suffering through a blazing flame -:* — **Saba (34:12)**
+> 📖 *Would you, perchance, fail to fight against people who have broken their solemn pledges, and have done all that they could to drive the Apostle away, and have been first to attack you? Do you hold them in awe? Nay, it is God alone of whom you ought to stand in awe, if you are [truly] believers!* — **At-Tawba (9:13)**
 <!-- quran-verse-end -->
 
 ---
