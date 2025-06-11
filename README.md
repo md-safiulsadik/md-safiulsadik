@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who it is that shall be visited [in this world] by suffering which will cover him with ignominy, and upon whom long-lasting suffering shall alight [in the life to come]!”* — **Az-Zumar (39:40)**
+> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
 <!-- quran-verse-end -->
 
 ---
