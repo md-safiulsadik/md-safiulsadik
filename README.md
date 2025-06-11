@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and they will say: “All praise is due to God, who has caused all sorrow to leave us: for, verily, our Sustainer is indeed much-forgiving, ever-responsive to gratitude –* — **Faatir (35:34)**
+> 📖 *but my call has only caused them to flee farther and farther away [from Thee].* — **Nooh (71:6)**
 <!-- quran-verse-end -->
 
 ---
