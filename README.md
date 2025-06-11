@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Unto those [earlier] communities - some of whose stories We [now] relate unto thee -there had indeed come apostles of their own with all evidence of the truth; but they would not believe in anything to which they had once given the lie: thus it is that God seals the hearts of those who deny the truth;* — **Al-A'raaf (7:101)**
+> 📖 *Yet withal, behold, I forgive all sins unto any who repents and attains to faith and does righteous deeds, and thereafter keeps to the right path.* — **Taa-Haa (20:82)**
 <!-- quran-verse-end -->
 
 ---
