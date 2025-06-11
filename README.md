@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who gives the lie to the truth and turns away [from it].* — **Al-Lail (92:16)**
+> 📖 *And those who were lost in sin will behold the fire, and will know that they are bound to fall into it, and will find no way of escape therefrom.* — **Al-Kahf (18:53)**
 <!-- quran-verse-end -->
 
 ---
