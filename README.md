@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen* — **Al-Qadr (97:4)**
+> 📖 *who it is that shall be visited [in this world] by suffering which will cover him with ignominy, and upon whom long-lasting suffering shall alight [in the life to come]!”* — **Az-Zumar (39:40)**
 <!-- quran-verse-end -->
 
 ---
