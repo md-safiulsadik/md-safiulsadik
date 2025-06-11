@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "God has spoken the truth: follow, then, the creed of Abraham, who turned away from all that is false, and was not of those who ascribe divinity to aught beside God."* — **Aal-i-Imraan (3:95)**
+> 📖 *and thou seest people enter God's religion in hosts,* — **An-Nasr (110:2)**
 <!-- quran-verse-end -->
 
 ---
