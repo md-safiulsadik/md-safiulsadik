@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet, the sects [that follow the Bible] are at variance among themselves [about the nature of Jesus Woe, then, unto all who deny the truth when that awesome Day will appear!* — **Maryam (19:37)**
+> 📖 *in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen* — **Al-Qadr (97:4)**
 <!-- quran-verse-end -->
 
 ---
