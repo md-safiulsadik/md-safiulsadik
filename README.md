@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
+> 📖 *Thus, He let loose upon them great swarms of flying creatures* — **Al-Fil (105:3)**
 <!-- quran-verse-end -->
 
 ---
