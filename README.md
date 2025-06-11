@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, He let loose upon them great swarms of flying creatures* — **Al-Fil (105:3)**
+> 📖 *Say: "God has spoken the truth: follow, then, the creed of Abraham, who turned away from all that is false, and was not of those who ascribe divinity to aught beside God."* — **Aal-i-Imraan (3:95)**
 <!-- quran-verse-end -->
 
 ---
