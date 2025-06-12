@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "God knows best how long they remained [there]. His [alone] is the knowledge of the hidden reality of the heavens and the earth: how well does He see and hear! No guardian have they apart from Him, since He allots to no one a share in His rule!"* — **Al-Kahf (18:26)**
+> 📖 *IT IS NOT [conceivable] that such as are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God should ever be abandoned [by Him] ere there comes unto them the [full] evidence of the truth:* — **Al-Bayyina (98:1)**
 <!-- quran-verse-end -->
 
 ---
