@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but [in the life to come such as] he shall indeed be abandoned to crushing torment!* — **Al-Humaza (104:4)**
+> 📖 *Nay, [O men,] but you [are lured away from God whenever you are tempted to] give the lie to [God’s] Judgment!* — **Al-Infitaar (82:9)**
 <!-- quran-verse-end -->
 
 ---
