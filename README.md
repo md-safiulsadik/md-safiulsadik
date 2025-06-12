@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"And as for that young man, his parents were [true] believers - whereas we had every reason to fear that he would bring bitter grief upon them by [his] overweening wickedness and denial of all truth:* — **Al-Kahf (18:80)**
+> 📖 *Say: "God knows best how long they remained [there]. His [alone] is the knowledge of the hidden reality of the heavens and the earth: how well does He see and hear! No guardian have they apart from Him, since He allots to no one a share in His rule!"* — **Al-Kahf (18:26)**
 <!-- quran-verse-end -->
 
 ---
