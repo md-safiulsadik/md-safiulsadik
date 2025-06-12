@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said [God]: "O Moses! Behold, I have raised thee above all people by virtue of the messages which I have entrusted to thee, and by virtue of My speaking [unto thee]: hold fast, therefore, unto what I have vouchsafed thee, and be among the grateful!"* — **Al-A'raaf (7:144)**
+> 📖 *O Prophet! Whenever believing women come unto thee to pledge their allegiance to thee, [pledging] that [henceforth] they would not ascribe divinity, in any way, to aught but God, and would not steal, and would not commit adultery, and would not kill their children, and would not indulge in slander, falsely devising it out of nothingness: and would not disobey thee in anything [that thou declarest to be] right - then accept their pledge of allegiance, and pray to God to forgive them their [past] sins: for, behold, God is much-forgiving, a dispenser of grace.* — **Al-Mumtahana (60:12)**
 <!-- quran-verse-end -->
 
 ---
