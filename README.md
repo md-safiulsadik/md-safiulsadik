@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *indeed, He has full cognizance of them, and has numbered them with [unfailing] numbering;* — **Maryam (19:94)**
+> 📖 *enter, then, together with My [other true] servants –* — **Al-Fajr (89:29)**
 <!-- quran-verse-end -->
 
 ---
