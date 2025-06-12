@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ALL THAT IS in the heavens and on earth extols God’s limitless glory: for He alone is almighty, truly wise!* — **Al-Hadid (57:1)**
+> 📖 *Nay, but [in the life to come such as] he shall indeed be abandoned to crushing torment!* — **Al-Humaza (104:4)**
 <!-- quran-verse-end -->
 
 ---
