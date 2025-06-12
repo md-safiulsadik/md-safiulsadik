@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It does not allow to live, and neither leaves [to die],* — **Al-Muddaththir (74:28)**
+> 📖 *a promise given by thy Sustainer, [always] to be prayed for?”* — **Al-Furqaan (25:16)**
 <!-- quran-verse-end -->
 
 ---
