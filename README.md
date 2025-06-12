@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "I seek refuge with the Sustainer of men,* — **An-Naas (114:1)**
+> 📖 *indeed, He has full cognizance of them, and has numbered them with [unfailing] numbering;* — **Maryam (19:94)**
 <!-- quran-verse-end -->
 
 ---
