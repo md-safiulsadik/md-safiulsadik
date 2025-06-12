@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *of an orphan near of kin,* — **Al-Balad (90:15)**
+> 📖 *It does not allow to live, and neither leaves [to die],* — **Al-Muddaththir (74:28)**
 <!-- quran-verse-end -->
 
 ---
