@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, indeed, many facets have We given in this Qur'an to every kind of lesson [designed] for [the benefit of] mankind! However, most men are unwilling to accept anything but blasphemy* — **Al-Israa (17:89)**
+> 📖 *Said [God]: "O Moses! Behold, I have raised thee above all people by virtue of the messages which I have entrusted to thee, and by virtue of My speaking [unto thee]: hold fast, therefore, unto what I have vouchsafed thee, and be among the grateful!"* — **Al-A'raaf (7:144)**
 <!-- quran-verse-end -->
 
 ---
