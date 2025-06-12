@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, [O men,] but you [are lured away from God whenever you are tempted to] give the lie to [God’s] Judgment!* — **Al-Infitaar (82:9)**
+> 📖 *on a Day when everyone will [want to] flee from his brother,* — **Abasa (80:34)**
 <!-- quran-verse-end -->
 
 ---
