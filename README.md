@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *a promise given by thy Sustainer, [always] to be prayed for?”* — **Al-Furqaan (25:16)**
+> 📖 *SAY: "I seek refuge with the Sustainer of men,* — **An-Naas (114:1)**
 <!-- quran-verse-end -->
 
 ---
