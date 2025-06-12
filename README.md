@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God wants to make [all this] clear unto you, and to guide you onto the [righteous] ways of life of those who preceded you, and to turn unto you in His mercy: for God is all-knowing, wise.* — **An-Nisaa (4:26)**
+> 📖 *of an orphan near of kin,* — **Al-Balad (90:15)**
 <!-- quran-verse-end -->
 
 ---
