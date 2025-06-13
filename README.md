@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the dwellers of the wooded dales [of Madyan], and the people of Tubba: they all gave the lie to the apostles - and thereupon that whereof I had warned [them] came true.* — **Qaaf (50:14)**
+> 📖 *The Night of Destiny is better than a thousand months:* — **Al-Qadr (97:3)**
 <!-- quran-verse-end -->
 
 ---
