@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *through God’s bounty and favour; and God is all-knowing, truly wise.* — **Al-Hujuraat (49:8)**
+> 📖 *it is they who have chosen to deny their Sustainer's messages and the truth; that they are deseined to meet Him." Hence, all their [good] deeds come to nought, and no weight shall We assign to them on Resurrection Day.* — **Al-Kahf (18:105)**
 <!-- quran-verse-end -->
 
 ---
