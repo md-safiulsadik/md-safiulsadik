@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *GOD CREATES [man] in the first instance, and then brings him forth anew: and, in the end, unto Him you all will be brought back.* — **Ar-Room (30:11)**
+> 📖 *this, because they cut themselves off from God and His Apostle: and as for him who cuts himself off from God and His Apostle - verily, God is severe in retribution!* — **Al-Hashr (59:4)**
 <!-- quran-verse-end -->
 
 ---
