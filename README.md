@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither will you [ever] worship that which I worship.* — **Al-Kaafiroon (109:5)**
+> 📖 *On the Day when their faces shall be tossed about in the fire, they will exclaim, “Oh, would that we had paid heed unto God, and paid heed unto the Apostle!”* — **Al-Ahzaab (33:66)**
 <!-- quran-verse-end -->
 
 ---
