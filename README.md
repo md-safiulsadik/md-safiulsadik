@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And they will exclaim: “All praise is due to God, who has made His promise to us come true, and has bestowed upon us this expanse [of bliss] as our portion, so that we may dwell in paradise as we please!” And how excellent a reward will it be for those who laboured [in God’s way]!* — **Az-Zumar (39:74)**
+> 📖 *and caused the earth to burst forth with springs, so that the waters met for a purpose pre-ordained:* — **Al-Qamar (54:12)**
 <!-- quran-verse-end -->
 
 ---
