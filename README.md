@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and caused the earth to burst forth with springs, so that the waters met for a purpose pre-ordained:* — **Al-Qamar (54:12)**
+> 📖 *And so, [O Prophet,] exhort them; thy task is only to exhort:* — **Al-Ghaashiya (88:21)**
 <!-- quran-verse-end -->
 
 ---
