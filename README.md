@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which of you was bereft of reason.* — **Al-Qalam (68:6)**
+> 📖 *through God’s bounty and favour; and God is all-knowing, truly wise.* — **Al-Hujuraat (49:8)**
 <!-- quran-verse-end -->
 
 ---
