@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SO THAT the Quraysh might remain secure,* — **Quraish (106:1)**
+> 📖 *The life of this world is but a play and a passing delight: but if you believe [in God] and are conscious of Him, He will grant you your deserts. And withal, He does not demand of you [to sacrifice in His cause all of] your possessions:* — **Muhammad (47:36)**
 <!-- quran-verse-end -->
 
 ---
