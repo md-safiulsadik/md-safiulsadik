@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O Prophet! Whenever believing women come unto thee to pledge their allegiance to thee, [pledging] that [henceforth] they would not ascribe divinity, in any way, to aught but God, and would not steal, and would not commit adultery, and would not kill their children, and would not indulge in slander, falsely devising it out of nothingness: and would not disobey thee in anything [that thou declarest to be] right - then accept their pledge of allegiance, and pray to God to forgive them their [past] sins: for, behold, God is much-forgiving, a dispenser of grace.* — **Al-Mumtahana (60:12)**
+> 📖 *And they will exclaim: “All praise is due to God, who has made His promise to us come true, and has bestowed upon us this expanse [of bliss] as our portion, so that we may dwell in paradise as we please!” And how excellent a reward will it be for those who laboured [in God’s way]!* — **Az-Zumar (39:74)**
 <!-- quran-verse-end -->
 
 ---
