@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Night of Destiny is better than a thousand months:* — **Al-Qadr (97:3)**
+> 📖 *not one [was there] but gave the lie to the apostles - and thereupon My retribution fell due.* — **Saad (38:14)**
 <!-- quran-verse-end -->
 
 ---
