@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *not one [was there] but gave the lie to the apostles - and thereupon My retribution fell due.* — **Saad (38:14)**
+> 📖 *"'And [now we have become aware] that we [created beings] may not know whether evil fortune is intended for [any of] those who live on earth, or whether it is their Sustainer’s will to endow them with consciousness of what is right:* — **Al-Jinn (72:10)**
 <!-- quran-verse-end -->
 
 ---
