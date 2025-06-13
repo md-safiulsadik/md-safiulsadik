@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"'And [now we have become aware] that we [created beings] may not know whether evil fortune is intended for [any of] those who live on earth, or whether it is their Sustainer’s will to endow them with consciousness of what is right:* — **Al-Jinn (72:10)**
+> 📖 *and know that your worldly goods and your children are but a trial and a temptation, and that with God there is a tremendous reward.* — **Al-Anfaal (8:28)**
 <!-- quran-verse-end -->
 
 ---
