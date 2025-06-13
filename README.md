@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The life of this world is but a play and a passing delight: but if you believe [in God] and are conscious of Him, He will grant you your deserts. And withal, He does not demand of you [to sacrifice in His cause all of] your possessions:* — **Muhammad (47:36)**
+> 📖 *that on that Day their Sustainer [will show that He] has always been fully aware of them?* — **Al-Aadiyaat (100:11)**
 <!-- quran-verse-end -->
 
 ---
