@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *that on that Day their Sustainer [will show that He] has always been fully aware of them?* — **Al-Aadiyaat (100:11)**
+> 📖 *and the dwellers of the wooded dales [of Madyan], and the people of Tubba: they all gave the lie to the apostles - and thereupon that whereof I had warned [them] came true.* — **Qaaf (50:14)**
 <!-- quran-verse-end -->
 
 ---
