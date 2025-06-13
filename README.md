@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now when Moses spoke to his people, [it was this same truth that he had in mind:] "O my people! Why do you cause me grief, the while you know that I am an apostle of God sent unto you?" And so, when they swerved from the right way, God let their hearts swerve from the truth: for God does not bestow His guidance upon iniquitous folk.* — **As-Saff (61:5)**
+> 📖 *GOD CREATES [man] in the first instance, and then brings him forth anew: and, in the end, unto Him you all will be brought back.* — **Ar-Room (30:11)**
 <!-- quran-verse-end -->
 
 ---
