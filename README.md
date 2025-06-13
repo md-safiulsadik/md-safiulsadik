@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *this, because they cut themselves off from God and His Apostle: and as for him who cuts himself off from God and His Apostle - verily, God is severe in retribution!* — **Al-Hashr (59:4)**
+> 📖 *for, behold, Abraham was most clement, most tender-hearted, intent upon turning to God again and again.* — **Hud (11:75)**
 <!-- quran-verse-end -->
 
 ---
