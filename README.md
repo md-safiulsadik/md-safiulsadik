@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *a sovereign doer of whatever He wills.* — **Al-Burooj (85:16)**
+> 📖 *and which they shall not [be able to] evade.* — **Al-Infitaar (82:16)**
 <!-- quran-verse-end -->
 
 ---
