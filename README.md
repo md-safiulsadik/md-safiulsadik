@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as soon as He has given them [aught] out of His bounty. they cling to it niggardly, and turn away in their obstinacy [from all that they have vowed]:* — **At-Tawba (9:76)**
+> 📖 *whereupon they turned their backs on him and said, “Taught [by others] is he, a madman”?* — **Ad-Dukhaan (44:14)**
 <!-- quran-verse-end -->
 
 ---
