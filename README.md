@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereupon they turned their backs on him and said, “Taught [by others] is he, a madman”?* — **Ad-Dukhaan (44:14)**
+> 📖 *This [message] is no less than a reminder to all mankind –* — **At-Takwir (81:27)**
 <!-- quran-verse-end -->
 
 ---
