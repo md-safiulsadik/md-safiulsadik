@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *LET MAN, then, observe out of what he has been created:* — **At-Taariq (86:5)**
+> 📖 *and when the stars are scattered,* — **Al-Infitaar (82:2)**
 <!-- quran-verse-end -->
 
 ---
