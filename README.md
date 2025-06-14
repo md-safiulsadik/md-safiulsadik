@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But] know that God gives life to the earth after it has been lifeless! We have indeed made Our messages clear unto you, so that you might use your reason.* — **Al-Hadid (57:17)**
+> 📖 *and lifted from thee the burden* — **Ash-Sharh (94:2)**
 <!-- quran-verse-end -->
 
 ---
