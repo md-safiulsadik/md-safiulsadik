@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *truly it is they, they who in the life to come shall be the losers!* — **Hud (11:22)**
+> 📖 *Thus is thy Sustainer's word proved true with regard to such as are bent on sinful doings: they will not believes* — **Yunus (10:33)**
 <!-- quran-verse-end -->
 
 ---
