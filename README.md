@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and which they shall not [be able to] evade.* — **Al-Infitaar (82:16)**
+> 📖 *These messages of God do We convey unto thee, setting forth the truth. In what other tiding, if not in God’s messages, will they, then, believe?* — **Al-Jaathiya (45:6)**
 <!-- quran-verse-end -->
 
 ---
