@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Are they not aware of how many a generation We have destroyed before their time, [and] that those [that have perished] will never return to them,* — **Yaseen (36:31)**
+> 📖 *truly it is they, they who in the life to come shall be the losers!* — **Hud (11:22)**
 <!-- quran-verse-end -->
 
 ---
