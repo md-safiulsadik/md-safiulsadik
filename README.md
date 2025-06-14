@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *These messages of God do We convey unto thee, setting forth the truth. In what other tiding, if not in God’s messages, will they, then, believe?* — **Al-Jaathiya (45:6)**
+> 📖 *shall find himself in a happy' state of life;* — **Al-Qaari'a (101:7)**
 <!-- quran-verse-end -->
 
 ---
