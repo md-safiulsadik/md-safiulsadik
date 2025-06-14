@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and lifted from thee the burden* — **Ash-Sharh (94:2)**
+> 📖 *But nay! [On Judgment Day] these [very objects of adoration] will disavow the worship that was paid to them, and will turn against those [who had worshipped them]!* — **Maryam (19:82)**
 <!-- quran-verse-end -->
 
 ---
