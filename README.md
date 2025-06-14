@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus is thy Sustainer's word proved true with regard to such as are bent on sinful doings: they will not believes* — **Yunus (10:33)**
+> 📖 *But they turned away [from Us], and so We let loose upon them a flood that overwhelmed the dams, and changed their two [expanses of luxuriant] gardens into a couple of gardens yielding bitter fruit, and tamarisks, and some few [wild] lote-trees:* — **Saba (34:16)**
 <!-- quran-verse-end -->
 
 ---
