@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, towards his Sustainer man is most ungrateful* — **Al-Aadiyaat (100:6)**
+> 📖 *a sovereign doer of whatever He wills.* — **Al-Burooj (85:16)**
 <!-- quran-verse-end -->
 
 ---
