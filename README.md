@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But nay! [On Judgment Day] these [very objects of adoration] will disavow the worship that was paid to them, and will turn against those [who had worshipped them]!* — **Maryam (19:82)**
+> 📖 *LET MAN, then, observe out of what he has been created:* — **At-Taariq (86:5)**
 <!-- quran-verse-end -->
 
 ---
