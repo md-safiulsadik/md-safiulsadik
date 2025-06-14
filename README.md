@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the stars are scattered,* — **Al-Infitaar (82:2)**
+> 📖 *[And when the son was born and grew up, he was told,] "O John! Hold fast unto the divine writ with [all thy] strength!" - for We granted him wisdom "while he was yet a little boy,* — **Maryam (19:12)**
 <!-- quran-verse-end -->
 
 ---
