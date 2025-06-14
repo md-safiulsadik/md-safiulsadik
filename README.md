@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *LO! Thus spoke Joseph unto his father: "O my father! Behold, I saw [in a dream] eleven stars, as well as the sun and the moon: I saw them prostrate themselves before me!"* — **Yusuf (12:4)**
+> 📖 *the way that leads to God, to whom all that is in the heavens and all that is on earth belongs. Oh, verily, with God is the beginning and the end of all things!* — **Ash-Shura (42:53)**
 <!-- quran-verse-end -->
 
 ---
