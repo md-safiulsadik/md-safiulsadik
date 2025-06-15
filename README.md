@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And but for God's favour upon thee and His grace, some of those [who are false to themselves] would indeed endeavour to lead thee astray; yet none but themselves do they lead astray. Nor can they harm thee in any way, since God has bestowed upon thee from on high this divine writ and [given thee] wisdom, and has imparted unto thee the knowledge of what thou didst not know. And God's favour upon thee is tremendous indeed.* — **An-Nisaa (4:113)**
+> 📖 *But although they entered [Joseph's city] in the way their father had bidden them, this proved of no avail whatever to them against [the plan of] God [His request] had served only to satisfy Jacob's heartfelt desire [to protect them]: for, behold, thanks to what We had imparted unto him, he was indeed endowed with the knowledge [that God's will must always prevail]; but most people know it not.* — **Yusuf (12:68)**
 <!-- quran-verse-end -->
 
 ---
