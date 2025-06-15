@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And then, he whose weight [of good deeds] is heavy in the balance* — **Al-Qaari'a (101:6)**
+> 📖 *IS MAN, then, not aware that it is We who create him out of a [mere] drop of sperm - whereupon, lo! he shows himself endowed with the power to think and to argue?* — **Yaseen (36:77)**
 <!-- quran-verse-end -->
 
 ---
