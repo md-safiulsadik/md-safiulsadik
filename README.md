@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *yea, he destroys himself, the way he meditates!* — **Al-Muddaththir (74:20)**
+> 📖 *And who could be more wicked than he who invents lies about God? and gives the lie to the truth as soon as it has been placed before him? Is not hell the [proper] abode for all who deny the truth?* — **Az-Zumar (39:32)**
 <!-- quran-verse-end -->
 
 ---
