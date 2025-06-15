@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [this retribution will befall all evildoers because] they devise that false imagery of theirs - and all their false imagery is within God's knowledge. [And never can the blasphemers prevail against the truth - not] even if their false imagery were so (well devised and so powerful] that mountains could be moved thereby.* — **Ibrahim (14:46)**
+> 📖 *As it is, they ascribe to God something that they [themselves] dislike -and [all the while] their tongues utter the lie that [by doing so] they earn supreme merit! Truly, they earn but the fire, and will be left out [of God's grace]!* — **An-Nahl (16:62)**
 <!-- quran-verse-end -->
 
 ---
