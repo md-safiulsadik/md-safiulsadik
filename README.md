@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Christ, son of Mary, was but an apostle: all [other] apostles had passed away before him; and his mother was one who never deviated from the truth; and they both ate food [like other mortals]. Behold how clear We make these messages unto them: and then behold how perverted are their minds!* — **Al-Maaida (5:75)**
+> 📖 *without (adding], "if God so wills." And if thou shouldst forget [thyself at the time, and become aware of it later], call thy Sustainer to mind and say: "I pray that my Sustainer guide me, even closer than this, to a consciousness of what is right!"* — **Al-Kahf (18:24)**
 <!-- quran-verse-end -->
 
 ---
