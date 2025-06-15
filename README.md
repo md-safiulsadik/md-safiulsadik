@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and wait [for what is coming]: behold, we too are waiting!"* — **Hud (11:122)**
+> 📖 *And but for God's favour upon thee and His grace, some of those [who are false to themselves] would indeed endeavour to lead thee astray; yet none but themselves do they lead astray. Nor can they harm thee in any way, since God has bestowed upon thee from on high this divine writ and [given thee] wisdom, and has imparted unto thee the knowledge of what thou didst not know. And God's favour upon thee is tremendous indeed.* — **An-Nisaa (4:113)**
 <!-- quran-verse-end -->
 
 ---
