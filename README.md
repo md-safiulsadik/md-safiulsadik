@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and most certainly shall We cause you to dwell on earth [long] after they have passed away: this is [My promise] unto all who stand in awe of My presence, and stand in awe of My warning!"* — **Ibrahim (14:14)**
+> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
 <!-- quran-verse-end -->
 
 ---
