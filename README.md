@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *This [message] is no less than a reminder to all mankind –* — **At-Takwir (81:27)**
+> 📖 *But when the bearer of good tidings came [with Joseph's tunic], he laid it over his face; and he regained his sight, [and] exclaimed: "Did I not tell you, `Verily, I know, from God, something that you do not know'?"* — **Yusuf (12:96)**
 <!-- quran-verse-end -->
 
 ---
