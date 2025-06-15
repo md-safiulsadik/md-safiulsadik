@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, O my people, [always] give full measure and weight, with equity, and do not deprive people of what is rightfully theirs, and do not act wickedly on earth by spreading corruption.* — **Hud (11:85)**
+> 📖 *And then, he whose weight [of good deeds] is heavy in the balance* — **Al-Qaari'a (101:6)**
 <!-- quran-verse-end -->
 
 ---
