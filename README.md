@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And place thy trust in God [alone]: for none is as worthy of trust as God.* — **Al-Ahzaab (33:3)**
+> 📖 *and, withal, deny all assistance [to their fellow-men]!* — **Al-Maa'un (107:7)**
 <!-- quran-verse-end -->
 
 ---
