@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And who could be more wicked than he who invents lies about God? and gives the lie to the truth as soon as it has been placed before him? Is not hell the [proper] abode for all who deny the truth?* — **Az-Zumar (39:32)**
+> 📖 *And [now] throw that [staff] which is in thy right hand -it shall swallow up all that they have wrought: [for] they have wrought only a sorcerer's artifice, and the sorcerer can never come to any good, whatever he may aim at!"* — **Taa-Haa (20:69)**
 <!-- quran-verse-end -->
 
 ---
