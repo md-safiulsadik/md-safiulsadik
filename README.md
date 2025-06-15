@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *IS MAN, then, not aware that it is We who create him out of a [mere] drop of sperm - whereupon, lo! he shows himself endowed with the power to think and to argue?* — **Yaseen (36:77)**
+> 📖 *yea, he destroys himself, the way he meditates!* — **Al-Muddaththir (74:20)**
 <!-- quran-verse-end -->
 
 ---
