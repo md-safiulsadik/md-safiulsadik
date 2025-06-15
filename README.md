@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [now] throw that [staff] which is in thy right hand -it shall swallow up all that they have wrought: [for] they have wrought only a sorcerer's artifice, and the sorcerer can never come to any good, whatever he may aim at!"* — **Taa-Haa (20:69)**
+> 📖 *The Christ, son of Mary, was but an apostle: all [other] apostles had passed away before him; and his mother was one who never deviated from the truth; and they both ate food [like other mortals]. Behold how clear We make these messages unto them: and then behold how perverted are their minds!* — **Al-Maaida (5:75)**
 <!-- quran-verse-end -->
 
 ---
