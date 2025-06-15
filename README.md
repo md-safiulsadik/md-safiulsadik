@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *without (adding], "if God so wills." And if thou shouldst forget [thyself at the time, and become aware of it later], call thy Sustainer to mind and say: "I pray that my Sustainer guide me, even closer than this, to a consciousness of what is right!"* — **Al-Kahf (18:24)**
+> 📖 *and wait [for what is coming]: behold, we too are waiting!"* — **Hud (11:122)**
 <!-- quran-verse-end -->
 
 ---
