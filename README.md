@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And We ordained for them in that [Torah]: A life for a life, and an eye for an eye, and a nose for a nose, and an ear for an ear, and a tooth for a tooth, and a [similar] retribution for wounds; but he who shall forgo it out of charity will atone thereby for some of his past sins. And they who do not judge in accordance with what God has revealed - they, they are the evildoers!,* — **Al-Maaida (5:45)**
+> 📖 *sparks of fire striking,* — **Al-Aadiyaat (100:2)**
 <!-- quran-verse-end -->
 
 ---
