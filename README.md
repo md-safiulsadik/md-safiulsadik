@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But when the bearer of good tidings came [with Joseph's tunic], he laid it over his face; and he regained his sight, [and] exclaimed: "Did I not tell you, `Verily, I know, from God, something that you do not know'?"* — **Yusuf (12:96)**
+> 📖 *Hence, O my people, [always] give full measure and weight, with equity, and do not deprive people of what is rightfully theirs, and do not act wickedly on earth by spreading corruption.* — **Hud (11:85)**
 <!-- quran-verse-end -->
 
 ---
