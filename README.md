@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *No empty talk will they hear there, nor any call to sin,* — **Al-Waaqia (56:25)**
+> 📖 *and most certainly shall We cause you to dwell on earth [long] after they have passed away: this is [My promise] unto all who stand in awe of My presence, and stand in awe of My warning!"* — **Ibrahim (14:14)**
 <!-- quran-verse-end -->
 
 ---
