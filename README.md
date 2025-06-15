@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *sparks of fire striking,* — **Al-Aadiyaat (100:2)**
+> 📖 *And place thy trust in God [alone]: for none is as worthy of trust as God.* — **Al-Ahzaab (33:3)**
 <!-- quran-verse-end -->
 
 ---
