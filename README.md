@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and have placed [therein the sun,] a lamp full of blazing splendour.* — **An-Naba (78:13)**
+> 📖 *and who determines the nature [of all that exists], and thereupon guides it [towards its fulfilment],* — **Al-A'laa (87:3)**
 <!-- quran-verse-end -->
 
 ---
