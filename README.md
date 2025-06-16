@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And since they cannot respond to this thy challenge, know that they are following only their own likes and dislikes: and who could be more astray than he who follows [but] his own likes and dislikes without any guidance from God? Verily, God does not grace with His guidance peo­ple who are given to evildoing!* — **Al-Qasas (28:50)**
+> 📖 *Nay, but thou shalt worship God [alone], and be among those who are grateful [to Him]!* — **Az-Zumar (39:66)**
 <!-- quran-verse-end -->
 
 ---
