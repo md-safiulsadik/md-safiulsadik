@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, whenever they consider thee, [O Muhammad,] they but make thee a target of their mockery, [saying:] “Is this the one whom God has sent as an apostle?* — **Al-Furqaan (25:41)**
+> 📖 *So he threw it - and lo! it was a snake, moving rapidly.* — **Taa-Haa (20:20)**
 <!-- quran-verse-end -->
 
 ---
