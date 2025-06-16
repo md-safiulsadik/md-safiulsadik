@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[a fire] which they shall enter on Judgment Day,* — **Al-Infitaar (82:15)**
+> 📖 *EXHORT, then, [O Prophet, all men:] for, by thy Sustainer’s grace, thou art neither a soothsayer nor a madman.* — **At-Tur (52:29)**
 <!-- quran-verse-end -->
 
 ---
