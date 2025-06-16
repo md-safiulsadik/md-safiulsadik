@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND SO, [when you fight in a just cause,] do not lose heart and [never] beg for peace: for, seeing that God is with you, you are bound to rise high [in the end]; and never will He let your [good] deeds go to waste.* — **Muhammad (47:35)**
+> 📖 *For [thus it is with most men:] when the waves engulf them like shadows [of death], they call unto God, sincere [at that moment] in their faith in Him alone: but as soon as He has brought them safe ashore, some of them stop half-way [between belief and unbelief] Yet none could knowingly reject Our messages unless he be utterly perfidious, ingrate.* — **Luqman (31:32)**
 <!-- quran-verse-end -->
 
 ---
