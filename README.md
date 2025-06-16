@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[who bears] around her neck a rope of twisted strands!* — **Al-Masad (111:5)**
+> 📖 *AND SO, [when you fight in a just cause,] do not lose heart and [never] beg for peace: for, seeing that God is with you, you are bound to rise high [in the end]; and never will He let your [good] deeds go to waste.* — **Muhammad (47:35)**
 <!-- quran-verse-end -->
 
 ---
