@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And He it is who sends forth the winds as a glad tiding of His coming grace; and [thus, too,] We cause pure water to descend from the skies,* — **Al-Furqaan (25:48)**
+> 📖 *secure in their winter and summer journeys,* — **Quraish (106:2)**
 <!-- quran-verse-end -->
 
 ---
