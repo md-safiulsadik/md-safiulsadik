@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *secure in their winter and summer journeys,* — **Quraish (106:2)**
+> 📖 *Thy Sustainer has not forsaken thee, nor does He scorn thee:* — **Ad-Dhuhaa (93:3)**
 <!-- quran-verse-end -->
 
 ---
