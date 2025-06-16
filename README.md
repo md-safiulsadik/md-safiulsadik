@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *So he threw it - and lo! it was a snake, moving rapidly.* — **Taa-Haa (20:20)**
+> 📖 *and in the end He causes him to die and brings him to the grave;* — **Abasa (80:21)**
 <!-- quran-verse-end -->
 
 ---
