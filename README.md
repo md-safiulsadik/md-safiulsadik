@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who determines the nature [of all that exists], and thereupon guides it [towards its fulfilment],* — **Al-A'laa (87:3)**
+> 📖 *And what could make thee conceive what that Day of Distinction will be?* — **Al-Mursalaat (77:14)**
 <!-- quran-verse-end -->
 
 ---
