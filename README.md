@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or can you ever feel secure that He who is in heaven will not let loose against you a deadly stormwind, whereupon you would come to know how [true] My warning was?* — **Al-Mulk (67:17)**
+> 📖 *But as for him who shall turn away from remembering Me - his shall be a life of narrow scope and on the Day of Resurrection We shall raise him up blind."* — **Taa-Haa (20:124)**
 <!-- quran-verse-end -->
 
 ---
