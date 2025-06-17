@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *near unto the garden of promise.* — **An-Najm (53:15)**
+> 📖 *for behold, unto Us will be their return,* — **Al-Ghaashiya (88:25)**
 <!-- quran-verse-end -->
 
 ---
