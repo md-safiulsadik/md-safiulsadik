@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that they may eat of the fruit thereof, though it was not their hands that made it. Will they not, then, be grateful?* — **Yaseen (36:35)**
+> 📖 *Lo! [While lost in the desert,] Moses said to his family: “Behold, I perceive a fire [far away]; I may bring you from there some tiding [as to which way we arc to pursue], or bring you [at least] a burning brand so that you might warm yourselves.”* — **An-Naml (27:7)**
 <!-- quran-verse-end -->
 
 ---
