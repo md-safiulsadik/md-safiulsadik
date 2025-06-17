@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“O my dear son,” [continued Luqman,] “verily, if there be but the weight of a mustard-seed, and though it be [hidden] in a rock, or in the skies, or in the earth, God will bring it to light: for, behold, God is unfathomable [in His wisdom], all-aware* — **Luqman (31:16)**
+> 📖 *Or can you ever feel secure that He who is in heaven will not let loose against you a deadly stormwind, whereupon you would come to know how [true] My warning was?* — **Al-Mulk (67:17)**
 <!-- quran-verse-end -->
 
 ---
