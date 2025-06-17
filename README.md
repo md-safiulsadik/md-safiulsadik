@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and He brought down from their strongholds those of the followers of earlier reve­lation who had aided the aggressors, and cast terror into their hearts: some you slew, and some you made captive;* — **Al-Ahzaab (33:26)**
+> 📖 *Verily, it is God [alone] who upholds the celestial bodies and the earth, lest they deviate [from their orbits] - for if they should ever deviate, there is none that could uphold them after He will have ceased to do so. [But,] verily, He is ever-forbearing, much-for­giving!* — **Faatir (35:41)**
 <!-- quran-verse-end -->
 
 ---
