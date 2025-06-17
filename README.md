@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Remember God with unceasing remembrance,* — **Al-Ahzaab (33:41)**
+> 📖 *and Our ordaining [a thing and its coming into being] is but one [act], like the twinkling of an eye.* — **Al-Qamar (54:50)**
 <!-- quran-verse-end -->
 
 ---
