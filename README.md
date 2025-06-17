@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Why do you say one thing and do another?* — **As-Saff (61:2)**
+> 📖 *But then, [when they beset him with their enmity,] he called out to his Sustainer, “These are [indeed] people lost in sin!”* — **Ad-Dukhaan (44:22)**
 <!-- quran-verse-end -->
 
 ---
