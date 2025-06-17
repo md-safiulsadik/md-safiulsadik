@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for him who shall turn away from remembering Me - his shall be a life of narrow scope and on the Day of Resurrection We shall raise him up blind."* — **Taa-Haa (20:124)**
+> 📖 *near unto the garden of promise.* — **An-Najm (53:15)**
 <!-- quran-verse-end -->
 
 ---
