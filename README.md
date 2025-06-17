@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Lo! [While lost in the desert,] Moses said to his family: “Behold, I perceive a fire [far away]; I may bring you from there some tiding [as to which way we arc to pursue], or bring you [at least] a burning brand so that you might warm yourselves.”* — **An-Naml (27:7)**
+> 📖 *"and from the evil of the envious when he envies."* — **Al-Falaq (113:5)**
 <!-- quran-verse-end -->
 
 ---
