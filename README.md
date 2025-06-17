@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND SO, when the great overwhelming event [of, resurrection] comes to pass –* — **An-Naazi'aat (79:34)**
+> 📖 *so that they may eat of the fruit thereof, though it was not their hands that made it. Will they not, then, be grateful?* — **Yaseen (36:35)**
 <!-- quran-verse-end -->
 
 ---
