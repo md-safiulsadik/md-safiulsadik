@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and Our ordaining [a thing and its coming into being] is but one [act], like the twinkling of an eye.* — **Al-Qamar (54:50)**
+> 📖 *wherein he will neither die nor remain alive.* — **Al-A'laa (87:13)**
 <!-- quran-verse-end -->
 
 ---
