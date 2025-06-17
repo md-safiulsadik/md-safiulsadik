@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "He is the One God:* — **Al-Ikhlaas (112:1)**
+> 📖 *O YOU who have attained to faith! Remember God with unceasing remembrance,* — **Al-Ahzaab (33:41)**
 <!-- quran-verse-end -->
 
 ---
