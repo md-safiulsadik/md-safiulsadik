@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and from the evil of the envious when he envies."* — **Al-Falaq (113:5)**
+> 📖 *And lo! [It so happened that] the Prophet told something in confidence to one of his wives; and when she thereupon divulged it, and God made this known to him, he acquainted [others] with some of it and passed over some of it. And as soon as he let her know it, she asked, "Who has told thee this?" - [to which] he replied, "The All-Knowing, the All-Aware has told me."* — **At-Tahrim (66:3)**
 <!-- quran-verse-end -->
 
 ---
