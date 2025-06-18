@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the day as it rises bright!* — **Al-Lail (92:2)**
+> 📖 *Has He not found thee an orphan, and given thee shelter?* — **Ad-Dhuhaa (93:6)**
 <!-- quran-verse-end -->
 
 ---
