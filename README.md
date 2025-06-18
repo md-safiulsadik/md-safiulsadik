@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for a term pre-ordained?* — **Al-Mursalaat (77:22)**
+> 📖 *and has set up within them the moon as a light [reflected] and set up the sun as a [radiant] lamp?* — **Nooh (71:16)**
 <!-- quran-verse-end -->
 
 ---
