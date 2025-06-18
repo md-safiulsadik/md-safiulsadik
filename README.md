@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND GOD propounds [to you] a parable: [Imagine] a town which was [once] secure and at ease, with its sustenance coming to it abundantly from all quarters, and which thereupon blasphemously refused to show gratitude for God's blessings: and therefore God caused it to taste the all-embracing misery of hunger and fear in result of all [the evil] that its people had so persistently wrought.* — **An-Nahl (16:112)**
+> 📖 *Hence, [warn all men of] the Day when the enemies of God shall be gathered together before the fire, and then shall be driven onward,* — **Fussilat (41:19)**
 <!-- quran-verse-end -->
 
 ---
