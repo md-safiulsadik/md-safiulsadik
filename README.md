@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHEN GOD'S SUCCOUR comes, and victory,* — **An-Nasr (110:1)**
+> 📖 *AND UNTO [the people of] Madyan [We sent] their brother Shu’ayb who thereupon said: “O my peo­ple! Worship God [alone], and look forward to the Last Day, and do not act wickedly on earth by spreading corruption!”* — **Al-Ankaboot (29:36)**
 <!-- quran-verse-end -->
 
 ---
