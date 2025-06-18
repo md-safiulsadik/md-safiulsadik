@@ -40,7 +40,7 @@
 <p align="center">
   <picture>
     <source media="(prefers-color-scheme: dark)" srcset="https://github-readme-stats.vercel.app/api?username=md-safiulsadik&show_icons=true&theme=radical&locale=en">
-    <img src="https://github-readme-stats.vercel.app/api?username=md-safiulsadik&show_icons=true&theme=default&locale=en" alt="GitHub Stats" />
+    <img src="https://github-readme-stats.vercel.app/api?username=md-safiulsadik&show_icons=true&theme=default&locale=en" alt="GitHub Stats"/>
   </picture>
 </p>
 
