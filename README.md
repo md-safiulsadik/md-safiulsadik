@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and Mount Sinai,* — **At-Tin (95:2)**
+> 📖 *as sustenance appor­tioned to men; and by [all] this We bring dead land to life: [and] even so will be [man’s] coming-forth from death.* — **Qaaf (50:11)**
 <!-- quran-verse-end -->
 
 ---
