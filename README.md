@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 Could not fetch verse at this time. — ****
+> 📖 *and the day as it rises bright!* — **Al-Lail (92:2)**
 <!-- quran-verse-end -->
 
 ---
