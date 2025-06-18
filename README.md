@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the graves are overturned –* — **Al-Infitaar (82:4)**
+> 📖 *[but] one Day We shall summon all human beings [and judge them] according to the conscious disposition which governed their deeds [in life]: whereupon they whose record shall be placed in their right hand -it is they who will read their record [with happiness]. Yet none shall be wronged by as much as a hair's breadth:* — **Al-Israa (17:71)**
 <!-- quran-verse-end -->
 
 ---
