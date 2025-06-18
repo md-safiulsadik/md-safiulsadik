@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Are, then, they [whose hearts are sealed] wait­ing for the Last Hour - [waiting] that it come upon them of a sudden? But it has already been foretold! And what will their remembrance [of their past sins] avail them, once it has come upon them?* — **Muhammad (47:18)**
+> 📖 *wearing [garments] of silk and brocade, facing one another [in love].* — **Ad-Dukhaan (44:53)**
 <!-- quran-verse-end -->
 
 ---
