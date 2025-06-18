@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O PROPHET! Say unto thy wives: “If you desire [but] the life of this world and its charms - well, then, I shall provide for you and release you in a becoming manner;* — **Al-Ahzaab (33:28)**
+> 📖 Could not fetch verse at this time. — ****
 <!-- quran-verse-end -->
 
 ---
