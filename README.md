@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *as sustenance appor­tioned to men; and by [all] this We bring dead land to life: [and] even so will be [man’s] coming-forth from death.* — **Qaaf (50:11)**
+> 📖 *which will rise over the [guilty] hearts:* — **Al-Humaza (104:7)**
 <!-- quran-verse-end -->
 
 ---
