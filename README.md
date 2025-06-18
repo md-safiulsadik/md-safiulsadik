@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND UNTO [the people of] Madyan [We sent] their brother Shu’ayb who thereupon said: “O my peo­ple! Worship God [alone], and look forward to the Last Day, and do not act wickedly on earth by spreading corruption!”* — **Al-Ankaboot (29:36)**
+> 📖 *and when the graves are overturned –* — **Al-Infitaar (82:4)**
 <!-- quran-verse-end -->
 
 ---
