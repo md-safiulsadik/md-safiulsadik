@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which will rise over the [guilty] hearts:* — **Al-Humaza (104:7)**
+> 📖 *And they who are in the fire will say to the keepers of hell, “Pray unto your Sustainer that He lighten, [though it be] for one day [only], this suffering of ours!”* — **Ghafir (40:49)**
 <!-- quran-verse-end -->
 
 ---
