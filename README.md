@@ -47,7 +47,8 @@
 <p align="center">
   <picture>
     <source media="(prefers-color-scheme: dark)" srcset="https://github-readme-streak-stats.herokuapp.com?user=md-safiulsadik&theme=radical">
-    <img src="https://github-readme-streak-stats.herokuapp.com?user=md-safiulsadik&theme=default" alt="GitHub Streak" />
+     <img src="https://github-readme-streak-stats.herokuapp.com?user=md-safiulsadik&theme=radical" alt="GitHub Streak" />
+    <!--     <img src="https://github-readme-streak-stats.herokuapp.com?user=md-safiulsadik&theme=default" alt="GitHub Streak" /> -->
   </picture>
 </p>
 
