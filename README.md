@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Pay heed, then, unto God, and pay heed unto the Apostle; and if you turn away, [know that] Our Apostle's only duty is a clear delivery of this message:* — **At-Taghaabun (64:12)**
+> 📖 *Then, when he beheld the sun rising, he said, "This is my Sustainer! This one is the greatest [of all]!" - but when it [too] went down, he exclaimed: "O my people! Behold, far be it from me to ascribe divinity, as you do, to aught beside God!* — **Al-An'aam (6:78)**
 <!-- quran-verse-end -->
 
 ---
