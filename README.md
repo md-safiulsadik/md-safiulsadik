@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Truly, God knows all that they keep secret as well as all that they bring into the open -[and,] behold, He does not love those who are given to arrogance,* — **An-Nahl (16:23)**
+> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
 <!-- quran-verse-end -->
 
 ---
