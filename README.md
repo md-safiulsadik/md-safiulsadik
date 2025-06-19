@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which smote them with stone-hard blows of chastisement pre-ordained,* — **Al-Fil (105:4)**
+> 📖 *and if you [think that you] have a subterfuge left, try to outwit Me!"* — **Al-Mursalaat (77:39)**
 <!-- quran-verse-end -->
 
 ---
