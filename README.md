@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now when [Moses] reached full manhood and had become mature [of mind]. We bestowed upon him the ability to judge [between right and wrong] as well as [innate] knowledge: for thus do We reward the doers of good.* — **Al-Qasas (28:14)**
+> 📖 *And whoever rebels against God and His Apostle and transgresses His bounds, him will He commit unto fire, therein to abide; and shameful suffering awaits him.* — **An-Nisaa (4:14)**
 <!-- quran-verse-end -->
 
 ---
