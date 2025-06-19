@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And whoever rebels against God and His Apostle and transgresses His bounds, him will He commit unto fire, therein to abide; and shameful suffering awaits him.* — **An-Nisaa (4:14)**
+> 📖 *Truly, God knows all that they keep secret as well as all that they bring into the open -[and,] behold, He does not love those who are given to arrogance,* — **An-Nahl (16:23)**
 <!-- quran-verse-end -->
 
 ---
