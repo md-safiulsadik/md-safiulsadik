@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
+> 📖 *VERILY, man is born with a restless disposition.* — **Al-Ma'aarij (70:19)**
 <!-- quran-verse-end -->
 
 ---
