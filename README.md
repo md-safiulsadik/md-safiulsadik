@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
+> 📖 *AND THEN, after him, We sent forth [other] apostles-each one unto his own people -and they brought them all evidence of the truth; but they would not believe in anything to which they had once given the lie: thus it is that We seal the hearts of such as [are wont to] transgress the bounds of what is right.* — **Yunus (10:74)**
 <!-- quran-verse-end -->
 
 ---
