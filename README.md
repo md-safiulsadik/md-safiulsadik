@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAST THOU ever considered [the kind of man] who gives the lie to all moral law?* — **Al-Maa'un (107:1)**
+> 📖 *It does not allow to live, and neither leaves [to die],* — **Al-Muddaththir (74:28)**
 <!-- quran-verse-end -->
 
 ---
