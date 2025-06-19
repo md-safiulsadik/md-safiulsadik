@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and man cries out, "What has happened to her?" -* — **Az-Zalzala (99:3)**
+> 📖 *CONSIDER the fig and the olive,* — **At-Tin (95:1)**
 <!-- quran-verse-end -->
 
 ---
