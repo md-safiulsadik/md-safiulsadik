@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, man is born with a restless disposition.* — **Al-Ma'aarij (70:19)**
+> 📖 *HAST THOU ever considered [the kind of man] who gives the lie to all moral law?* — **Al-Maa'un (107:1)**
 <!-- quran-verse-end -->
 
 ---
