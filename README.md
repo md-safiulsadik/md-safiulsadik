@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Does he [claim to] have knowledge of some­thing that is beyond the reach of human perception, so that he can see [it clearly]?* — **An-Najm (53:35)**
+> 📖 *God has already enjoined upon you [O believers] the breaking and expiation of [such of] your oaths [as may run counter to what is right and just]: for, God is your Lord Supreme, and He alone is all-knowing, truly wise.* — **At-Tahrim (66:2)**
 <!-- quran-verse-end -->
 
 ---
