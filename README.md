@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *to be followed by further [convulsions]!* — **An-Naazi'aat (79:7)**
+> 📖 *Now when [Moses] reached full manhood and had become mature [of mind]. We bestowed upon him the ability to judge [between right and wrong] as well as [innate] knowledge: for thus do We reward the doers of good.* — **Al-Qasas (28:14)**
 <!-- quran-verse-end -->
 
 ---
