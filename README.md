@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In it shall they remain for a long time.* — **An-Naba (78:23)**
+> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
 <!-- quran-verse-end -->
 
 ---
