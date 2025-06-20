@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAS, THEN, your Sustainer distinguished you by [giving you] sons, and taken unto Himself daughters in the guise of angels? Verily, you are uttering a dreadful saying!* — **Al-Israa (17:40)**
+> 📖 *for, verily, thy Sustainer is ever on the watch!* — **Al-Fajr (89:14)**
 <!-- quran-verse-end -->
 
 ---
