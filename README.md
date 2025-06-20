@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHEN THE HYPOCRITES come unto thee, they say, "We bear witness that thou art indeed God's Apostle!" But God knows that thou art truly His Apostle; and He bears witness that the hypocrites are indeed false [in their declaration of faith].* — **Al-Munaafiqoon (63:1)**
+> 📖 *AND THUS, all praise is due to God, Sustainer of the heavens and Sustainer of the earth: the Sustainer of all the worlds!* — **Al-Jaathiya (45:36)**
 <!-- quran-verse-end -->
 
 ---
