@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND LO! We did accept a solemn pledge from all the prophets from thee, [O Muhammad,] as well as from Noah, and Abraham, and Moses, and Jesus the son of Mary -: for We accepted a most weighty, solemn pledge from [all of] them,* — **Al-Ahzaab (33:7)**
+> 📖 *Now if thou pay heed unto the majority of those [who live] on earth, they will but lead thee astray from the path of God: they follow but [other people's] conjectures, and they themselves do nothing but guess.* — **Al-An'aam (6:116)**
 <!-- quran-verse-end -->
 
 ---
