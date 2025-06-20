@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Then, when he beheld the sun rising, he said, "This is my Sustainer! This one is the greatest [of all]!" - but when it [too] went down, he exclaimed: "O my people! Behold, far be it from me to ascribe divinity, as you do, to aught beside God!* — **Al-An'aam (6:78)**
+> 📖 *[Whereupon] He will say: “You have spent there but a short while: had you but known [how short it was to be]!* — **Al-Muminoon (23:114)**
 <!-- quran-verse-end -->
 
 ---
