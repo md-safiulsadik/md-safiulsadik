@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "He is the One God:* — **Al-Ikhlaas (112:1)**
+> 📖 *Verily, [O men,] you aim at most divergent ends!* — **Al-Lail (92:4)**
 <!-- quran-verse-end -->
 
 ---
