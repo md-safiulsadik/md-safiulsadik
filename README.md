@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, verily, thy Sustainer is ever on the watch!* — **Al-Fajr (89:14)**
+> 📖 *Believe then, [O men,] in God and His Apostle, and in the light [of revelation] which We have bestowed [on you] from on high! And God is fully aware of all that you do.* — **At-Taghaabun (64:8)**
 <!-- quran-verse-end -->
 
 ---
