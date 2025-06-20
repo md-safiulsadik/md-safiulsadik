@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *This is what you are promised for the Day of Reckoning:* — **Saad (38:53)**
+> 📖 *whom they hate for no other reason than that they believe in God, the Almighty, the One to whom all praise is due,* — **Al-Burooj (85:8)**
 <!-- quran-verse-end -->
 
 ---
