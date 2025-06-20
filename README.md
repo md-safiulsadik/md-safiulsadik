@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And among the many objects of His creation, God has appointed for you [various] means of protection: thus, He has given you in the mountains places of shelter, and has endowed you with [the ability to make] garments to protect you from heat [and cold], as well as such garments as might protect you from your [mutual] violence. In this way does He bestow the full measure of His blessings on you, so that you might surrender yourselves unto Him.* — **An-Nahl (16:81)**
+> 📖 *Thou wilt surely find that, of all people, the most hostile to those who believe [in this divine writ] are the Jews as well as those who are bent on ascribing divinity to aught beside God; and thou wilt surely find that, of all people, they who say, "Behold, we are Christians," come closest to feeling affection for those who believe [in this divine writ]: this is so because there are priests and monks among them, and because these are not given to arrogance.* — **Al-Maaida (5:82)**
 <!-- quran-verse-end -->
 
 ---
