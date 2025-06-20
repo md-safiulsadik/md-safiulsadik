@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, [O men,] you aim at most divergent ends!* — **Al-Lail (92:4)**
+> 📖 *Does he, then, think that no one sees him?* — **Al-Balad (90:7)**
 <!-- quran-verse-end -->
 
 ---
