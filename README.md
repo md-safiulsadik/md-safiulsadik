@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, in the end, both [the deniers of the truth and the hypocrites] will find themselves in the fire, therein to abide: for such is the recompense of evil­doers.* — **Al-Hashr (59:17)**
+> 📖 *HAS, THEN, your Sustainer distinguished you by [giving you] sons, and taken unto Himself daughters in the guise of angels? Verily, you are uttering a dreadful saying!* — **Al-Israa (17:40)**
 <!-- quran-verse-end -->
 
 ---
