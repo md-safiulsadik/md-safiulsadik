@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND HOW MANY a generation have We destroyed before those [who now deny the truth] people of greater might than theirs; but [when Our chastise­ment befell them,] they became wanderers on the face of the earth, seeking no more than a place of refuge* — **Qaaf (50:36)**
+> 📖 *and who guard their prayers [from all worldly intent].* — **Al-Muminoon (23:9)**
 <!-- quran-verse-end -->
 
 ---
