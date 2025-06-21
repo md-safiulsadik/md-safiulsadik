@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what it is, that Night of Destiny?* — **Al-Qadr (97:2)**
+> 📖 *"from the evil of aught that He has created,* — **Al-Falaq (113:2)**
 <!-- quran-verse-end -->
 
 ---
