@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *he will in time be called to account with an easy accounting,* — **Al-Inshiqaaq (84:8)**
+> 📖 *But [since] good and evil cannot be equal, repel thou [evil] with something that is better and lo! he between whom and thyself was enmity [may then become] as though he had [always] been close [unto thee], a true friend!* — **Fussilat (41:34)**
 <!-- quran-verse-end -->
 
 ---
