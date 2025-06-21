@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *with downcast eyes, with ignominy overwhelming them: that Day which they were promised again and…* — **Al-Ma'aarij (70:44)**
+> 📖 *INDEED, there has come unto you [O mankind] an Apostle from among yourselves: heavily weighs -upon him [the thought] that you might suffer [in the life to come]; full of concern for you [is he, and] full of compassion and mercy towards the believers.* — **At-Tawba (9:128)**
 <!-- quran-verse-end -->
 
 ---
