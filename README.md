@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But does he not know that [on the Last Day,] when all that is in the graves is raised and brought out,* — **Al-Aadiyaat (100:9)**
+> 📖 *AND HOW MANY a generation have We destroyed before those [who now deny the truth] people of greater might than theirs; but [when Our chastise­ment befell them,] they became wanderers on the face of the earth, seeking no more than a place of refuge* — **Qaaf (50:36)**
 <!-- quran-verse-end -->
 
 ---
