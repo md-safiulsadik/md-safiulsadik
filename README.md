@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *those who humble themselves in their prayer,* — **Al-Muminoon (23:2)**
+> 📖 *[for] no human being has ever been left unguarded.* — **At-Taariq (86:4)**
 <!-- quran-verse-end -->
 
 ---
