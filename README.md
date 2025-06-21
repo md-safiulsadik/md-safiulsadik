@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Answered [the messengers]: "Dost thou deem it strange that God should decree what He wills? The grace of God and His blessings be upon you, O people of this house! Verily, ever to be praised, sublime is He!"* — **Hud (11:73)**
+> 📖 *And what could make thee conceive what it is, that Night of Destiny?* — **Al-Qadr (97:2)**
 <!-- quran-verse-end -->
 
 ---
