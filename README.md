@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.* — **An-Nasr (110:3)**
+> 📖 *Answered [the messengers]: "Dost thou deem it strange that God should decree what He wills? The grace of God and His blessings be upon you, O people of this house! Verily, ever to be praised, sublime is He!"* — **Hud (11:73)**
 <!-- quran-verse-end -->
 
 ---
