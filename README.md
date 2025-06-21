@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And they will add: "Had we but listened [to those warnings], or [at least] used our own reason, we would not [now] be among those who are destined for the blazing flame!"* — **Al-Mulk (67:10)**
+> 📖 *with downcast eyes, with ignominy overwhelming them: that Day which they were promised again and…* — **Al-Ma'aarij (70:44)**
 <!-- quran-verse-end -->
 
 ---
