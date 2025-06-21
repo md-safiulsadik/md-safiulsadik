@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But [since] good and evil cannot be equal, repel thou [evil] with something that is better and lo! he between whom and thyself was enmity [may then become] as though he had [always] been close [unto thee], a true friend!* — **Fussilat (41:34)**
+> 📖 *We called out to him: “O Abraham,* — **As-Saaffaat (37:104)**
 <!-- quran-verse-end -->
 
 ---
