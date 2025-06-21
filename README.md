@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [bear in mind:] there is no community which We will not destroy before the Day of Resurrection, or chastise [even earlier, if it proves sinful,] with suffering severe: all this is laid down in Our decree.* — **Al-Israa (17:58)**
+> 📖 *extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.* — **An-Nasr (110:3)**
 <!-- quran-verse-end -->
 
 ---
