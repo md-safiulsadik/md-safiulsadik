@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *We called out to him: “O Abraham,* — **As-Saaffaat (37:104)**
+> 📖 *On that Day will [men's] hearts be throbbing,* — **An-Naazi'aat (79:8)**
 <!-- quran-verse-end -->
 
 ---
