@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"from the evil of aught that He has created,* — **Al-Falaq (113:2)**
+> 📖 *and that it is He who creates the two kinds - the male and the female –* — **An-Najm (53:45)**
 <!-- quran-verse-end -->
 
 ---
