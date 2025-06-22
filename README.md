@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHO IS IT that will offer up unto God a goodly loan, which He will amply repay For, such [as do so] shall have a noble reward* — **Al-Hadid (57:11)**
+> 📖 *O men! Behold, We have created you all out of a male and a female, and have made you into nations and tribes, so that you might come to know one another. Verily, the noblest of you in the sight of God is the one who is most deeply conscious of Him. Behold, God is all-knowing, all-aware.* — **Al-Hujuraat (49:13)**
 <!-- quran-verse-end -->
 
 ---
