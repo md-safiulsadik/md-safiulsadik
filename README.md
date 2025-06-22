@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THEY DESTROY [but] themselves, they who would ready a pit* — **Al-Burooj (85:4)**
+> 📖 *And give his due to the near of kin, as well as to the needy and the wayfarer, but do not squander [thy substance] senselessly.* — **Al-Israa (17:26)**
 <!-- quran-verse-end -->
 
 ---
