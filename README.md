@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but thou shalt worship God [alone], and be among those who are grateful [to Him]!* — **Az-Zumar (39:66)**
+> 📖 *AND IN [the story of Pharaoh and] Moses, too, [We left the same message: for] when We sent him unto Pharaoh with [Our] manifest authority,* — **Adh-Dhaariyat (51:38)**
 <!-- quran-verse-end -->
 
 ---
