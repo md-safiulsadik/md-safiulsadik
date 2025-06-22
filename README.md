@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and Pharaoh rebelled against the apostle, whereupon We took him to task with a crushing grip.* — **Al-Muzzammil (73:16)**
+> 📖 *[and bethink thyself, too, of] the Day on which all [human beings] will in truth hear the final blast - that Day of [their] coming-forth [from death].* — **Qaaf (50:42)**
 <!-- quran-verse-end -->
 
 ---
