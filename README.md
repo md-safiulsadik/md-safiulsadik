@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the night, and what it [step by step] unfolds,* — **Al-Inshiqaaq (84:17)**
+> 📖 *for you and for your animals to enjoy.* — **Abasa (80:32)**
 <!-- quran-verse-end -->
 
 ---
