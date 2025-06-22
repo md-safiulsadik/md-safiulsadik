@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *inasmuch as they said [to their followers], 'Do not ever abandon your gods: abandon neither Wadd nor Suwa', and neither Yaghuth nor Ya’uq nor Nasr!'* — **Nooh (71:23)**
+> 📖 *and the night, and what it [step by step] unfolds,* — **Al-Inshiqaaq (84:17)**
 <!-- quran-verse-end -->
 
 ---
