@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And give his due to the near of kin, as well as to the needy and the wayfarer, but do not squander [thy substance] senselessly.* — **Al-Israa (17:26)**
+> 📖 *but only out of a longing for the countenance of his Sustainer, the All-Highest:* — **Al-Lail (92:20)**
 <!-- quran-verse-end -->
 
 ---
