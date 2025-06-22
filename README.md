@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but only out of a longing for the countenance of his Sustainer, the All-Highest:* — **Al-Lail (92:20)**
+> 📖 *[know that] thou mayest put off for a time whichever of them thou pleasest, and mayest take unto thee whichever thou pleasest; and [that,] if thou seek out any from whom thou hast kept away [for a time], thou wilt incur no sin [thereby]: this will make it more likely that their eyes are gladdened [whenever they see thee], and that they do not grieve [whenever they are overlooked], and that all of them may find contentment in whatever thou hast to give them: for God [alone] knows what is in your hearts - and God is indeed all-knowing, for­bearing.* — **Al-Ahzaab (33:51)**
 <!-- quran-verse-end -->
 
 ---
