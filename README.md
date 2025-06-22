@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND IN [the story of Pharaoh and] Moses, too, [We left the same message: for] when We sent him unto Pharaoh with [Our] manifest authority,* — **Adh-Dhaariyat (51:38)**
+> 📖 *O YOU who have attained to faith! Ward off from yourselves and those who are close to you that fire [of the hereafter] whose fuel is human beings and stones: [lording] over it are angelic powers awesome [and] severe, who do not disobey God in whatever He has commanded them, but [always] do what they are bidden to do.* — **At-Tahrim (66:6)**
 <!-- quran-verse-end -->
 
 ---
