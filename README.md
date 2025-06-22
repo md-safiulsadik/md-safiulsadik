@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"from all [temptation to evil by] invisible forces as well as men,"* — **An-Naas (114:6)**
+> 📖 *THEY DESTROY [but] themselves, they who would ready a pit* — **Al-Burooj (85:4)**
 <!-- quran-verse-end -->
 
 ---
