@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for you and for your animals to enjoy.* — **Abasa (80:32)**
+> 📖 *and Pharaoh rebelled against the apostle, whereupon We took him to task with a crushing grip.* — **Al-Muzzammil (73:16)**
 <!-- quran-verse-end -->
 
 ---
