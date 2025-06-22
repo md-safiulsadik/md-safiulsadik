@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is He who bestows from on high clear mes­sages unto [this] His servant, to lead you out of the deep darkness into the light: for, behold, God is most compassionate towards you, a dispenser of grace.* — **Al-Hadid (57:9)**
+> 📖 *[who bears] around her neck a rope of twisted strands!* — **Al-Masad (111:5)**
 <!-- quran-verse-end -->
 
 ---
