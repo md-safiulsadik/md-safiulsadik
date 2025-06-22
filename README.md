@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and all that is [hidden] in men's hearts is bared* — **Al-Aadiyaat (100:10)**
+> 📖 *who has created thee, and formed thee in accordance with what thou art meant' to be, and shaped thy nature in just proportions,* — **Al-Infitaar (82:7)**
 <!-- quran-verse-end -->
 
 ---
