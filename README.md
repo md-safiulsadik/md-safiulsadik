@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But the keepers of hell] will ask, “Is it not [true] that your apostles came unto you with all evidence of the truth?” Those [in the fire] will reply, “Yea, indeed.” [And the keepers of hell] will say, “Pray, then!” - for the prayer of those who deny the truth cannot lead to aught but delusion.* — **Ghafir (40:50)**
+> 📖 *Most loathsome is it in the sight of God that you say what you do not do!* — **As-Saff (61:3)**
 <!-- quran-verse-end -->
 
 ---
