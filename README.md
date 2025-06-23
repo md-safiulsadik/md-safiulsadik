@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[As soon as the cup came to light out of Benjamin's bag, the brothers] exclaimed: "If he has stolen-well, a brother of his used to steal afore-time!" Thereupon Joseph said to himself, without revealing his thought to them: "You are far worse in this respect, and God is fully aware of what you are saying.* — **Yusuf (12:77)**
+> 📖 *[His followers would have it that, in certain cases, any of these] four kinds of cattle of either sex [is unlawful to man]: either of the two sexes of sheep and of goats. Ask [them]: "Is it the two males that He has forbidden, or the two females, or that which the wombs of the two females may contain? Tell me what you know in this respect, if what you say is true."* — **Al-An'aam (6:143)**
 <!-- quran-verse-end -->
 
 ---
