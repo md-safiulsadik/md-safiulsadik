@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *verily, with every hardship comes ease!* — **Ash-Sharh (94:6)**
+> 📖 *AND, BEHOLD, Elijah [too] was indeed one of Our message-bearers* — **As-Saaffaat (37:123)**
 <!-- quran-verse-end -->
 
 ---
