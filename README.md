@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, leave them to indulge in idle talk and play [with words] until they face that [Judgment] Day of theirs which they have been promised –* — **Al-Ma'aarij (70:42)**
+> 📖 *[But the keepers of hell] will ask, “Is it not [true] that your apostles came unto you with all evidence of the truth?” Those [in the fire] will reply, “Yea, indeed.” [And the keepers of hell] will say, “Pray, then!” - for the prayer of those who deny the truth cannot lead to aught but delusion.* — **Ghafir (40:50)**
 <!-- quran-verse-end -->
 
 ---
