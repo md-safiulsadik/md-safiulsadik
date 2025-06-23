@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:21)**
+> 📖 *For, on that Day He will call unto them, and will ask: “Where, now, are those [beings or powers] whom you imagined to have a share in My divinity?”* — **Al-Qasas (28:62)**
 <!-- quran-verse-end -->
 
 ---
