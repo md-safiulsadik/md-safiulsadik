@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and as for the ‘Ad - they were destroyed by a storm wind furiously raging,* — **Al-Haaqqa (69:6)**
+> 📖 *and We have set a barrier before them and a barrier behind them, and We have enshrouded them in veils so that they cannot see:* — **Yaseen (36:9)**
 <!-- quran-verse-end -->
 
 ---
