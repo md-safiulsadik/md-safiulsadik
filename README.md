@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [how] We make gardens of date-palms and vines [grow] thereon, and cause springs to gush [forth] within it,* — **Yaseen (36:34)**
+> 📖 *Said she: “Verily, whenever kings enter a country they corrupt it, and turn the noblest of its people into the most abject. And this is the way they [always] behave?* — **An-Naml (27:34)**
 <!-- quran-verse-end -->
 
 ---
