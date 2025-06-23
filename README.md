@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
+> 📖 *Do they, perchance, envy other people for what God has granted them out of His bounty? But then, We did grant revelation and wisdom unto the House of Abraham, and We did bestow on them a mighty dominion:* — **An-Nisaa (4:54)**
 <!-- quran-verse-end -->
 
 ---
