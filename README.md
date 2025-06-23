@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[His followers would have it that, in certain cases, any of these] four kinds of cattle of either sex [is unlawful to man]: either of the two sexes of sheep and of goats. Ask [them]: "Is it the two males that He has forbidden, or the two females, or that which the wombs of the two females may contain? Tell me what you know in this respect, if what you say is true."* — **Al-An'aam (6:143)**
+> 📖 *[Jacob] answered: "Behold, it grieves me indeed [to think] that you might take him with you, for I dread lest the wolf devour him at a moment when you are heedless of him!"* — **Yusuf (12:13)**
 <!-- quran-verse-end -->
 
 ---
