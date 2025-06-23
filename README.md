@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or is it that [they fear lest] thou ask them for a reward, [O Prophet,] so that they would be burdened with debt [if they listened to thee]?* — **Al-Qalam (68:46)**
+> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:21)**
 <!-- quran-verse-end -->
 
 ---
