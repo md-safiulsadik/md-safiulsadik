@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and We have set a barrier before them and a barrier behind them, and We have enshrouded them in veils so that they cannot see:* — **Yaseen (36:9)**
+> 📖 *and on that Day you will most surely be called to account for [what you did with] the boon of life!* — **At-Takaathur (102:8)**
 <!-- quran-verse-end -->
 
 ---
