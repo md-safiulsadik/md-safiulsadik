@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, on that Day He will call unto them, and will ask: “Where, now, are those [beings or powers] whom you imagined to have a share in My divinity?”* — **Al-Qasas (28:62)**
+> 📖 *not one [was there] but gave the lie to the apostles - and thereupon My retribution fell due.* — **Saad (38:14)**
 <!-- quran-verse-end -->
 
 ---
