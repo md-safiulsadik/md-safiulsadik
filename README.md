@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “O God! Originator of the heavens and the earth! Knower of all that is beyond the reach of a created being’s perception, as well as of all that can be witnessed by a creature’s senses or mind! It is Thou who wilt judge between Thy servants [on Resurrection Day] with regard to all on which they were wont to differ!”* — **Az-Zumar (39:46)**
+> 📖 *By means of intoxicants and games of chance Satan seeks only to sow enmity and hatred among you, and to turn you away from the remembrance of God and from prayer. Will you not, then, desist?'* — **Al-Maaida (5:91)**
 <!-- quran-verse-end -->
 
 ---
