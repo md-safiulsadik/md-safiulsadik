@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *not one [was there] but gave the lie to the apostles - and thereupon My retribution fell due.* — **Saad (38:14)**
+> 📖 *Hence, leave them to indulge in idle talk and play [with words] until they face that [Judgment] Day of theirs which they have been promised –* — **Al-Ma'aarij (70:42)**
 <!-- quran-verse-end -->
 
 ---
