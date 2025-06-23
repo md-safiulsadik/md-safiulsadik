@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said she: “Verily, whenever kings enter a country they corrupt it, and turn the noblest of its people into the most abject. And this is the way they [always] behave?* — **An-Naml (27:34)**
+> 📖 *and as for the ‘Ad - they were destroyed by a storm wind furiously raging,* — **Al-Haaqqa (69:6)**
 <!-- quran-verse-end -->
 
 ---
