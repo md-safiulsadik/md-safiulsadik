@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND, BEHOLD, Elijah [too] was indeed one of Our message-bearers* — **As-Saaffaat (37:123)**
+> 📖 *Or is it that [they fear lest] thou ask them for a reward, [O Prophet,] so that they would be burdened with debt [if they listened to thee]?* — **Al-Qalam (68:46)**
 <!-- quran-verse-end -->
 
 ---
