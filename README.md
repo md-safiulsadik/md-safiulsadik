@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *By means of intoxicants and games of chance Satan seeks only to sow enmity and hatred among you, and to turn you away from the remembrance of God and from prayer. Will you not, then, desist?'* — **Al-Maaida (5:91)**
+> 📖 *verily, with every hardship comes ease!* — **Ash-Sharh (94:6)**
 <!-- quran-verse-end -->
 
 ---
