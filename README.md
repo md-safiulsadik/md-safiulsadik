@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ARE YOU NOT aware that God has made subservient to you all that is in the heavens and all that is on earth, and has lavished upon you His blessings, both outward and inward? And yet, among men there is many a one that argues about God without having any knowledge [of Him], without any guidance, and without any light-giving revelation;* — **Luqman (31:20)**
+> 📖 *THE BEDOUIN say, “We have attained to faith.” Say [unto them, O Muhammad]: “You have not [yet] attained to faith; you should [rather] say, ‘We have [outwardly] surrendered’ - for [true] faith has not yet entered your hearts. But if you [truly] pay heed unto God and His Apostle, He will not let the least of your deeds go to waste: for, behold, God is much-forgiving, a dispenser of grace.”* — **Al-Hujuraat (49:14)**
 <!-- quran-verse-end -->
 
 ---
