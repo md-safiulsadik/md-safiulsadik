@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *as well as all the rebellious forces [that We made to work for him] - every kind of builder and diver -* — **Saad (38:37)**
+> 📖 *be, then, conscious of God, and pay heed unto me!* — **Ash-Shu'araa (26:163)**
 <!-- quran-verse-end -->
 
 ---
