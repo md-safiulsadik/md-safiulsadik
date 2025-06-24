@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Most loathsome is it in the sight of God that you say what you do not do!* — **As-Saff (61:3)**
+> 📖 *that you should worship God [alone] and be conscious of Him. "Now do pay heed unto me,* — **Nooh (71:3)**
 <!-- quran-verse-end -->
 
 ---
