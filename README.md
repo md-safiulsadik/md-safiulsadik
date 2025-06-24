@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Since all evidence of the truth has come to me from my Sustainer, I am forbidden to worship [any of] those beings whom you invoke instead of God; and I am bidden to surrender myself to the Sustainer of all the worlds.”* — **Ghafir (40:66)**
+> 📖 *ARE YOU NOT aware that God has made subservient to you all that is in the heavens and all that is on earth, and has lavished upon you His blessings, both outward and inward? And yet, among men there is many a one that argues about God without having any knowledge [of Him], without any guidance, and without any light-giving revelation;* — **Luqman (31:20)**
 <!-- quran-verse-end -->
 
 ---
