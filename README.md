@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when I have formed him fully and breathed into him of My spirit, fall you down before him in prostration!”* — **Saad (38:72)**
+> 📖 *Tell all who have attained to faith that they should forgive those who do not believe in the com­ing of the Days of God, [since it is] for Him [alone] to requite people for whatever they may have earned.* — **Al-Jaathiya (45:14)**
 <!-- quran-verse-end -->
 
 ---
