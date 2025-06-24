@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for if you do it not, then know that you are at war with God and His Apostle. But if you repent, then you shall be entitled to [the return of] your principal: you will do no wrong, and neither will you be wronged.* — **Al-Baqara (2:279)**
+> 📖 *this, because [they profess that] they have attained to faith, whereas [inwardly] they deny the truth - and so, a seal has been set on their hearts so that they can no longer understand [what is true and what false].* — **Al-Munaafiqoon (63:3)**
 <!-- quran-verse-end -->
 
 ---
