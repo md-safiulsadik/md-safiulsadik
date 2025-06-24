@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *this, because [they profess that] they have attained to faith, whereas [inwardly] they deny the truth - and so, a seal has been set on their hearts so that they can no longer understand [what is true and what false].* — **Al-Munaafiqoon (63:3)**
+> 📖 *extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.* — **An-Nasr (110:3)**
 <!-- quran-verse-end -->
 
 ---
