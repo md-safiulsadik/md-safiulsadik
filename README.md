@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, they gave the lie to those two, and earned (thereby) their place among the doomed:* — **Al-Muminoon (23:48)**
+> 📖 *as well as all the rebellious forces [that We made to work for him] - every kind of builder and diver -* — **Saad (38:37)**
 <!-- quran-verse-end -->
 
 ---
