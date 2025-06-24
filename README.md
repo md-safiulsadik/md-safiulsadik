@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He will say, "Oh, would that I had. provided beforehand for my life [to come]!"* — **Al-Fajr (89:24)**
+> 📖 *Say: “Since all evidence of the truth has come to me from my Sustainer, I am forbidden to worship [any of] those beings whom you invoke instead of God; and I am bidden to surrender myself to the Sustainer of all the worlds.”* — **Ghafir (40:66)**
 <!-- quran-verse-end -->
 
 ---
