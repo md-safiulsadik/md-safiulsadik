@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But the other's passion drove him to slaying his brother; and he slew him: and thus he became one of the lost.* — **Al-Maaida (5:30)**
+> 📖 *To happiness [in the life to come] will indeed attain he who attains to purity [in this world],* — **Al-A'laa (87:14)**
 <!-- quran-verse-end -->
 
 ---
