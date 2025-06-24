@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *that you should worship God [alone] and be conscious of Him. "Now do pay heed unto me,* — **Nooh (71:3)**
+> 📖 *But the other's passion drove him to slaying his brother; and he slew him: and thus he became one of the lost.* — **Al-Maaida (5:30)**
 <!-- quran-verse-end -->
 
 ---
