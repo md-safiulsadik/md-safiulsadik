@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Tell all who have attained to faith that they should forgive those who do not believe in the com­ing of the Days of God, [since it is] for Him [alone] to requite people for whatever they may have earned.* — **Al-Jaathiya (45:14)**
+> 📖 *"God the Eternal, the Uncaused Cause of All Being.* — **Al-Ikhlaas (112:2)**
 <!-- quran-verse-end -->
 
 ---
