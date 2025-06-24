@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAST THOU ever considered [the kind of man] who gives the lie to all moral law?* — **Al-Maa'un (107:1)**
+> 📖 *Thus, they gave the lie to those two, and earned (thereby) their place among the doomed:* — **Al-Muminoon (23:48)**
 <!-- quran-verse-end -->
 
 ---
