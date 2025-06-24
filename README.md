@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *be, then, conscious of God, and pay heed unto me!* — **Ash-Shu'araa (26:163)**
+> 📖 *And [so,] whenever Our messages are conveyed to them in all their clarity, their only argument is this: “Bring forth our fore­fathers [as witnesses], if what you claim is true!”* — **Al-Jaathiya (45:25)**
 <!-- quran-verse-end -->
 
 ---
