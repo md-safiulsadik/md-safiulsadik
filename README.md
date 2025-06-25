@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Man’s other self’ will say: “O our Sustainer! It was not I that led his conscious mind into evil [nay,] but it had gone far astray [of its own accord]!* — **Qaaf (50:27)**
+> 📖 *Say: “Which is better - that, or the paradise of life abiding which has been promised to the God-conscious as their reward and their journey’s end –* — **Al-Furqaan (25:15)**
 <!-- quran-verse-end -->
 
 ---
