@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Which is better - that, or the paradise of life abiding which has been promised to the God-conscious as their reward and their journey’s end –* — **Al-Furqaan (25:15)**
+> 📖 *in a garden sublime,* — **Al-Ghaashiya (88:10)**
 <!-- quran-verse-end -->
 
 ---
