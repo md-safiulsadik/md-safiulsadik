@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Hence,] O you who have attained to faith, when you do hold secret confabulations, do not conspire with one another with a view to sinful doings, and aggressive conduct, and disobedience to the Apostle, but [rather] hold counsel in the cause of virtue and God-consciousness: and [always] remain conscious of God, unto whom you all shall be gathered.* — **Al-Mujaadila (58:9)**
+> 📖 *But never does God grant a delay to a human being when his term has come; and God is fully aware of all that you do.* — **Al-Munaafiqoon (63:11)**
 <!-- quran-verse-end -->
 
 ---
