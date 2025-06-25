@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But never does God grant a delay to a human being when his term has come; and God is fully aware of all that you do.* — **Al-Munaafiqoon (63:11)**
+> 📖 *Yea indeed! His Sustainer did see all that was in him!* — **Al-Inshiqaaq (84:15)**
 <!-- quran-verse-end -->
 
 ---
