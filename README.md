@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Or do they deny the existence of God?] Have they themselves been created without anything [that might have caused their creation]? or were they, perchance, their own creators?* — **At-Tur (52:35)**
+> 📖 *AND UNTO Solomon [We made subservient] the wind: its morning course [covered the distance of] a month’s journey, and its evening course, a month’s journey. And We caused a fountain of molten copper to flow at his behest; and [even] among the invisible beings there were some that had [been constrained] to labour for him by his Sustainer’s leave and whichever of them deviated from Our command, him would We let taste suffering through a blazing flame -:* — **Saba (34:12)**
 <!-- quran-verse-end -->
 
 ---
