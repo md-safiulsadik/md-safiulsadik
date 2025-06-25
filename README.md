@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CAN, THEN, he who knows that whatever has been bestowed from on high upon thee by thy Sustainer is the truth be deemed equal to one who is blind? Only they who are endowed with insight keep this in mind:* — **Ar-Ra'd (13:19)**
+> 📖 *and when all beasts are gathered together,* — **At-Takwir (81:5)**
 <!-- quran-verse-end -->
 
 ---
