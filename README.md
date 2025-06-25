@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and be not like those who say, "We have heard", the while they do not hearken.* — **Al-Anfaal (8:21)**
+> 📖 *on that Day will she recount all her tidings,* — **Az-Zalzala (99:4)**
 <!-- quran-verse-end -->
 
 ---
