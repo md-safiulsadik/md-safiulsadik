@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "I seek refuge with the Sustainer of the rising dawn,* — **Al-Falaq (113:1)**
+> 📖 *And when the prayer is ended, disperse freely on earth and seek to obtain [something] of God's bounty; but remember God often, so that you might attain to a happy state!* — **Al-Jumu'a (62:10)**
 <!-- quran-verse-end -->
 
 ---
