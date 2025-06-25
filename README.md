@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereupon causes it to decay into rust-brown stubble!* — **Al-A'laa (87:5)**
+> 📖 *so much so that they came to think, as you [once] thought, that God would never [again] send forth anyone [as His apostle].* — **Al-Jinn (72:7)**
 <!-- quran-verse-end -->
 
 ---
