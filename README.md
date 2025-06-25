@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and which they shall not [be able to] evade.* — **Al-Infitaar (82:16)**
+> 📖 *and be not like those who say, "We have heard", the while they do not hearken.* — **Al-Anfaal (8:21)**
 <!-- quran-verse-end -->
 
 ---
