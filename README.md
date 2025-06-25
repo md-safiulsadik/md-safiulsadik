@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so much so that they came to think, as you [once] thought, that God would never [again] send forth anyone [as His apostle].* — **Al-Jinn (72:7)**
+> 📖 *CAN, THEN, he who knows that whatever has been bestowed from on high upon thee by thy Sustainer is the truth be deemed equal to one who is blind? Only they who are endowed with insight keep this in mind:* — **Ar-Ra'd (13:19)**
 <!-- quran-verse-end -->
 
 ---
