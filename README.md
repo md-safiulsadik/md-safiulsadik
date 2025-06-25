@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on that Day will she recount all her tidings,* — **Az-Zalzala (99:4)**
+> 📖 *Behold, it is He who creates [man] in the first instance, and He [it is who] will bring him forth anew.* — **Al-Burooj (85:13)**
 <!-- quran-verse-end -->
 
 ---
