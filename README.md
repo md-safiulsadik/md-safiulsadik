@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when all beasts are gathered together,* — **At-Takwir (81:5)**
+> 📖 *and neither are equal the living and the dead [of heart]. Behold, [O Muhammad,] God can make hear whomever He wills, whereas thou canst not make hear such as are [dead of heart like the dead] in their graves:* — **Faatir (35:22)**
 <!-- quran-verse-end -->
 
 ---
