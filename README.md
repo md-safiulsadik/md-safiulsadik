@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither are equal the living and the dead [of heart]. Behold, [O Muhammad,] God can make hear whomever He wills, whereas thou canst not make hear such as are [dead of heart like the dead] in their graves:* — **Faatir (35:22)**
+> 📖 *Say: “Go all over the earth, and behold what happened in the end to those [sinners] who lived before [you]: most of them were wont to ascribe divine qualities to things or beings other than God.”* — **Ar-Room (30:42)**
 <!-- quran-verse-end -->
 
 ---
