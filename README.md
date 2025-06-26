@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They will be given a drink of pure wine whereon the seal [of God] will have been set,* — **Al-Mutaffifin (83:25)**
+> 📖 *[and] whom we made the target of our derision? Or is it that [they are here, and] our eyes have missed them?”* — **Saad (38:63)**
 <!-- quran-verse-end -->
 
 ---
