@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, God has created the heavens and the earth in accordance with [an inner] truth, and [has therefore willed] that every human being shall be recompensed for what he has earned and none shall be wronged.* — **Al-Jaathiya (45:22)**
+> 📖 *[the Day] on which the skies shall be rent asunder, [and] His promise [of resurrection] fulfilled?* — **Al-Muzzammil (73:18)**
 <!-- quran-verse-end -->
 
 ---
