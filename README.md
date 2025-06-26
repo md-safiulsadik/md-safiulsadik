@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And,] verily, those who have attained to faith, and do righteous deeds - it is they, they who are the best of all creatures.* — **Al-Bayyina (98:7)**
+> 📖 *for, God has created the heavens and the earth in accordance with [an inner] truth, and [has therefore willed] that every human being shall be recompensed for what he has earned and none shall be wronged.* — **Al-Jaathiya (45:22)**
 <!-- quran-verse-end -->
 
 ---
