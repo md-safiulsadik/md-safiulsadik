@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the planets that run their course and set,* — **At-Takwir (81:16)**
+> 📖 *[And,] verily, those who have attained to faith, and do righteous deeds - it is they, they who are the best of all creatures.* — **Al-Bayyina (98:7)**
 <!-- quran-verse-end -->
 
 ---
