@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and] whom we made the target of our derision? Or is it that [they are here, and] our eyes have missed them?”* — **Saad (38:63)**
+> 📖 *Yet they say: What sort of apostle is this [man] who eats food [like all other mortals] and goes about in the market places? Why has not an angel [visibly] been sent down unto him, to act as a warner together with him?”* — **Al-Furqaan (25:7)**
 <!-- quran-verse-end -->
 
 ---
