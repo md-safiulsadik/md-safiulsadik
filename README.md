@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.* — **An-Nasr (110:3)**
+> 📖 *IF THOU couldst but see [how the deniers of the truth will fare on Resurrection Day,] when they will shrink in terror, with nowhere to escape - since they will have been seized from so close nearby* — **Saba (34:51)**
 <!-- quran-verse-end -->
 
 ---
