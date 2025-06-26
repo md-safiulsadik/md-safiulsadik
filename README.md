@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that God might show His forgiveness of all thy faults, past as well as future, and [thus] bestow upon thee the full measure of His blessings, and guide thee on a straight way,* — **Al-Fath (48:2)**
+> 📖 *And [tell them that] I have not created the invisible beings and men to any end other than that they may [know and] worship Me.* — **Adh-Dhaariyat (51:56)**
 <!-- quran-verse-end -->
 
 ---
