@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [as for] that favour of which thou so tauntingly remindest me - [was it not] due to thy having enslaved the children of Israel?”* — **Ash-Shu'araa (26:22)**
+> 📖 *so that God might show His forgiveness of all thy faults, past as well as future, and [thus] bestow upon thee the full measure of His blessings, and guide thee on a straight way,* — **Al-Fath (48:2)**
 <!-- quran-verse-end -->
 
 ---
