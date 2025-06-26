@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HE FROWNED and turned away* — **Abasa (80:1)**
+> 📖 *And in that [paradise] they will be given to drink of a cup flavoured with ginger,* — **Al-Insaan (76:17)**
 <!-- quran-verse-end -->
 
 ---
