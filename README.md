@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, if you could but understand [it] with an understanding [born] of certainty,* — **At-Takaathur (102:5)**
+> 📖 *O you who have attained to faith! Remain conscious of God. and give up all outstanding gains from usury, if you are [truly] believers;* — **Al-Baqara (2:278)**
 <!-- quran-verse-end -->
 
 ---
