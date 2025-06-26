@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet they say: What sort of apostle is this [man] who eats food [like all other mortals] and goes about in the market places? Why has not an angel [visibly] been sent down unto him, to act as a warner together with him?”* — **Al-Furqaan (25:7)**
+> 📖 *[But] they said: "O Moses! Behold, never shall we enter that [land] so long as those others are in it. Go forth, then, thou and thy Sustainer, and fight, both of you! We, behold, shall remain here!"* — **Al-Maaida (5:24)**
 <!-- quran-verse-end -->
 
 ---
