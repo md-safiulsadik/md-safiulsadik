@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [tell them that] I have not created the invisible beings and men to any end other than that they may [know and] worship Me.* — **Adh-Dhaariyat (51:56)**
+> 📖 *secure in their winter and summer journeys,* — **Quraish (106:2)**
 <!-- quran-verse-end -->
 
 ---
