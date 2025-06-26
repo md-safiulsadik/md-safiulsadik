@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *IF THOU couldst but see [how the deniers of the truth will fare on Resurrection Day,] when they will shrink in terror, with nowhere to escape - since they will have been seized from so close nearby* — **Saba (34:51)**
+> 📖 *They will be given a drink of pure wine whereon the seal [of God] will have been set,* — **Al-Mutaffifin (83:25)**
 <!-- quran-verse-end -->
 
 ---
