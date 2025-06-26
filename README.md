@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But] they said: "O Moses! Behold, never shall we enter that [land] so long as those others are in it. Go forth, then, thou and thy Sustainer, and fight, both of you! We, behold, shall remain here!"* — **Al-Maaida (5:24)**
+> 📖 *and I am bidden to be foremost among those who surrender themselves unto God.”* — **Az-Zumar (39:12)**
 <!-- quran-verse-end -->
 
 ---
