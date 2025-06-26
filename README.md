@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O you who have attained to faith! Remain conscious of God. and give up all outstanding gains from usury, if you are [truly] believers;* — **Al-Baqara (2:278)**
+> 📖 *CONSIDER the fig and the olive,* — **At-Tin (95:1)**
 <!-- quran-verse-end -->
 
 ---
