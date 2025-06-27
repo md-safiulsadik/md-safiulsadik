@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on the Day when thou shalt see all believing men and believing women, with their light spreading rapidly before them and on their right, [and with this wel­come awaiting them:] “A glad tiding for you today: gardens through which running waters flow, therein to abide! This, this is the triumph supreme!”* — **Al-Hadid (57:12)**
+> 📖 *Behold, it is We Ourselves who have bestowed from on high, step by step, this reminder? and, behold, it is We who shall truly guard it [from all corruption].* — **Al-Hijr (15:9)**
 <!-- quran-verse-end -->
 
 ---
