@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *YOU ARE OBSESSED by greed for more and more* — **At-Takaathur (102:1)**
+> 📖 *[In the life to come] he shall have to endure a fire fiercely glowing;* — **Al-Masad (111:3)**
 <!-- quran-verse-end -->
 
 ---
