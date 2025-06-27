@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, it is We Ourselves who have bestowed from on high, step by step, this reminder? and, behold, it is We who shall truly guard it [from all corruption].* — **Al-Hijr (15:9)**
+> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
 <!-- quran-verse-end -->
 
 ---
