@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And the sorcerers came unto Pharaoh [and] said: "Verily, we ought to have a great reward if it is we who prevail."* — **Al-A'raaf (7:113)**
+> 📖 *"I do not worship that which you worship,* — **Al-Kaafiroon (109:2)**
 <!-- quran-verse-end -->
 
 ---
