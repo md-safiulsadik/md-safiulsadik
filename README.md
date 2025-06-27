@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[they do turn their backs on it] inasmuch as they are wont to say unto those who abhor all that God has revealed, “We will comply with your views on some points.” But God knows their secret thoughts:* — **Muhammad (47:26)**
+> 📖 *But as for him whose record shall be placed in his left hand, he will exclaim: "Oh, would that I had never been shown this my record,* — **Al-Haaqqa (69:25)**
 <!-- quran-verse-end -->
 
 ---
