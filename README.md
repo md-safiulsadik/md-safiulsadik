@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[a fire] which they shall enter on Judgment Day,* — **Al-Infitaar (82:15)**
+> 📖 *Thereupon [Moses] threw down his staff, and lo! it was a serpent, plainly visible;* — **Al-A'raaf (7:107)**
 <!-- quran-verse-end -->
 
 ---
