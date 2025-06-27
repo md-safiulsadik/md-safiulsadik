@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for him whose record shall be placed in his left hand, he will exclaim: "Oh, would that I had never been shown this my record,* — **Al-Haaqqa (69:25)**
+> 📖 *For, this fellow-man of yours is not a madman:* — **At-Takwir (81:22)**
 <!-- quran-verse-end -->
 
 ---
