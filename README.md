@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thereupon [Moses] threw down his staff, and lo! it was a serpent, plainly visible;* — **Al-A'raaf (7:107)**
+> 📖 *But how [will they fare] when calamity befalls them [on the Day of Judgment] because of what they have wrought in this world - whereupon they will come to thee, swearing by God, "Our aim was but to do good, and to bring about harmony"?* — **An-Nisaa (4:62)**
 <!-- quran-verse-end -->
 
 ---
