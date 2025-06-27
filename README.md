@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *does it make secure, until the rise of dawn.* — **Al-Qadr (97:5)**
+> 📖 *And yet, they choose [to worship], side by side with God, [imaginary] intercessors!” Say: “Why - even though they have no power over anything, and no understanding?”* — **Az-Zumar (39:43)**
 <!-- quran-verse-end -->
 
 ---
