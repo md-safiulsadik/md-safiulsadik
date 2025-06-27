@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"I do not worship that which you worship,* — **Al-Kaafiroon (109:2)**
+> 📖 *[a fire] which they shall enter on Judgment Day,* — **Al-Infitaar (82:15)**
 <!-- quran-verse-end -->
 
 ---
