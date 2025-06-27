@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But how [will they fare] when calamity befalls them [on the Day of Judgment] because of what they have wrought in this world - whereupon they will come to thee, swearing by God, "Our aim was but to do good, and to bring about harmony"?* — **An-Nisaa (4:62)**
+> 📖 *and thereupon causes it to decay into rust-brown stubble!* — **Al-A'laa (87:5)**
 <!-- quran-verse-end -->
 
 ---
