@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And found thee in want, and given thee sufficiency?* — **Ad-Dhuhaa (93:8)**
+> 📖 *YOU ARE OBSESSED by greed for more and more* — **At-Takaathur (102:1)**
 <!-- quran-verse-end -->
 
 ---
