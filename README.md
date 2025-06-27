@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, He let loose upon them great swarms of flying creatures* — **Al-Fil (105:3)**
+> 📖 *And found thee in want, and given thee sufficiency?* — **Ad-Dhuhaa (93:8)**
 <!-- quran-verse-end -->
 
 ---
