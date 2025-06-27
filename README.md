@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and I am bidden to be foremost among those who surrender themselves unto God.”* — **Az-Zumar (39:12)**
+> 📖 *[they do turn their backs on it] inasmuch as they are wont to say unto those who abhor all that God has revealed, “We will comply with your views on some points.” But God knows their secret thoughts:* — **Muhammad (47:26)**
 <!-- quran-verse-end -->
 
 ---
