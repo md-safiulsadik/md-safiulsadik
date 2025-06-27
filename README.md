@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[For this] We shall brand him with indelible disgrace!* — **Al-Qalam (68:16)**
+> 📖 *And the sorcerers came unto Pharaoh [and] said: "Verily, we ought to have a great reward if it is we who prevail."* — **Al-A'raaf (7:113)**
 <!-- quran-verse-end -->
 
 ---
