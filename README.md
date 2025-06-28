@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *then He causes him to be begotten out of the essence of a humble fluid;* — **As-Sajda (32:8)**
+> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
 <!-- quran-verse-end -->
 
 ---
