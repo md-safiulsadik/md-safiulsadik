@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
+> 📖 *[To this end,] God sets forth a parable: A man who has for his masters several partners, [all of them] at variance with one another, and a man depending wholly on one person: can these two be deemed equal as regards their condition? [Nay,] all praise is due to God [alone]: but most of them do not understand this.* — **Az-Zumar (39:29)**
 <!-- quran-verse-end -->
 
 ---
