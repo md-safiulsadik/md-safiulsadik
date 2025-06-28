@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O MEN! A parable is set forth [herewith]; hearken, then, to it! Behold, those beings whom you invoke instead of God cannot create [as much as] a fly, even were they to join all their forces to that end! And if a fly robs them of anything, they cannot [even] rescue it from him! Weak indeed is the seeker, and [weak] the sought!* — **Al-Hajj (22:73)**
+> 📖 *and while We are closer to him than you, although you see [Us] not -:* — **Al-Waaqia (56:85)**
 <!-- quran-verse-end -->
 
 ---
