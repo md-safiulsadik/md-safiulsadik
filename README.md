@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“Peace be upon Elijah and his followers!”* — **As-Saaffaat (37:130)**
+> 📖 *O YOU who have attained to faith! Call to mind the blessings which God bestowed on you (at the time) when [enemy] hosts came down upon you, where­upon We let loose against them a storm wind and [heavenly] hosts that you could not see: yet God saw all that you did.* — **Al-Ahzaab (33:9)**
 <!-- quran-verse-end -->
 
 ---
