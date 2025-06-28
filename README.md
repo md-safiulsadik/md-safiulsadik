@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"'And God has caused you to grow out of the earth in [gradual] growth; and thereafter He will return you to it [in death]:* — **Nooh (71:17)**
+> 📖 *And so, God will preserve them from the woes of that Day, and will bestow on them brightness and joy,* — **Al-Insaan (76:11)**
 <!-- quran-verse-end -->
 
 ---
