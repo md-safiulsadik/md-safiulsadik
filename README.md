@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the mountains will be like fluffy tufts of wool....* — **Al-Qaari'a (101:5)**
+> 📖 *as well as all that you cannot see!* — **Al-Haaqqa (69:39)**
 <!-- quran-verse-end -->
 
 ---
