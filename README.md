@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and while We are closer to him than you, although you see [Us] not -:* — **Al-Waaqia (56:85)**
+> 📖 *Said [Jacob]: "I will not send him with you until you give me a solemn pledge, before God, that you will indeed bring him back unto me, unless you yourselves be encompassed [by death]!" And when they had given him their solemn pledge, [Jacob] said: "God is witness to all that we say!"* — **Yusuf (12:66)**
 <!-- quran-verse-end -->
 
 ---
