@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
+> 📖 *And his friend answered him in the course of their argument: "Wilt thou blaspheme against Him who has created thee out of dust, and then out of a drop of sperm, and in the end has fashioned thee into a [complete] man?* — **Al-Kahf (18:37)**
 <!-- quran-verse-end -->
 
 ---
