@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[To this end,] God sets forth a parable: A man who has for his masters several partners, [all of them] at variance with one another, and a man depending wholly on one person: can these two be deemed equal as regards their condition? [Nay,] all praise is due to God [alone]: but most of them do not understand this.* — **Az-Zumar (39:29)**
+> 📖 *For, it is neither your riches nor your children that can bring you nearer to Us: only he who attains to faith and does what is right and just [comes near unto Us]; and it is [such as] these whom multiple recompense awaits for all that they have done; and it is they who shall dwell secure in the mansions [of paradise] –* — **Saba (34:37)**
 <!-- quran-verse-end -->
 
 ---
