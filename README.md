@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Thereupon] the word was spoken: "O Noah! Disembark in peace from Us, and with [Our] blessings upon thee as well as upon the people [who are with thee, and the righteous ones that will spring from thee and] from those who are with thee. But [as for the unrighteous] folk [that will spring from you] - We shall allow them to enjoy life [for a little while], and then there will befall them grievous suffering from Us."* — **Hud (11:48)**
+> 📖 *shall find himself in a happy' state of life;* — **Al-Qaari'a (101:7)**
 <!-- quran-verse-end -->
 
 ---
