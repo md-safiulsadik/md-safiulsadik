@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[To both kinds of your enemies, O believers, is bound to happen] the like of [what happened to] those who, a short while before them, had to taste the evil that came from their own doings, with [yet more] grievous suffering awaiting them [in the life to come]:* — **Al-Hashr (59:15)**
+> 📖 *[Thereupon] the word was spoken: "O Noah! Disembark in peace from Us, and with [Our] blessings upon thee as well as upon the people [who are with thee, and the righteous ones that will spring from thee and] from those who are with thee. But [as for the unrighteous] folk [that will spring from you] - We shall allow them to enjoy life [for a little while], and then there will befall them grievous suffering from Us."* — **Hud (11:48)**
 <!-- quran-verse-end -->
 
 ---
