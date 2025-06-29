@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *you would indeed, most surely, behold the blazing fire [of hell]!* — **At-Takaathur (102:6)**
+> 📖 *and unto thy Sustainer turn with love.* — **Ash-Sharh (94:8)**
 <!-- quran-verse-end -->
 
 ---
