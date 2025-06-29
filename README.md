@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[In the end] they said: "Oh, woe unto us! Verily, we did behave outrageously!* — **Al-Qalam (68:31)**
+> 📖 *and then, when they disdainfully persisted in doing what they had been forbidden to do, We said unto them: "Be as apes despicable!"* — **Al-A'raaf (7:166)**
 <!-- quran-verse-end -->
 
 ---
