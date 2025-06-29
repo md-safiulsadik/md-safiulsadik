@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *IS NOT God enough for His servant? And yet, they would frighten thee with those [imaginary divine powers which they worship] beside Him! But he whom God lets go astray can never find any guide,* — **Az-Zumar (39:36)**
+> 📖 *And, verily, nearness to Us awaits him [in the life to come], and the most beauteous of all goals!* — **Saad (38:40)**
 <!-- quran-verse-end -->
 
 ---
