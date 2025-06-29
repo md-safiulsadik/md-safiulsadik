@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *of Pharaoh, and of [the tribe of] Thamud?* — **Al-Burooj (85:18)**
+> 📖 *"'And God has made the earth a wide expanse for you,* — **Nooh (71:19)**
 <!-- quran-verse-end -->
 
 ---
