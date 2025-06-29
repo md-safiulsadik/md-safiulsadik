@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [have We not] raised thee high in dignity?* — **Ash-Sharh (94:4)**
+> 📖 *When those [heavenly messengers] came unto him and bade him peace, he answered, “[And upon you be] peace!” - [saying to himself,] “They are strangers.”* — **Adh-Dhaariyat (51:25)**
 <!-- quran-verse-end -->
 
 ---
