@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, if those who are bent on denying the truth had all that is on earth, and twice as much, to offer as ransom from suffering on the Day of Resurrection, it would not be accepted from them: for grievous suffering awaits them.* — **Al-Maaida (5:36)**
+> 📖 *although His is all that dwells in the night and the day, and He alone is all-hearing, all-knowing.* — **Al-An'aam (6:13)**
 <!-- quran-verse-end -->
 
 ---
