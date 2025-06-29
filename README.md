@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Who could protect you, by night or by day, from the Most Gracious?” And yet, from a remembrance of their Sustainer do they stubbornly turn away!* — **Al-Anbiyaa (21:42)**
+> 📖 *Verily, as for those who have attained to faith [in this divine writ], and those who follow the Jewish faith, and the Sabians, and the Christians, and the Magians, [on the one hand,] and those who are bent on ascribing divinity to aught but God, [on the other,] verily, God will decide between them on Resurrection Day: for, behold, God is witness unto everything.* — **Al-Hajj (22:17)**
 <!-- quran-verse-end -->
 
 ---
