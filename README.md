@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *although His is all that dwells in the night and the day, and He alone is all-hearing, all-knowing.* — **Al-An'aam (6:13)**
+> 📖 *noble, recording,* — **Al-Infitaar (82:11)**
 <!-- quran-verse-end -->
 
 ---
