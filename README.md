@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *When those [heavenly messengers] came unto him and bade him peace, he answered, “[And upon you be] peace!” - [saying to himself,] “They are strangers.”* — **Adh-Dhaariyat (51:25)**
+> 📖 *Not equal are those who are destined for the fire and those who are destined for paradise: those who are destined for paradise - it is they, they [alone] who shall triumph [on Judgment Day]!* — **Al-Hashr (59:20)**
 <!-- quran-verse-end -->
 
 ---
