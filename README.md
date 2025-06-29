@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Return thou unto thy Sustainer, well-pleased [and] pleasing [Him]:* — **Al-Fajr (89:28)**
+> 📖 *IS NOT God enough for His servant? And yet, they would frighten thee with those [imaginary divine powers which they worship] beside Him! But he whom God lets go astray can never find any guide,* — **Az-Zumar (39:36)**
 <!-- quran-verse-end -->
 
 ---
