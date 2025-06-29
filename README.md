@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Hence,] O you who have attained to faith, when you meet a host in battle, be firm, and remember God often; so that you might attain to a happy state!* — **Al-Anfaal (8:45)**
+> 📖 *Say: “Who could protect you, by night or by day, from the Most Gracious?” And yet, from a remembrance of their Sustainer do they stubbornly turn away!* — **Al-Anbiyaa (21:42)**
 <!-- quran-verse-end -->
 
 ---
