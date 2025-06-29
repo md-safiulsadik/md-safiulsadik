@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"And I will not worship ~hat which you have [ever] worshipped,* — **Al-Kaafiroon (109:4)**
+> 📖 *of Pharaoh, and of [the tribe of] Thamud?* — **Al-Burooj (85:18)**
 <!-- quran-verse-end -->
 
 ---
