@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and unto thy Sustainer turn with love.* — **Ash-Sharh (94:8)**
+> 📖 *Furthermore, [this divine writ is meant] to warn all those who assert, "God has taken unto Himself a son."* — **Al-Kahf (18:4)**
 <!-- quran-verse-end -->
 
 ---
