@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "I seek refuge with the Sustainer of the rising dawn,* — **Al-Falaq (113:1)**
+> 📖 *[In the end] they said: "Oh, woe unto us! Verily, we did behave outrageously!* — **Al-Qalam (68:31)**
 <!-- quran-verse-end -->
 
 ---
