@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then, when they disdainfully persisted in doing what they had been forbidden to do, We said unto them: "Be as apes despicable!"* — **Al-A'raaf (7:166)**
+> 📖 *"And I will not worship ~hat which you have [ever] worshipped,* — **Al-Kaafiroon (109:4)**
 <!-- quran-verse-end -->
 
 ---
