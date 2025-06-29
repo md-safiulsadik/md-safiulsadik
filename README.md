@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Furthermore, [this divine writ is meant] to warn all those who assert, "God has taken unto Himself a son."* — **Al-Kahf (18:4)**
+> 📖 *Verily, if those who are bent on denying the truth had all that is on earth, and twice as much, to offer as ransom from suffering on the Day of Resurrection, it would not be accepted from them: for grievous suffering awaits them.* — **Al-Maaida (5:36)**
 <!-- quran-verse-end -->
 
 ---
