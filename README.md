@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"'And God has made the earth a wide expanse for you,* — **Nooh (71:19)**
+> 📖 *Return thou unto thy Sustainer, well-pleased [and] pleasing [Him]:* — **Al-Fajr (89:28)**
 <!-- quran-verse-end -->
 
 ---
