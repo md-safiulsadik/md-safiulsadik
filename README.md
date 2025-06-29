@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, verily, nearness to Us awaits him [in the life to come], and the most beauteous of all goals!* — **Saad (38:40)**
+> 📖 *[Hence,] O you who have attained to faith, when you meet a host in battle, be firm, and remember God often; so that you might attain to a happy state!* — **Al-Anfaal (8:45)**
 <!-- quran-verse-end -->
 
 ---
