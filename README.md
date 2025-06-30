@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Alif. Lam. Mim.* — **Ar-Room (30:1)**
+> 📖 *and say: "Behold, I am indeed the plain warner [promised by God]!* — **Al-Hijr (15:89)**
 <!-- quran-verse-end -->
 
 ---
