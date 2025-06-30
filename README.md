@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and feels no urge to feed the needy.* — **Al-Maa'un (107:3)**
+> 📖 *Alif. Lam. Mim.* — **Ar-Room (30:1)**
 <!-- quran-verse-end -->
 
 ---
