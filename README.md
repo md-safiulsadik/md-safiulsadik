@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And He it is who has caused you to multiply on earth; and unto Him you shall be gathered.* — **Al-Muminoon (23:79)**
+> 📖 *And [you have the same message] in [what happened to the tribe of] Ad, when We let loose against them that life-destroying wind* — **Adh-Dhaariyat (51:41)**
 <!-- quran-verse-end -->
 
 ---
