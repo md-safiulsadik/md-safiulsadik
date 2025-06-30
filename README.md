@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They think that the Confederates have not [really] withdrawn; and should the Confederates return, these [hypocrites] would prefer to be in the desert, among the bedouin, asking for news about you, [O believers, from far away;] and even were they to find themselves in your midst, they would but make a pretence at fighting [by your side].* — **Al-Ahzaab (33:20)**
+> 📖 *Thee alone do we worship; and unto Thee alone do we turn for aid.* — **Al-Faatiha (1:5)**
 <!-- quran-verse-end -->
 
 ---
