@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then We caused those who stayed behind to drown.* — **Ash-Shu'araa (26:120)**
+> 📖 *And He it is who has caused you to multiply on earth; and unto Him you shall be gathered.* — **Al-Muminoon (23:79)**
 <!-- quran-verse-end -->
 
 ---
