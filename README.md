@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and waters gushing,* — **Al-Waaqia (56:31)**
+> 📖 *Say: "We believe in God, and in that which has been bestowed from on high upon us, and that which has been bestowed upon Abraham and Ishmael and Isaac and Jacob and their descendants, and that which has been vouchsafed by their Sustainer unto Moses and Jesus and all the [other] prophets: we make no distinction between any of them. And unto Him do we surrender ourselves."* — **Aal-i-Imraan (3:84)**
 <!-- quran-verse-end -->
 
 ---
