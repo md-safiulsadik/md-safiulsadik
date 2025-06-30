@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Is it not to God alone that all sincere faith is due? And yet, they who take for their protectors aught beside Him [are wont to say], “We worship them for no other reason than that they bring us nearer to God.” Behold, God will judge between them [on Resur­rection Day] with regard to all wherein they differ [from the truth]: for, verily, God does not grace with His guidance anyone who is bent on lying [to himself and is] stubbornly ingrate!* — **Az-Zumar (39:3)**
+> 📖 *SO THAT the Quraysh might remain secure,* — **Quraish (106:1)**
 <!-- quran-verse-end -->
 
 ---
