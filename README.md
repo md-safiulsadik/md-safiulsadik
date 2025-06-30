@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "We believe in God, and in that which has been bestowed from on high upon us, and that which has been bestowed upon Abraham and Ishmael and Isaac and Jacob and their descendants, and that which has been vouchsafed by their Sustainer unto Moses and Jesus and all the [other] prophets: we make no distinction between any of them. And unto Him do we surrender ourselves."* — **Aal-i-Imraan (3:84)**
+> 📖 *And if they give thee the lie - even so gave the lie to the truth [many of] those who lived before their time, [when] there came unto them their apostles with all evidence of the truth, and with books of divine wisdom, and with light-giving revelation;* — **Faatir (35:25)**
 <!-- quran-verse-end -->
 
 ---
