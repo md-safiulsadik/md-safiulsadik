@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And if they give thee the lie - even so gave the lie to the truth [many of] those who lived before their time, [when] there came unto them their apostles with all evidence of the truth, and with books of divine wisdom, and with light-giving revelation;* — **Faatir (35:25)**
+> 📖 *[And yet,] some say, "What! Are we indeed to be restored to our former state –* — **An-Naazi'aat (79:10)**
 <!-- quran-verse-end -->
 
 ---
