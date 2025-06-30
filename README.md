@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and say: "Behold, I am indeed the plain warner [promised by God]!* — **Al-Hijr (15:89)**
+> 📖 *And so, when Our judgment came to pass, by Our grace We saved Hud and those who shared his faith; and We saved them [too] from suffering severe [in the life to come].* — **Hud (11:58)**
 <!-- quran-verse-end -->
 
 ---
