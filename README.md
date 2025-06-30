@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now if God were to take men [at once] to task for whatever [wrong] they commit [on earth], He would not leave a single living creature upon its surface. However, He grants them respite for a term set [by Him]: but when their term comes to an end - then, verily, [they come to know that] God sees all that is in [the hearts of] His servants.* — **Faatir (35:45)**
+> 📖 *And [this happened, too,] when Jesus, the son of Mary, said: "O children of Israel! Behold, I am an apostle of God unto you, [sent] to confirm the truth of whatever there still remains of the Torah, and to give [you] the glad tiding of an apostle who shall come after me, whose name shall be Ahmad." But when he [whose coming Jesus had foretold] came unto them with all evidence of the truth, they said: "This [alleged message of his] is [nothing but] spellbinding eloquence!"* — **As-Saff (61:6)**
 <!-- quran-verse-end -->
 
 ---
