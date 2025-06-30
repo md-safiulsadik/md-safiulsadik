@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And yet,] some say, "What! Are we indeed to be restored to our former state –* — **An-Naazi'aat (79:10)**
+> 📖 *They think that the Confederates have not [really] withdrawn; and should the Confederates return, these [hypocrites] would prefer to be in the desert, among the bedouin, asking for news about you, [O believers, from far away;] and even were they to find themselves in your midst, they would but make a pretence at fighting [by your side].* — **Al-Ahzaab (33:20)**
 <!-- quran-verse-end -->
 
 ---
