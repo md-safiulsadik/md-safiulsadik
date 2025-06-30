@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *as thy Sustainer will have inspired her to do!* — **Az-Zalzala (99:5)**
+> 📖 *"O my Sustainer! Grant Thy forgiveness unto me and unto my parents, and unto everyone who enters my house as a believer, and unto all believing men and believing women [of later times]; and grant Thou that the doers of evil shall increasingly meet with destruction!"'* — **Nooh (71:28)**
 <!-- quran-verse-end -->
 
 ---
