@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [you have the same message] in [what happened to the tribe of] Ad, when We let loose against them that life-destroying wind* — **Adh-Dhaariyat (51:41)**
+> 📖 *[Whereupon God will command:] “Cast, cast into hell every [such] stubborn enemy of the truth,* — **Qaaf (50:24)**
 <!-- quran-verse-end -->
 
 ---
