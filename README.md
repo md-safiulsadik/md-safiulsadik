@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
+> 📖 *Thus, as for him who gives [to others] and is conscious of God,* — **Al-Lail (92:5)**
 <!-- quran-verse-end -->
 
 ---
