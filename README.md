@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and on that Day you will most surely be called to account for [what you did with] the boon of life!* — **At-Takaathur (102:8)**
+> 📖 *GOD CREATES [man] in the first instance, and then brings him forth anew: and, in the end, unto Him you all will be brought back.* — **Ar-Room (30:11)**
 <!-- quran-verse-end -->
 
 ---
