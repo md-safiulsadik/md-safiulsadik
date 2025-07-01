@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then, behold, on the Day of Resurrection you all shall place your dispute before your Sustainer.* — **Az-Zumar (39:31)**
+> 📖 *God - there is no deity save Him! In God then let the believers place their trust.* — **At-Taghaabun (64:13)**
 <!-- quran-verse-end -->
 
 ---
