@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In this [story], behold, there are messages indeed [for those who think]: for, verily, We always put [man] to a test.* — **Al-Muminoon (23:30)**
+> 📖 *and then, behold, on the Day of Resurrection you all shall place your dispute before your Sustainer.* — **Az-Zumar (39:31)**
 <!-- quran-verse-end -->
 
 ---
