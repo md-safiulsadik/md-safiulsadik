@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O our Sustainer! Make us not a plaything for those who are bent on denying the truth! And forgive us our sins, O our sustainer: for Thou alone art, almighty, truly wise!"* — **Al-Mumtahana (60:5)**
+> 📖 *[and he shall be told:] “This is an outcome of what thine own hands have wrought - for, never does God do the least wrong to His creatures!”* — **Al-Hajj (22:10)**
 <!-- quran-verse-end -->
 
 ---
