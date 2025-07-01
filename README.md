@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet even had We opened to them a gateway to heaven and they had ascended, on and on, up to it,* — **Al-Hijr (15:14)**
+> 📖 *Verily, We create man in the best conformation;* — **At-Tin (95:4)**
 <!-- quran-verse-end -->
 
 ---
