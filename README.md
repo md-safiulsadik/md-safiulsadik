@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, We create man in the best conformation;* — **At-Tin (95:4)**
+> 📖 *And [only] unto those who followed the Jewish faith did We forbid all that We have mentioned to thee ere this; and no wrong did We do to them, but it was they who persistently wronged themselves.* — **An-Nahl (16:118)**
 <!-- quran-verse-end -->
 
 ---
