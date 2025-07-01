@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *GOD CREATES [man] in the first instance, and then brings him forth anew: and, in the end, unto Him you all will be brought back.* — **Ar-Room (30:11)**
+> 📖 *O our Sustainer! Make us not a plaything for those who are bent on denying the truth! And forgive us our sins, O our sustainer: for Thou alone art, almighty, truly wise!"* — **Al-Mumtahana (60:5)**
 <!-- quran-verse-end -->
 
 ---
