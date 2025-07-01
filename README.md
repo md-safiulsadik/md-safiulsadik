@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and of his spouse, and of his brother,* — **Al-Ma'aarij (70:12)**
+> 📖 *hence, how [will they fare] when the angels gather them in death, striking their faces and their backs?* — **Muhammad (47:27)**
 <!-- quran-verse-end -->
 
 ---
