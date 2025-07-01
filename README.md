@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHEN THE EARTH quakes with her [last] mighty quaking,* — **Az-Zalzala (99:1)**
+> 📖 *Not one of all [the beings] that are in the heavens or on earth appears before the Most Gracious other than as a servant:* — **Maryam (19:93)**
 <!-- quran-verse-end -->
 
 ---
