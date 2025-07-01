@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *hence, how [will they fare] when the angels gather them in death, striking their faces and their backs?* — **Muhammad (47:27)**
+> 📖 *whereas those who have attained to faith and do righteous deeds, and have come to believe in what has been bestowed from on high on Muhammad - for it is the truth from their Sustainer - [shall attain to God’s grace:] He will efface their [past] bad deeds, and will set their hearts at rest.* — **Muhammad (47:2)**
 <!-- quran-verse-end -->
 
 ---
