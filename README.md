@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Unto you, your moral law, and unto me, mine!"* — **Al-Kaafiroon (109:6)**
+> 📖 *WHEN THE EARTH quakes with her [last] mighty quaking,* — **Az-Zalzala (99:1)**
 <!-- quran-verse-end -->
 
 ---
