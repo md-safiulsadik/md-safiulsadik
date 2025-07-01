@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [only] unto those who followed the Jewish faith did We forbid all that We have mentioned to thee ere this; and no wrong did We do to them, but it was they who persistently wronged themselves.* — **An-Nahl (16:118)**
+> 📖 *and on that Day you will most surely be called to account for [what you did with] the boon of life!* — **At-Takaathur (102:8)**
 <!-- quran-verse-end -->
 
 ---
