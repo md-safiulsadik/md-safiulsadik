@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Neither shall you be called to account for whatever we may have become guilty of, nor shall we be called to account for whatever you are doing.”* — **Saba (34:25)**
+> 📖 *although thou art not accountable for his failure to attain to purity;* — **Abasa (80:7)**
 <!-- quran-verse-end -->
 
 ---
