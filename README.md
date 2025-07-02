@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas for those who were bent on denying the truth and gave the lie to Our messages, there shall be shameful suffering in store.* — **Al-Hajj (22:57)**
+> 📖 *And [one day,] when [the child] had become old enough to share in his [father’s] endeavours, the latter said: “O my dear son! I have seen in a dream that I should sacrifice thee: consider, then, what would be thy view!” [Ishmael] answered: “O my father! Do as thou art bidden: thou wilt find me, if God so wills, among those who are patient in adversity!”* — **As-Saaffaat (37:102)**
 <!-- quran-verse-end -->
 
 ---
