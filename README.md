@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "Behold, the death from which you are fleeing is bound to overtake you - and then you will be brought back unto Him who knows all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind, whereupon He will make you truly understand all that you were doing [in life].* — **Al-Jumu'a (62:8)**
+> 📖 *But nay! It is [the very coming of] the Last Hour to which they give the lie! However, for such as give the lie to [the announce­ment of] the Last Hour We have readied a blazing flame:* — **Al-Furqaan (25:11)**
 <!-- quran-verse-end -->
 
 ---
