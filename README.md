@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *secure in their winter and summer journeys,* — **Quraish (106:2)**
+> 📖 *luxuriant gardens and vinyards,* — **An-Naba (78:32)**
 <!-- quran-verse-end -->
 
 ---
