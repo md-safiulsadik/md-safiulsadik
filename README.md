@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [one day,] when [the child] had become old enough to share in his [father’s] endeavours, the latter said: “O my dear son! I have seen in a dream that I should sacrifice thee: consider, then, what would be thy view!” [Ishmael] answered: “O my father! Do as thou art bidden: thou wilt find me, if God so wills, among those who are patient in adversity!”* — **As-Saaffaat (37:102)**
+> 📖 *And for those who have attained to faith God has propounded a parable in [the story of] Pharaoh's wife as she prayed "O my Sustainer! Build Thou for me a mansion in the paradise [that is] with Thee, and save me from Pharaoh and his doings, and save me, from all evildoing folk!* — **At-Tahrim (66:11)**
 <!-- quran-verse-end -->
 
 ---
