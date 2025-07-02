@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BUT IF they turn away, say: “I warn you of [the coming of] a thunderbolt of punishment like the thunderbolt [that fell upon the tribes] of Ad and Thamud!”* — **Fussilat (41:13)**
+> 📖 *and caused them to become like a field of grain that has been eaten down to stubble* — **Al-Fil (105:5)**
 <!-- quran-verse-end -->
 
 ---
