@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, he that hates thee has indeed been cut off [from all that is good]!* — **Al-Kawthar (108:3)**
+> 📖 *Nay - who is it that has created the heavens and the earth, and sends down for you [life-giving] water from the skies? For it is by this means that We cause gardens of shining beauty to grow - [whereas] it is not in your power to cause [even one single of] its trees to grow! Could there be any divine power besides God? Nay, they [who think so] are people who swerve [from the path of reason]* — **An-Naml (27:60)**
 <!-- quran-verse-end -->
 
 ---
