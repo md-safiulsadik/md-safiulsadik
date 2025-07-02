@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In the end you will indeed, most surely, behold it with the eye of certainty:* — **At-Takaathur (102:7)**
+> 📖 *and whenever good fortune comes to him, he selfishly withholds it [from others].* — **Al-Ma'aarij (70:21)**
 <!-- quran-verse-end -->
 
 ---
