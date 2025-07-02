@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas those who have attained to faith and do righteous deeds, and have come to believe in what has been bestowed from on high on Muhammad - for it is the truth from their Sustainer - [shall attain to God’s grace:] He will efface their [past] bad deeds, and will set their hearts at rest.* — **Muhammad (47:2)**
+> 📖 *Only they who listen [with their hearts] can respond to a call; and as for the dead [of heart], God [alone] can raise them from the dead, whereupon unto Him they shall return.* — **Al-An'aam (6:36)**
 <!-- quran-verse-end -->
 
 ---
