@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Yet] We never send down angels otherwise than in accordance with the [demands of] truth; and [were the angels to appear now,] lo! they [who reject this divine writ] would have no further respite!* — **Al-Hijr (15:8)**
+> 📖 *In the end you will indeed, most surely, behold it with the eye of certainty:* — **At-Takaathur (102:7)**
 <!-- quran-verse-end -->
 
 ---
