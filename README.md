@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Only they who listen [with their hearts] can respond to a call; and as for the dead [of heart], God [alone] can raise them from the dead, whereupon unto Him they shall return.* — **Al-An'aam (6:36)**
+> 📖 *BUT IF they turn away, say: “I warn you of [the coming of] a thunderbolt of punishment like the thunderbolt [that fell upon the tribes] of Ad and Thamud!”* — **Fussilat (41:13)**
 <!-- quran-verse-end -->
 
 ---
