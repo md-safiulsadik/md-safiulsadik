@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[For,] were it Our will, We could indeed turn it into chaff, and you would be left to wonder [and to lament],* — **Al-Waaqia (56:65)**
+> 📖 *whereas for those who were bent on denying the truth and gave the lie to Our messages, there shall be shameful suffering in store.* — **Al-Hajj (22:57)**
 <!-- quran-verse-end -->
 
 ---
