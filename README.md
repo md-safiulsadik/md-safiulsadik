@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay - who is it that has created the heavens and the earth, and sends down for you [life-giving] water from the skies? For it is by this means that We cause gardens of shining beauty to grow - [whereas] it is not in your power to cause [even one single of] its trees to grow! Could there be any divine power besides God? Nay, they [who think so] are people who swerve [from the path of reason]* — **An-Naml (27:60)**
+> 📖 *Say: "Behold, the death from which you are fleeing is bound to overtake you - and then you will be brought back unto Him who knows all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind, whereupon He will make you truly understand all that you were doing [in life].* — **Al-Jumu'a (62:8)**
 <!-- quran-verse-end -->
 
 ---
