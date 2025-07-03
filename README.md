@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and people ask, "Is there any wizard [that could save him]?"* — **Al-Qiyaama (75:27)**
+> 📖 *Consider [God’s] revelation, inscribed* — **At-Tur (52:2)**
 <!-- quran-verse-end -->
 
 ---
