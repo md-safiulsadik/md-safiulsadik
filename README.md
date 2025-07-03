@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *with darkness overspread:* — **Abasa (80:41)**
+> 📖 *even though we may have become [a heap of] crumbling bones?"* — **An-Naazi'aat (79:11)**
 <!-- quran-verse-end -->
 
 ---
