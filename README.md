@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[with] fire closing in upon them.* — **Al-Balad (90:20)**
+> 📖 *and people ask, "Is there any wizard [that could save him]?"* — **Al-Qiyaama (75:27)**
 <!-- quran-verse-end -->
 
 ---
