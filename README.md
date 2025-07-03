@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On the Day when you behold it, every woman that feeds a child at her breast will utterly forget her nursling, and every woman heavy with child will bring forth her burden [before her time]; and it will seem to thee that all mankind is drunk, although they will not be drunk - but vehement will be [their dread of] God’s chastisement.* — **Al-Hajj (22:2)**
+> 📖 *with darkness overspread:* — **Abasa (80:41)**
 <!-- quran-verse-end -->
 
 ---
