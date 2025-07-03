@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the earth is leveled,* — **Al-Inshiqaaq (84:3)**
+> 📖 *it swept the people away as though they were palm-trunks uprooted:* — **Al-Qamar (54:20)**
 <!-- quran-verse-end -->
 
 ---
