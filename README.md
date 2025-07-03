@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider [God’s] revelation, inscribed* — **At-Tur (52:2)**
+> 📖 *enter, then, together with My [other true] servants –* — **Al-Fajr (89:29)**
 <!-- quran-verse-end -->
 
 ---
