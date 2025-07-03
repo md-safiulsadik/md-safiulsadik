@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *wherein there are ordinances of ever-true soundness and clarity.* — **Al-Bayyina (98:3)**
+> 📖 *and the mountains will be like tufts of wool,* — **Al-Ma'aarij (70:9)**
 <!-- quran-verse-end -->
 
 ---
