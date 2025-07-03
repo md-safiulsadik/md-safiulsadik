@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Do they who are bent on denying the truth think, perchance, that they could take [any of] My creatures for protectors against Me? Verily, We have readied hell to welcome all who [thus] deny the truth!* — **Al-Kahf (18:102)**
+> 📖 *[And all who are thus blest will be told:] "Eat and drink with good cheer in return for all [the good deeds] that you have sent ahead in days gone by!"* — **Al-Haaqqa (69:24)**
 <!-- quran-verse-end -->
 
 ---
