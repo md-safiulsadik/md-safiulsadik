@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *when he spoke [thus] unto his father: "O my father! Why dost thou worship something that neither hears nor sees and can be of no avail whatever to thee?* — **Maryam (19:42)**
+> 📖 *Do they who are bent on denying the truth think, perchance, that they could take [any of] My creatures for protectors against Me? Verily, We have readied hell to welcome all who [thus] deny the truth!* — **Al-Kahf (18:102)**
 <!-- quran-verse-end -->
 
 ---
