@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *although thou art not accountable for his failure to attain to purity;* — **Abasa (80:7)**
+> 📖 *when he spoke [thus] unto his father: "O my father! Why dost thou worship something that neither hears nor sees and can be of no avail whatever to thee?* — **Maryam (19:42)**
 <!-- quran-verse-end -->
 
 ---
