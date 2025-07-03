@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *If you do deeds of charity openly, it is well; but if you bestow it upon the needy in secret, it will be even better for you, and it will atone for some of your bad deeds. And God is aware of all that you do.* — **Al-Baqara (2:271)**
+> 📖 *wherein there are ordinances of ever-true soundness and clarity.* — **Al-Bayyina (98:3)**
 <!-- quran-verse-end -->
 
 ---
