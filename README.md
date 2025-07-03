@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Moses said unto him: "May I follow thee on the understanding that thou wilt impart to me something of that consciousness of what is right which has been imparted to thee?"* — **Al-Kahf (18:66)**
+> 📖 *And what could make thee conceive what that Day of Distinction will be?* — **Al-Mursalaat (77:14)**
 <!-- quran-verse-end -->
 
 ---
