@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But leave them to indulge in idle talk and play [with words] until they face that [Judgment] Day of theirs which they have been promised:* — **Az-Zukhruf (43:83)**
+> 📖 *[with] fire closing in upon them.* — **Al-Balad (90:20)**
 <!-- quran-verse-end -->
 
 ---
