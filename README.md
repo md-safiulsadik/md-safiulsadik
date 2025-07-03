@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *enter, then, together with My [other true] servants –* — **Al-Fajr (89:29)**
+> 📖 *Moses said unto him: "May I follow thee on the understanding that thou wilt impart to me something of that consciousness of what is right which has been imparted to thee?"* — **Al-Kahf (18:66)**
 <!-- quran-verse-end -->
 
 ---
