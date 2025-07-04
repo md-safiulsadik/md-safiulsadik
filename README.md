@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what that Judgment Day will be?* — **Al-Infitaar (82:17)**
+> 📖 *and rebelled against their Sustainer's apostles: and so He took them to task with a punishing grasp exceedingly severe!* — **Al-Haaqqa (69:10)**
 <!-- quran-verse-end -->
 
 ---
