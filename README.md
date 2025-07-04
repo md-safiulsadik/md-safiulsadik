@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And on that Day will they [who had thus been sinning, belatedly] proffer their surrender to God; and all their false imagery will have forsaken them.* — **An-Nahl (16:87)**
+> 📖 *And once again: We shall save [from hell] those who have been conscious of Us; but We shall leave in it the evildoers, on their knees.* — **Maryam (19:72)**
 <!-- quran-verse-end -->
 
 ---
