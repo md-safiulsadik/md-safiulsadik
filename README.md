@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, indeed, abiding suffering did befall them early on the morrow:* — **Al-Qamar (54:38)**
+> 📖 *HE IT IS who has made the earth a cradle for you, and has traced out for you ways [of livelihood] thereon, and [who] sends down waters from the sky: and by this means We bring forth various kinds of plants.* — **Taa-Haa (20:53)**
 <!-- quran-verse-end -->
 
 ---
