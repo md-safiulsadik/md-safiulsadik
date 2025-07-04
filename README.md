@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Unto you, your moral law, and unto me, mine!"* — **Al-Kaafiroon (109:6)**
+> 📖 *And on that Day will they [who had thus been sinning, belatedly] proffer their surrender to God; and all their false imagery will have forsaken them.* — **An-Nahl (16:87)**
 <!-- quran-verse-end -->
 
 ---
