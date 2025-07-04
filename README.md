@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, if he desist not, We shall most surely drag him down upon his forehead* — **Al-Alaq (96:15)**
+> 📖 *although God's apostle had told them, "It is a she-camel belonging to God, so let her drink [and do her no harm]!"* — **Ash-Shams (91:13)**
 <!-- quran-verse-end -->
 
 ---
