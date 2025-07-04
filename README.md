@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, He let loose upon them great swarms of flying creatures* — **Al-Fil (105:3)**
+> 📖 *Nay, if he desist not, We shall most surely drag him down upon his forehead* — **Al-Alaq (96:15)**
 <!-- quran-verse-end -->
 
 ---
