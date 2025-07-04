@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THIS ACCOUNT of something that was beyond the reach of thy perception We [now] reveal unto thee, [O Prophet:] for thou wert not with Joseph's brothers when they resolved upon what they were going to do and wove their schemes [against him].* — **Yusuf (12:102)**
+> 📖 *Thus, He let loose upon them great swarms of flying creatures* — **Al-Fil (105:3)**
 <!-- quran-verse-end -->
 
 ---
