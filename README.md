@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *or thou have a house [made] of gold, or thou ascend to heaven - but nay, we would not [even] believe in thy ascension unless thou bring down to us [from heaven] a writing which we [ourselves] could read! Say thou, [O Prophet:] "Limitless in His glory is my Sustainer! Am I, then, aught but a mortal man, an apostle?"* — **Al-Israa (17:93)**
+> 📖 *And yet, the sects [that follow the Bible] are at variance among themselves [about the nature of Jesus Woe, then, unto all who deny the truth when that awesome Day will appear!* — **Maryam (19:37)**
 <!-- quran-verse-end -->
 
 ---
