@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And He it is who out of this [very] water has created man, and has endowed him with [the con­sciousness of] descent and marriage-tie: for thy Sustainer is ever infinite in His power.* — **Al-Furqaan (25:54)**
+> 📖 *and then thrust him into a chain [of other sinners like him - a chain] the length whereof is seventy cubits:* — **Al-Haaqqa (69:32)**
 <!-- quran-verse-end -->
 
 ---
