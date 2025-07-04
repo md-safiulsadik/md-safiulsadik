@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and rebelled against their Sustainer's apostles: and so He took them to task with a punishing grasp exceedingly severe!* — **Al-Haaqqa (69:10)**
+> 📖 *THIS ACCOUNT of something that was beyond the reach of thy perception We [now] reveal unto thee, [O Prophet:] for thou wert not with Joseph's brothers when they resolved upon what they were going to do and wove their schemes [against him].* — **Yusuf (12:102)**
 <!-- quran-verse-end -->
 
 ---
