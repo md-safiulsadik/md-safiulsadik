@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then thrust him into a chain [of other sinners like him - a chain] the length whereof is seventy cubits:* — **Al-Haaqqa (69:32)**
+> 📖 *Unto you, your moral law, and unto me, mine!"* — **Al-Kaafiroon (109:6)**
 <!-- quran-verse-end -->
 
 ---
