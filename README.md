@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet, the sects [that follow the Bible] are at variance among themselves [about the nature of Jesus Woe, then, unto all who deny the truth when that awesome Day will appear!* — **Maryam (19:37)**
+> 📖 *[And he marched on] till, when he reached [a place] between the two mountain-barriers, he found beneath them a people who could scarcely understand a word [of his language].* — **Al-Kahf (18:93)**
 <!-- quran-verse-end -->
 
 ---
