@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And he marched on] till, when he reached [a place] between the two mountain-barriers, he found beneath them a people who could scarcely understand a word [of his language].* — **Al-Kahf (18:93)**
+> 📖 *And, indeed, abiding suffering did befall them early on the morrow:* — **Al-Qamar (54:38)**
 <!-- quran-verse-end -->
 
 ---
