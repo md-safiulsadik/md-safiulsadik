@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and believes in the truth of the ultimate good* — **Al-Lail (92:6)**
+> 📖 *Guide us the straight way.* — **Al-Faatiha (1:6)**
 <!-- quran-verse-end -->
 
 ---
