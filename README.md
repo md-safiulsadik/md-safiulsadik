@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And withal, they were not enjoined aught but that they should worship God, sincere in their faith in Him alone, turning away from all that is false; and that they should be constant in prayer; and that they should spend in charity: for this is a moral law endowed with ever-true soundness and clarity.* — **Al-Bayyina (98:5)**
+> 📖 *And unto thee [O Prophet] have We vouchsafed this divine writ, setting forth the truth, confirming the truth of whatever there still remains of earlier revelations and determining what is true therein. Judge, then, between the followers of earlier revelation in accordance with what God has bestowed from on high, and do not follow their errant views, forsaking the truth that has come unto thee. Unto every one of you have We appointed a [different] law and way of life. And if God had so willed, He could surely have made you all one single community: but [He willed it otherwise] in order to test you by means of what He has vouchsafed unto, you. Vie, then, with one another in doing good works! Unto God you all must return; and then He will make you truly understand all that on which you were wont to differ.* — **Al-Maaida (5:48)**
 <!-- quran-verse-end -->
 
 ---
