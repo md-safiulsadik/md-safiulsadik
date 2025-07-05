@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which smote them with stone-hard blows of chastisement pre-ordained,* — **Al-Fil (105:4)**
+> 📖 *And place thy trust in God [alone]: for none is as worthy of trust as God.* — **Al-Ahzaab (33:3)**
 <!-- quran-verse-end -->
 
 ---
