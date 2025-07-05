@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and preserve them from [doing] evil deeds: for anyone whom on that Day [of Judgment] Thou wilt have preserved from [the taint of] evil deeds, him wilt Thou have graced with Thy mercy: and that, that will be the triumph supreme!”* — **Ghafir (40:9)**
+> 📖 *for [we know] that sublimely exalted is our Sustainer's majesty: no consort has He ever taken unto Himself, nor a son!* — **Al-Jinn (72:3)**
 <!-- quran-verse-end -->
 
 ---
