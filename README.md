@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [know] that all worship is due to God [alone]: hence, do not invoke anyone side by side with God!* — **Al-Jinn (72:18)**
+> 📖 *and believes in the truth of the ultimate good* — **Al-Lail (92:6)**
 <!-- quran-verse-end -->
 
 ---
