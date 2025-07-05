@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But [thus it is:] whenever thou recitest the Qur'an, We place an invisible barrier between thee and those who will not believe in the life to come: -* — **Al-Israa (17:45)**
+> 📖 *which smote them with stone-hard blows of chastisement pre-ordained,* — **Al-Fil (105:4)**
 <!-- quran-verse-end -->
 
 ---
