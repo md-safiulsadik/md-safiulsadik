@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and if you [think that you] have a subterfuge left, try to outwit Me!"* — **Al-Mursalaat (77:39)**
+> 📖 *and preserve them from [doing] evil deeds: for anyone whom on that Day [of Judgment] Thou wilt have preserved from [the taint of] evil deeds, him wilt Thou have graced with Thy mercy: and that, that will be the triumph supreme!”* — **Ghafir (40:9)**
 <!-- quran-verse-end -->
 
 ---
