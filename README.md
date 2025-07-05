@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[All other kinds of] secret confabulations are but of Satan’s doing, so that he might cause grief to those who have attained to faith; yet he cannot harm them in the least, unless it be by God’s leave: in God, then, let the believers place their trust!* — **Al-Mujaadila (58:10)**
+> 📖 *IT IS NOT [conceivable] that such as are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God should ever be abandoned [by Him] ere there comes unto them the [full] evidence of the truth:* — **Al-Bayyina (98:1)**
 <!-- quran-verse-end -->
 
 ---
