@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Guide us the straight way.* — **Al-Faatiha (1:6)**
+> 📖 *and the moon, as it grows to its fullness:* — **Al-Inshiqaaq (84:18)**
 <!-- quran-verse-end -->
 
 ---
