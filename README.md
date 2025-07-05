@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And place thy trust in God [alone]: for none is as worthy of trust as God.* — **Al-Ahzaab (33:3)**
+> 📖 *And God wants to turn unto you in His mercy, whereas those who follow [only] their own lusts want you to drift far away from the right path.* — **An-Nisaa (4:27)**
 <!-- quran-verse-end -->
 
 ---
