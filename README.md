@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, it is [only] such as do not [really] believe in the life to come that regard the angels as female beings;* — **An-Najm (53:27)**
+> 📖 *for, none gives the lie to it but such as are wont to transgress against all that is [and are] immersed in sin:* — **Al-Mutaffifin (83:12)**
 <!-- quran-verse-end -->
 
 ---
