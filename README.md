@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY [O Prophet]: "What do you think? Whether God destroys me and those who follow me, or graces us with His mercy - is there anyone that could protect [you] deniers of the truth from grievous suffering [in the life to come]?"* — **Al-Mulk (67:28)**
+> 📖 *and if you [think that you] have a subterfuge left, try to outwit Me!"* — **Al-Mursalaat (77:39)**
 <!-- quran-verse-end -->
 
 ---
