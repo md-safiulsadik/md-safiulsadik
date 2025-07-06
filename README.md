@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, pay thou no heed to him, but prostrate thyself [before God] and draw close [unto Him]!* — **Al-Alaq (96:19)**
+> 📖 *Woe, then, unto those praying ones* — **Al-Maa'un (107:4)**
 <!-- quran-verse-end -->
 
 ---
