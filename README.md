@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, all who say, “Our Sustainer is God”, and thereafter stand firm [in their faith] - no fear need they have, and neither shall they grieve:* — **Al-Ahqaf (46:13)**
+> 📖 *amid gardens and springs,* — **Ad-Dukhaan (44:52)**
 <!-- quran-verse-end -->
 
 ---
