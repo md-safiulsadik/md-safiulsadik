@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *they who are true to their bond with God and never break their covenant;* — **Ar-Ra'd (13:20)**
+> 📖 *and is no idle tale.* — **At-Taariq (86:14)**
 <!-- quran-verse-end -->
 
 ---
