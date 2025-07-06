@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and so it is that] they who attain to faith and do righteous deeds are destined for happiness [in this world] and the most beauteous of all goals [in the life to come]!"* — **Ar-Ra'd (13:29)**
+> 📖 *[TRUE BELIEVERS are only they who have attained to faith in God and His Apostle, and who, whenever they are [engaged] with him upon a matter of concern to the whole community do not depart [from whatever has been decided upon] unless they have sought [and obtained] his leave. Verily, those who [do not abstain from the agreed ­upon action unless they] ask leave of thee - it is [only] they who [truly] believe in God and His Apostle! Hence, when they ask leave of thee for some [valid] reason of their own, grant thou this leave to whomsoever of them thou choose [to grant it], and ask God to forgive them: for, behold, God is much-forgiving, a dispenser of grace!* — **An-Noor (24:62)**
 <!-- quran-verse-end -->
 
 ---
