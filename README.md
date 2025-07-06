@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
+> 📖 *for, behold, We shall have brought them into being in a life renewed,* — **Al-Waaqia (56:35)**
 <!-- quran-verse-end -->
 
 ---
