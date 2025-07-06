@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, thou keepest indeed to a sublime way of life;* — **Al-Qalam (68:4)**
+> 📖 *HE FROWNED and turned away* — **Abasa (80:1)**
 <!-- quran-verse-end -->
 
 ---
