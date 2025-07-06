@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Woe, then, unto those praying ones* — **Al-Maa'un (107:4)**
+> 📖 *who has taught [man] the use of the pen –* — **Al-Alaq (96:4)**
 <!-- quran-verse-end -->
 
 ---
