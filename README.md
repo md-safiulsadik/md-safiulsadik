@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *All praise is due to God alone, the Sustainer of all the worlds,* — **Al-Faatiha (1:2)**
+> 📖 *[But,] behold, the God-conscious will find themselves amid gardens and springs,* — **Adh-Dhaariyat (51:15)**
 <!-- quran-verse-end -->
 
 ---
