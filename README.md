@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who has taught [man] the use of the pen –* — **Al-Alaq (96:4)**
+> 📖 *go forth, both of you, unto Pharaoh: for, verily, he has transgressed all bounds of equity!* — **Taa-Haa (20:43)**
 <!-- quran-verse-end -->
 
 ---
