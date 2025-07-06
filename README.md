@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Do not enter houses other than your own unless you have obtained permission and greeted their inmates. This is [enjoined upon you] for your own good, so that you might bear [your mutual rights] in mind.* — **An-Noor (24:27)**
+> 📖 *[They, too, will find themselves] amidst fruit- laden lote-trees,* — **Al-Waaqia (56:28)**
 <!-- quran-verse-end -->
 
 ---
