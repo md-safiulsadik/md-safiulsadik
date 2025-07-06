@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *go forth, both of you, unto Pharaoh: for, verily, he has transgressed all bounds of equity!* — **Taa-Haa (20:43)**
+> 📖 *[and so it is that] they who attain to faith and do righteous deeds are destined for happiness [in this world] and the most beauteous of all goals [in the life to come]!"* — **Ar-Ra'd (13:29)**
 <!-- quran-verse-end -->
 
 ---
