@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thereupon Satan whispered unto the two with a view to making them conscious of their nakedness, of which [hitherto] they had been unaware; and he said: "Your Sustainer has but forbidden you this tree lest you two become [as] angels, or lest you live forever."* — **Al-A'raaf (7:20)**
+> 📖 *for, behold, all who say, “Our Sustainer is God”, and thereafter stand firm [in their faith] - no fear need they have, and neither shall they grieve:* — **Al-Ahqaf (46:13)**
 <!-- quran-verse-end -->
 
 ---
