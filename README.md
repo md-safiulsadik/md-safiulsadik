@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, if it should happen that a prompting from Satan stirs thee up [to blind anger], seek refuge with God: behold, He alone is all-hearing, all-knowing!* — **Fussilat (41:36)**
+> 📖 *Even if thou lay thy hand on me to slay me, I shall not lay my hand on thee to slay thee: behold, I fear God, the Sustainer of all the worlds.* — **Al-Maaida (5:28)**
 <!-- quran-verse-end -->
 
 ---
