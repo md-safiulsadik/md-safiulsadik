@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say thou, [O Prophet:] "Knowledge thereof rests with God alone; and I am only a plain warner."* — **Al-Mulk (67:26)**
+> 📖 *VERILY, thy Sustainer's grip is exceedingly strong!* — **Al-Burooj (85:12)**
 <!-- quran-verse-end -->
 
 ---
