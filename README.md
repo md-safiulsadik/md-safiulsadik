@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Even if thou lay thy hand on me to slay me, I shall not lay my hand on thee to slay thee: behold, I fear God, the Sustainer of all the worlds.* — **Al-Maaida (5:28)**
+> 📖 *And, indeed, We have adorned the skies nearest to the earth with lights, and have made them the object of futile guesses for the evil ones [from among men]: and for them have We readied suffering through a blazing flame –* — **Al-Mulk (67:5)**
 <!-- quran-verse-end -->
 
 ---
