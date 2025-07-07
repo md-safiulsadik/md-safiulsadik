@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“Verily, we are ruined!* — **Al-Waaqia (56:66)**
+> 📖 *and when heaven is laid bare,* — **At-Takwir (81:11)**
 <!-- quran-verse-end -->
 
 ---
