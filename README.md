@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The way of those upon whom Thou hast bestowed Thy blessings, not of those who have been condemned [by Thee], nor of those who go astray!* — **Al-Faatiha (1:7)**
+> 📖 *Even so do We [now] cause this [scorn of Our message] to pervade the hearts of those who are lost in sin,* — **Al-Hijr (15:12)**
 <!-- quran-verse-end -->
 
 ---
