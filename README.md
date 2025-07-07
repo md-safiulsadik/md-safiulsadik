@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *together with his wife, that carrier of evil tales,* — **Al-Masad (111:4)**
+> 📖 *and [how] We make gardens of date-palms and vines [grow] thereon, and cause springs to gush [forth] within it,* — **Yaseen (36:34)**
 <!-- quran-verse-end -->
 
 ---
