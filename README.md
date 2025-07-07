@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“And turn not thy cheek away from people in [false] pride, and walk not haughtily on earth: for, behold, God does not love anyone who, out of self- conceit, acts in a boastful manner.* — **Luqman (31:18)**
+> 📖 *Say thou, [O Prophet:] "Knowledge thereof rests with God alone; and I am only a plain warner."* — **Al-Mulk (67:26)**
 <!-- quran-verse-end -->
 
 ---
