@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [how] We make gardens of date-palms and vines [grow] thereon, and cause springs to gush [forth] within it,* — **Yaseen (36:34)**
+> 📖 *And there shall be such as will have lost them­selves in evil: oh, how [unhappy] will be they who have lost themselves in evil!* — **Al-Waaqia (56:9)**
 <!-- quran-verse-end -->
 
 ---
