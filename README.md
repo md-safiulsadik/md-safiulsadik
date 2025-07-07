@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"from the evil of the whispering, elusive tempter* — **An-Naas (114:4)**
+> 📖 *“And turn not thy cheek away from people in [false] pride, and walk not haughtily on earth: for, behold, God does not love anyone who, out of self- conceit, acts in a boastful manner.* — **Luqman (31:18)**
 <!-- quran-verse-end -->
 
 ---
