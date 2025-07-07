@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Even so do We [now] cause this [scorn of Our message] to pervade the hearts of those who are lost in sin,* — **Al-Hijr (15:12)**
+> 📖 *“Verily, we are ruined!* — **Al-Waaqia (56:66)**
 <!-- quran-verse-end -->
 
 ---
