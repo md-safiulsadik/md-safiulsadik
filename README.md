@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Would you, perchance, fail to fight against people who have broken their solemn pledges, and have done all that they could to drive the Apostle away, and have been first to attack you? Do you hold them in awe? Nay, it is God alone of whom you ought to stand in awe, if you are [truly] believers!* — **At-Tawba (9:13)**
+> 📖 *"from the evil of the whispering, elusive tempter* — **An-Naas (114:4)**
 <!-- quran-verse-end -->
 
 ---
