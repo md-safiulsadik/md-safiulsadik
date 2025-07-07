@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, thy Sustainer's grip is exceedingly strong!* — **Al-Burooj (85:12)**
+> 📖 *Hence, if it should happen that a prompting from Satan stirs thee up [to blind anger], seek refuge with God: behold, He alone is all-hearing, all-knowing!* — **Fussilat (41:36)**
 <!-- quran-verse-end -->
 
 ---
