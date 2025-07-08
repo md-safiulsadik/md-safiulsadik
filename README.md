@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *At the same time, the hypocrites and those in whose hearts was disease were saying, "Their faith has deluded these [believers]!" But he who places his trust in God [knows that], verily, God is almighty, wise.* — **Al-Anfaal (8:49)**
+> 📖 *And [thus, too,] they say, "After we will have become bones and dust, shall we, forsooth, be raised from the dead in a new act of creation?"* — **Al-Israa (17:49)**
 <!-- quran-verse-end -->
 
 ---
