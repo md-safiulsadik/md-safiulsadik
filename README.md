@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *although the life to come is better and more enduring.* — **Al-A'laa (87:17)**
+> 📖 *And among the many objects of His creation, God has appointed for you [various] means of protection: thus, He has given you in the mountains places of shelter, and has endowed you with [the ability to make] garments to protect you from heat [and cold], as well as such garments as might protect you from your [mutual] violence. In this way does He bestow the full measure of His blessings on you, so that you might surrender yourselves unto Him.* — **An-Nahl (16:81)**
 <!-- quran-verse-end -->
 
 ---
