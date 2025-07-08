@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
+> 📖 *VERILY, [O Muhammad,] We have sent thee as a witness [to the truth], and as a herald of glad tidings and a warner –* — **Al-Fath (48:8)**
 <!-- quran-verse-end -->
 
 ---
