@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for none [of them] had any fear of what might befall them.* — **Ash-Shams (91:15)**
+> 📖 *whose hearts from their prayer are remote* — **Al-Maa'un (107:5)**
 <!-- quran-verse-end -->
 
 ---
