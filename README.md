@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Woe unto him who amasses wealth and counts it a safeguard,* — **Al-Humaza (104:2)**
+> 📖 *At that, the one of the two [erstwhile prisoners] who had been saved, and [who suddenly] remembered [Joseph] after all that time, spoke [thus]: "It is I who can inform you of the real meaning of this [dream]; so let me go [in search of it]."* — **Yusuf (12:45)**
 <!-- quran-verse-end -->
 
 ---
