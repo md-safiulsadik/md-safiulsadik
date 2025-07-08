@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And then, he whose weight [of good deeds] is heavy in the balance* — **Al-Qaari'a (101:6)**
+> 📖 *But those who had been granted true knowl­edge said: “Woe unto you! Merit in the sight of God is by far the best for any who attains to faith and does what is right: but none save the patient in adversity can ever achieve this [blessing].”* — **Al-Qasas (28:80)**
 <!-- quran-verse-end -->
 
 ---
