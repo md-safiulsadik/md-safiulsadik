@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And who could be more wicked than he who invents lies about God? and gives the lie to the truth as soon as it has been placed before him? Is not hell the [proper] abode for all who deny the truth?* — **Az-Zumar (39:32)**
+> 📖 *And what could make thee conceive what it is, that Night of Destiny?* — **Al-Qadr (97:2)**
 <!-- quran-verse-end -->
 
 ---
