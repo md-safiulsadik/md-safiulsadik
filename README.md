@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *rushing to assault at morn,* — **Al-Aadiyaat (100:3)**
+> 📖 *At the same time, the hypocrites and those in whose hearts was disease were saying, "Their faith has deluded these [believers]!" But he who places his trust in God [knows that], verily, God is almighty, wise.* — **Al-Anfaal (8:49)**
 <!-- quran-verse-end -->
 
 ---
