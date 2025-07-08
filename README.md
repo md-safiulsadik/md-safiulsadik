@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND IT IS We who have built the universe with [Our creative] power; and, verily, it is We who are steadily expanding it.* — **Adh-Dhaariyat (51:47)**
+> 📖 *rushing to assault at morn,* — **Al-Aadiyaat (100:3)**
 <!-- quran-verse-end -->
 
 ---
