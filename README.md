@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, indeed, [even] before thy time have [God's] apostles been derided, and for a while I gave rein to those who were [thus] bent on denying the truth: but then I took them to task - and how awesome was My retribution!* — **Ar-Ra'd (13:32)**
+> 📖 *[But they will be told:] “Cry not in supplication today: for, behold, you shall not he succoured by Us!* — **Al-Muminoon (23:65)**
 <!-- quran-verse-end -->
 
 ---
