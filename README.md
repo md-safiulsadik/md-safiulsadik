@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[As against this,] behold, for those who stand in awe of God although He is beyond the reach of their perception, there is forgiveness in store and a great reward.* — **Al-Mulk (67:12)**
+> 📖 *Not equal are those who are destined for the fire and those who are destined for paradise: those who are destined for paradise - it is they, they [alone] who shall triumph [on Judgment Day]!* — **Al-Hashr (59:20)**
 <!-- quran-verse-end -->
 
 ---
