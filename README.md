@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“Will you, in your wanton folly, build [idola­trous] altars on every height,* — **Ash-Shu'araa (26:128)**
+> 📖 *And, indeed, [even] before thy time have [God's] apostles been derided, and for a while I gave rein to those who were [thus] bent on denying the truth: but then I took them to task - and how awesome was My retribution!* — **Ar-Ra'd (13:32)**
 <!-- quran-verse-end -->
 
 ---
