@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, [O Muhammad,] We have sent thee as a witness [to the truth], and as a herald of glad tidings and a warner –* — **Al-Fath (48:8)**
+> 📖 *“Will you, in your wanton folly, build [idola­trous] altars on every height,* — **Ash-Shu'araa (26:128)**
 <!-- quran-verse-end -->
 
 ---
