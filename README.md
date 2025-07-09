@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] think not that those who are bent on denying the truth can elude [their final reckoning even if they remain unscathed] on earth: the fire is their goal [in the life to come] - and vile indeed is such a journey’s end!* — **An-Noor (24:57)**
+> 📖 *Say: "Who is the Sustainer of the heavens and the earth?" Say: "[It is] God." Say: "[Why,] then, do you take for your protectors, instead of Him, such as have it not within their power to bring benefit to, or avert harm from, themselves?" Say: "Can the blind and the seeing be deemed equal? -or can the depths of darkness and the light be deemed equal?" Or do they [really] believe that there are, side by side with God, other divine powers that have created the like of what He creates, so that this act of creation appears to them to be similar [to His]? Say: "God is the Creator of all things; and He is the One who holds absolute sway over all that exists."* — **Ar-Ra'd (13:16)**
 <!-- quran-verse-end -->
 
 ---
