@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O PROPHET! Strive hard against the deniers of the truth and the hypocrites, and be adamant with them. And [if they do not repent,] their goal shall be hell - and how vile a journey’s end!* — **At-Tahrim (66:9)**
+> 📖 *[O YOU who deny the truth!] Should We, perchance, withdraw this reminder from you altogether, seeing that you are people bent on wasting your own selves?* — **Az-Zukhruf (43:5)**
 <!-- quran-verse-end -->
 
 ---
