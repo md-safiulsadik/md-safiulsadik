@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[O YOU who deny the truth!] Should We, perchance, withdraw this reminder from you altogether, seeing that you are people bent on wasting your own selves?* — **Az-Zukhruf (43:5)**
+> 📖 *Are they, then, not aware that it is God who grants abundant sustenance, or gives it in scant measure, unto whomever He wills? In this, behold, there are messages indeed for peo­ple who will believe!* — **Ar-Room (30:37)**
 <!-- quran-verse-end -->
 
 ---
