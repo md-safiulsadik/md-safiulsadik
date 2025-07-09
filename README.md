@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and of his spouse, and of his brother,* — **Al-Ma'aarij (70:12)**
+> 📖 *and when the graves are overturned –* — **Al-Infitaar (82:4)**
 <!-- quran-verse-end -->
 
 ---
