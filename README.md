@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[who bears] around her neck a rope of twisted strands!* — **Al-Masad (111:5)**
+> 📖 *and of his spouse, and of his brother,* — **Al-Ma'aarij (70:12)**
 <!-- quran-verse-end -->
 
 ---
