@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God grants abundant sustenance, or gives it in scant measure, to whichever He wills of His crea­tures: for, behold, God has full knowledge of every­thing.* — **Al-Ankaboot (29:62)**
+> 📖 *O PROPHET! Strive hard against the deniers of the truth and the hypocrites, and be adamant with them. And [if they do not repent,] their goal shall be hell - and how vile a journey’s end!* — **At-Tahrim (66:9)**
 <!-- quran-verse-end -->
 
 ---
