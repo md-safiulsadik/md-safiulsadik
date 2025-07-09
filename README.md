@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"from all [temptation to evil by] invisible forces as well as men,"* — **An-Naas (114:6)**
+> 📖 *Are they, then, not aware that they are being tested year-in, year-out? And yet, they do not repent and do not bethink themselves [of God];* — **At-Tawba (9:126)**
 <!-- quran-verse-end -->
 
 ---
