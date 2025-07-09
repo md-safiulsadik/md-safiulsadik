@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Are they, then, not aware that they are being tested year-in, year-out? And yet, they do not repent and do not bethink themselves [of God];* — **At-Tawba (9:126)**
+> 📖 *Consider the long-enduring house [of worship]!* — **At-Tur (52:4)**
 <!-- quran-verse-end -->
 
 ---
