@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the long-enduring house [of worship]!* — **At-Tur (52:4)**
+> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
 <!-- quran-verse-end -->
 
 ---
