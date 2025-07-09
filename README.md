@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [the majesty of] thy Sustainer stands revealed, as well as [the true nature of] the angels; rank upon rank?* — **Al-Fajr (89:22)**
+> 📖 *who will be my heir as well as an heir [to the dignity] of the House of Jacob; and make him, O my Sustainer, well-pleasing to Thee!"* — **Maryam (19:6)**
 <!-- quran-verse-end -->
 
 ---
