@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
+> 📖 *[and called to account] on an awesome Day –* — **Al-Mutaffifin (83:5)**
 <!-- quran-verse-end -->
 
 ---
