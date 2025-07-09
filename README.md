@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when thou seest [anything that is] there thou wilt see [only] bliss and a realm transcendent* — **Al-Insaan (76:20)**
+> 📖 *Do they not know that God knows [all] their hidden thoughts and their secret confabulations, and that God knows fully all the things that are beyond the reach of human perception'?* — **At-Tawba (9:78)**
 <!-- quran-verse-end -->
 
 ---
