@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Do they not know that God knows [all] their hidden thoughts and their secret confabulations, and that God knows fully all the things that are beyond the reach of human perception'?* — **At-Tawba (9:78)**
+> 📖 *and [in all your dealings] weigh with a true balance,* — **Ash-Shu'araa (26:182)**
 <!-- quran-verse-end -->
 
 ---
