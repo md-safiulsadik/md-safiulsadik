@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who will be my heir as well as an heir [to the dignity] of the House of Jacob; and make him, O my Sustainer, well-pleasing to Thee!"* — **Maryam (19:6)**
+> 📖 *and when thou seest [anything that is] there thou wilt see [only] bliss and a realm transcendent* — **Al-Insaan (76:20)**
 <!-- quran-verse-end -->
 
 ---
