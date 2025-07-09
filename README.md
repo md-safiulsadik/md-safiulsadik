@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Are they, then, not aware that it is God who grants abundant sustenance, or gives it in scant measure, unto whomever He wills? In this, behold, there are messages indeed for peo­ple who will believe!* — **Ar-Room (30:37)**
+> 📖 *[And] think not that those who are bent on denying the truth can elude [their final reckoning even if they remain unscathed] on earth: the fire is their goal [in the life to come] - and vile indeed is such a journey’s end!* — **An-Noor (24:57)**
 <!-- quran-verse-end -->
 
 ---
