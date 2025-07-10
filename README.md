@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *gardens of perpetual bliss, which they shall enter together with the righteous from among their parents, their spouses, and their offspring; and the angels will come unto them from every gate [and will say]:* — **Ar-Ra'd (13:23)**
+> 📖 *whereat the heavens might well-nigh be rent into fragments, and the earth be split asunder, and the mountains fall down in ruins!* — **Maryam (19:90)**
 <!-- quran-verse-end -->
 
 ---
