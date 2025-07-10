@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *What will his wealth avail him, and all that he has gained?* — **Al-Masad (111:2)**
+> 📖 *noble, recording,* — **Al-Infitaar (82:11)**
 <!-- quran-verse-end -->
 
 ---
