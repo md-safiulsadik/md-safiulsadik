@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In these [gardens] will be [all] things most excellent and beautiful.* — **Ar-Rahmaan (55:70)**
+> 📖 *Qaf. CONSIDER this sublime Qur’an!* — **Qaaf (50:1)**
 <!-- quran-verse-end -->
 
 ---
