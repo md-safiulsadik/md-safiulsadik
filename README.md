@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DO, THEN, they [who deny resurrection] never gaze at the clouds pregnant with water, [and observe] how they are created?* — **Al-Ghaashiya (88:17)**
+> 📖 *gardens of perpetual bliss, which they shall enter together with the righteous from among their parents, their spouses, and their offspring; and the angels will come unto them from every gate [and will say]:* — **Ar-Ra'd (13:23)**
 <!-- quran-verse-end -->
 
 ---
