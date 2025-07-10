@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But [Pharaoh] gave him the lie and rebelliously rejected [all guidance],* — **An-Naazi'aat (79:21)**
+> 📖 *and to whose life I gave so wide a scope:* — **Al-Muddaththir (74:14)**
 <!-- quran-verse-end -->
 
 ---
