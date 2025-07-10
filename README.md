@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thus it is [with most people]: if thou ask them, “Who is it that has created the heavens and the earth, and made the sun and the moon subservi­ent [to His laws]?” - they will surely answer, “God.” How perverted, then, are their minds!* — **Al-Ankaboot (29:61)**
+> 📖 *[for] no human being has ever been left unguarded.* — **At-Taariq (86:4)**
 <!-- quran-verse-end -->
 
 ---
