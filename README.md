@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, when We recite it, follow thou its wording [with all thy mind]:* — **Al-Qiyaama (75:18)**
+> 📖 *And [with them will be their] companions pure, most beautiful of eye,* — **Al-Waaqia (56:22)**
 <!-- quran-verse-end -->
 
 ---
