@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and drive those who were lost in sin unto hell as a thirsty herd is driven to a well –* — **Maryam (19:86)**
+> 📖 *Therefore, the orphan shalt thou never wrong,* — **Ad-Dhuhaa (93:9)**
 <!-- quran-verse-end -->
 
 ---
