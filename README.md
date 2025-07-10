@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[for] no human being has ever been left unguarded.* — **At-Taariq (86:4)**
+> 📖 *and I am bidden to be foremost among those who surrender themselves unto God.”* — **Az-Zumar (39:12)**
 <!-- quran-verse-end -->
 
 ---
