@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND ON EARTH there are signs [of God’s exis­tence, visible] to all who are endowed with inner certainty,* — **Adh-Dhaariyat (51:20)**
+> 📖 *Thus, when We recite it, follow thou its wording [with all thy mind]:* — **Al-Qiyaama (75:18)**
 <!-- quran-verse-end -->
 
 ---
