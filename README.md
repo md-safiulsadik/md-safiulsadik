@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereat the heavens might well-nigh be rent into fragments, and the earth be split asunder, and the mountains fall down in ruins!* — **Maryam (19:90)**
+> 📖 *AND ON EARTH there are signs [of God’s exis­tence, visible] to all who are endowed with inner certainty,* — **Adh-Dhaariyat (51:20)**
 <!-- quran-verse-end -->
 
 ---
