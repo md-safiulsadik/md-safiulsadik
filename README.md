@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and I am bidden to be foremost among those who surrender themselves unto God.”* — **Az-Zumar (39:12)**
+> 📖 *And at the earth, how it is spread out?* — **Al-Ghaashiya (88:20)**
 <!-- quran-verse-end -->
 
 ---
