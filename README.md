@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *That men. should ascribe a son to the Most Gracious,* — **Maryam (19:91)**
+> 📖 *But [Pharaoh] gave him the lie and rebelliously rejected [all guidance],* — **An-Naazi'aat (79:21)**
 <!-- quran-verse-end -->
 
 ---
