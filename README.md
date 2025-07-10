@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And at the earth, how it is spread out?* — **Al-Ghaashiya (88:20)**
+> 📖 *That men. should ascribe a son to the Most Gracious,* — **Maryam (19:91)**
 <!-- quran-verse-end -->
 
 ---
