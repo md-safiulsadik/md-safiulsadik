@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on that Day will she recount all her tidings,* — **Az-Zalzala (99:4)**
+> 📖 *[or to] the slanderer that goes about with defaming tales,* — **Al-Qalam (68:11)**
 <!-- quran-verse-end -->
 
 ---
