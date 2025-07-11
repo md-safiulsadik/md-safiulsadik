@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then storming on with a tempest's force!* — **Al-Mursalaat (77:2)**
+> 📖 *whereas those who are bent on denying the truth of Our messages – they are such as have lost themselves in evil,* — **Al-Balad (90:19)**
 <!-- quran-verse-end -->
 
 ---
