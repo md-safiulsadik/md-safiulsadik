@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas those who are bent on denying the truth of Our messages – they are such as have lost themselves in evil,* — **Al-Balad (90:19)**
+> 📖 *O YOU who have attained to faith! Let not your worldly goods or your children make you oblivious of the remembrance of God: for If any behave thus - it is they, they who are the losers!* — **Al-Munaafiqoon (63:9)**
 <!-- quran-verse-end -->
 
 ---
