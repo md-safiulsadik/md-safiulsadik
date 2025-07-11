@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, We have conveyed unto them the truth: and yet, behold, they are intent on lying [to them­selves]!* — **Al-Muminoon (23:90)**
+> 📖 *aware of whatever you do!* — **Al-Infitaar (82:12)**
 <!-- quran-verse-end -->
 
 ---
