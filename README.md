@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and ever nearer unto thee, and nearer!* — **Al-Qiyaama (75:35)**
+> 📖 *[But,] behold, as for those who attain to faith and do righteous deeds-verily, We do not fail to requite any who persevere in doing good:* — **Al-Kahf (18:30)**
 <!-- quran-verse-end -->
 
 ---
