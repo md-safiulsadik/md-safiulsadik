@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *aware of whatever you do!* — **Al-Infitaar (82:12)**
+> 📖 *and then storming on with a tempest's force!* — **Al-Mursalaat (77:2)**
 <!-- quran-verse-end -->
 
 ---
