@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[or to] the slanderer that goes about with defaming tales,* — **Al-Qalam (68:11)**
+> 📖 *and ever nearer unto thee, and nearer!* — **Al-Qiyaama (75:35)**
 <!-- quran-verse-end -->
 
 ---
