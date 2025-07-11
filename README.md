@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Let not your worldly goods or your children make you oblivious of the remembrance of God: for If any behave thus - it is they, they who are the losers!* — **Al-Munaafiqoon (63:9)**
+> 📖 *But [when] those who are conscious of God are asked, "What is it that your Sustainer has bestowed from on high?" -they answer, "Goodness supreme!" Good fortune awaits, in this world, all who persevere in doing good; but their ultimate state will be far better still: for, how excellent indeed will be the state of the God-conscious [in the life to come]!* — **An-Nahl (16:30)**
 <!-- quran-verse-end -->
 
 ---
