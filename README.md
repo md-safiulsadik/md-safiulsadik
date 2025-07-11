@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "It is He alone who has the power to let loose upon you suffering from above you or from beneath your feet, or to confound you with mutual discord and let you taste the fear of one another." Behold how many facets we give to these messages, so that they might understand the truth.* — **Al-An'aam (6:65)**
+> 📖 *and remembers his Sustainer's name, and prays [unto Him].* — **Al-A'laa (87:15)**
 <!-- quran-verse-end -->
 
 ---
