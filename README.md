@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when she-camels big with young, about to give birth, are left untended,* — **At-Takwir (81:4)**
+> 📖 *on that Day will she recount all her tidings,* — **Az-Zalzala (99:4)**
 <!-- quran-verse-end -->
 
 ---
