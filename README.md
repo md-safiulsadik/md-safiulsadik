@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which gives no strength and neither stills hunger.* — **Al-Ghaashiya (88:7)**
+> 📖 *and when she-camels big with young, about to give birth, are left untended,* — **At-Takwir (81:4)**
 <!-- quran-verse-end -->
 
 ---
