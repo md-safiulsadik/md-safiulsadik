@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [with them will be their] companions pure, most beautiful of eye,* — **Al-Waaqia (56:22)**
+> 📖 *Behold, Satan is a foe unto you: so treat him as a foe. He but calls on his followers to the end that they might find themselves among such as are des­tined for the blazing flame –* — **Faatir (35:6)**
 <!-- quran-verse-end -->
 
 ---
