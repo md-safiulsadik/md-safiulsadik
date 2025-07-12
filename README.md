@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O APOSTLE! Be not grieved by those who vie with one another in denying the truth: such as those who say with their mouths, "We believe," the while their hearts do not believe; and such of the Jewish faith as eagerly listen to any falsehood, eagerly listen to other people without having come to thee [for enlightenment]. They distort the meaning of the [revealed] words, taking them out of their context, saying [to themselves], "If such-and-such [teaching] is vouchsafed unto you, accept it; but if it is not vouchsafed unto you, be on your guard!" [Be not grieved by them-] for if God wills anyone to be tempted to evil, thou canst in no wise prevail with God in his behalf. It is they whose hearts God is not willing to cleanse. Theirs shall be ignominy in this world, and awesome suffering in the life to come-* — **Al-Maaida (5:41)**
+> 📖 *Say: "O you who follow the Jewish faith! If you claim that you [alone] are close to God, to the exclusion of all other people, then you should be longing for death - if what you say is true!"* — **Al-Jumu'a (62:6)**
 <!-- quran-verse-end -->
 
 ---
