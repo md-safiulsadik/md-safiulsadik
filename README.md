@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet for all thou didst know, [O Muhammad,] he might perhaps have grown in purity,* — **Abasa (80:3)**
+> 📖 *Have, then, they [who deny the truth] never yet seen how We visit the earth [with Our punishment], gradually depriving it of all that is best thereon? For, [when] God judges, there is no power that could repel His judgment: and swift in reckoning is He!* — **Ar-Ra'd (13:41)**
 <!-- quran-verse-end -->
 
 ---
