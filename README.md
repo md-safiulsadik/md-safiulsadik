@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Have, then, they [who deny the truth] never yet seen how We visit the earth [with Our punishment], gradually depriving it of all that is best thereon? For, [when] God judges, there is no power that could repel His judgment: and swift in reckoning is He!* — **Ar-Ra'd (13:41)**
+> 📖 *Consider the long-enduring house [of worship]!* — **At-Tur (52:4)**
 <!-- quran-verse-end -->
 
 ---
