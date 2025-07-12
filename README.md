@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *READ in the name of thy Sustainer, who has-* — **Al-Alaq (96:1)**
+> 📖 *WHAT, THEN, is amiss with such as are bent on denying the truth, that they run about confusedly to and fro before thee,* — **Al-Ma'aarij (70:36)**
 <!-- quran-verse-end -->
 
 ---
