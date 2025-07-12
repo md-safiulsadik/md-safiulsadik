@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *yielding its fruit at all times by its Sustainer's leave. And [thus it is that] God propounds parables unto men,' so that they might bethink themselves [of the truth].* — **Ibrahim (14:25)**
+> 📖 *and never yet came an apostle to them without their deriding him.* — **Al-Hijr (15:11)**
 <!-- quran-verse-end -->
 
 ---
