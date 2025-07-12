@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware of how thy Sustainer has dealt with [the tribe of] ‘Ad,* — **Al-Fajr (89:6)**
+> 📖 *yielding its fruit at all times by its Sustainer's leave. And [thus it is that] God propounds parables unto men,' so that they might bethink themselves [of the truth].* — **Ibrahim (14:25)**
 <!-- quran-verse-end -->
 
 ---
