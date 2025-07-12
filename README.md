@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But the son] answered: "I shall betake myself to a mountain that will protect me from the waters." Said [Noah]: "Today there is no protection [for anyone] from God's judgment, save [for] those who have earned [His] mercy!" And a wave rose up between them, and [the son] was among those who were drowned.* — **Hud (11:43)**
+> 📖 *And, lo, Luqman spoke thus unto his son, admonishing him: “O my dear son! Do not ascribe divine powers to aught beside God: for, behold, such [a false] ascribing of divinity is indeed an awesome wrong!* — **Luqman (31:13)**
 <!-- quran-verse-end -->
 
 ---
