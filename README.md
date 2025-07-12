@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for [we know] that sublimely exalted is our Sustainer's majesty: no consort has He ever taken unto Himself, nor a son!* — **Al-Jinn (72:3)**
+> 📖 *MAN NEVER TIRES of asking for the good [things of life]; and if evil fortune touches him, he abandons all hope, giving himself up to despair.* — **Fussilat (41:49)**
 <!-- quran-verse-end -->
 
 ---
