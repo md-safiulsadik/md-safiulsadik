@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[The brothers] said: "By God! Most certainly has God raised thee high above us, and we were indeed but sinners!"* — **Yusuf (12:91)**
+> 📖 *[But the son] answered: "I shall betake myself to a mountain that will protect me from the waters." Said [Noah]: "Today there is no protection [for anyone] from God's judgment, save [for] those who have earned [His] mercy!" And a wave rose up between them, and [the son] was among those who were drowned.* — **Hud (11:43)**
 <!-- quran-verse-end -->
 
 ---
