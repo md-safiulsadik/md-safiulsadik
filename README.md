@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the long-enduring house [of worship]!* — **At-Tur (52:4)**
+> 📖 *Has He not found thee an orphan, and given thee shelter?* — **Ad-Dhuhaa (93:6)**
 <!-- quran-verse-end -->
 
 ---
