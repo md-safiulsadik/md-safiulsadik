@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Has He not found thee an orphan, and given thee shelter?* — **Ad-Dhuhaa (93:6)**
+> 📖 *READ in the name of thy Sustainer, who has-* — **Al-Alaq (96:1)**
 <!-- quran-verse-end -->
 
 ---
