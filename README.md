@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thereupon the command will go forth:] "Lay hold of him, and shackle him,* — **Al-Haaqqa (69:30)**
+> 📖 *[The brothers] said: "By God! Most certainly has God raised thee high above us, and we were indeed but sinners!"* — **Yusuf (12:91)**
 <!-- quran-verse-end -->
 
 ---
