@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHAT, THEN, is amiss with such as are bent on denying the truth, that they run about confusedly to and fro before thee,* — **Al-Ma'aarij (70:36)**
+> 📖 *and the earth, bursting forth with plants!* — **At-Taariq (86:12)**
 <!-- quran-verse-end -->
 
 ---
