@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND HOW MANY a community has turned with disdain from the commandment of its Sustainer and His apostles! -whereupon We callled them all to account with an accounting severe, and caused them to suffer with a suffering unnameable:* — **At-Talaaq (65:8)**
+> 📖 *But they gave him the lie. Thereupon an earthquake overtook them: and then they lay lifeless, in their very homes, on the ground.* — **Al-Ankaboot (29:37)**
 <!-- quran-verse-end -->
 
 ---
