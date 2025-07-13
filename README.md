@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thou wilt see the mountains, which [now] thou deemest so firm, pass away as clouds pass away: a work of God, who has ordered all things to per­fection! Verily, He is fully aware of all that you do!* — **An-Naml (27:88)**
+> 📖 *Place him in a chest and throw it into the river, and thereupon the river will cast him ashore, [and] one who is an enemy unto Me and an enemy unto him will adopt him. "And [thus early] I spread Mine Own love over thee -and [this] in order that thou might be formed under Mine eye.* — **Taa-Haa (20:39)**
 <!-- quran-verse-end -->
 
 ---
