@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or do they think - they who do evil deeds [while claiming to have attained to faith] - that they can escape Us? Bad, indeed, is their judgment!* — **Al-Ankaboot (29:4)**
+> 📖 *for, behold, unto thy Sustainer all must return.* — **Al-Alaq (96:8)**
 <!-- quran-verse-end -->
 
 ---
