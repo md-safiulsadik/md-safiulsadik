@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, unto thy Sustainer all must return.* — **Al-Alaq (96:8)**
+> 📖 *who responded to the call of God and the Apostle after misfortune had befallen them. A magnificent requital awaits those of them who have persevered in doing good and remained conscious of God:* — **Aal-i-Imraan (3:172)**
 <!-- quran-verse-end -->
 
 ---
