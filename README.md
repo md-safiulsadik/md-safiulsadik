@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ARE, THEN, they [who deny the life to come] not aware that God, who has created the heavens and the earth and never been wearied by their creation, has [also] the power to bring the dead back to life? Yea, verily, He has the power to will anything!* — **Al-Ahqaf (46:33)**
+> 📖 *and such, indeed, shall in time be well-pleased.* — **Al-Lail (92:21)**
 <!-- quran-verse-end -->
 
 ---
