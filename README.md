@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, when they are told, "Come, the Apostle of God will pray [unto God] that you be forgiven", they turn their heads away, and thou canst see how they draw back in their false pride.* — **Al-Munaafiqoon (63:5)**
+> 📖 *But those who attain to faith and do righteous deeds - [and] We do not burden any human being with more than he is well able to bear - they are destined for paradise, therein to abide,* — **Al-A'raaf (7:42)**
 <!-- quran-verse-end -->
 
 ---
