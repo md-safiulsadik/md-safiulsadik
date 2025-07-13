@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But those who attain to faith and do righteous deeds - [and] We do not burden any human being with more than he is well able to bear - they are destined for paradise, therein to abide,* — **Al-A'raaf (7:42)**
+> 📖 *Nay, verily, it is against Our messages that he knowingly, stubbornly sets himself* — **Al-Muddaththir (74:16)**
 <!-- quran-verse-end -->
 
 ---
