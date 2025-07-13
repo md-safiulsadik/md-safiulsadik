@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But they gave him the lie. Thereupon an earthquake overtook them: and then they lay lifeless, in their very homes, on the ground.* — **Al-Ankaboot (29:37)**
+> 📖 *they have made their oaths a cover [for their falseness], and thus they turn others away from the path of God: hence, shameful suffering awaits them.* — **Al-Mujaadila (58:16)**
 <!-- quran-verse-end -->
 
 ---
