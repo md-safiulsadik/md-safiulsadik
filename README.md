@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who responded to the call of God and the Apostle after misfortune had befallen them. A magnificent requital awaits those of them who have persevered in doing good and remained conscious of God:* — **Aal-i-Imraan (3:172)**
+> 📖 *a source [of bliss] whereof those who are drawn close unto God shall drink.* — **Al-Mutaffifin (83:28)**
 <!-- quran-verse-end -->
 
 ---
