@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *they have made their oaths a cover [for their falseness], and thus they turn others away from the path of God: hence, shameful suffering awaits them.* — **Al-Mujaadila (58:16)**
+> 📖 *And Noah prayed: "O my Sustainer! Leave not on earth any of those who deny the truth:* — **Nooh (71:26)**
 <!-- quran-verse-end -->
 
 ---
