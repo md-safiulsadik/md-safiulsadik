@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Place him in a chest and throw it into the river, and thereupon the river will cast him ashore, [and] one who is an enemy unto Me and an enemy unto him will adopt him. "And [thus early] I spread Mine Own love over thee -and [this] in order that thou might be formed under Mine eye.* — **Taa-Haa (20:39)**
+> 📖 *Now they who are bent on denying the truth are wont to ask. “Why has not the Qur’an been bestowed on him from on high in one single re­velation?” [it has been revealed] in this manner so that We might strengthen thy heart thereby - for We have so arranged its component parts that they form one consistent whole -* — **Al-Furqaan (25:32)**
 <!-- quran-verse-end -->
 
 ---
