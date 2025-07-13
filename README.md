@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] is there any, besides the Most Gracious, that could be a shield for you, and could succour you [against danger]? They who deny this truth are but lost in self- delusion!* — **Al-Mulk (67:20)**
+> 📖 *ARE, THEN, they [who deny the life to come] not aware that God, who has created the heavens and the earth and never been wearied by their creation, has [also] the power to bring the dead back to life? Yea, verily, He has the power to will anything!* — **Al-Ahqaf (46:33)**
 <!-- quran-verse-end -->
 
 ---
