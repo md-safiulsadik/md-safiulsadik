@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and never yet came an apostle to them without their deriding him.* — **Al-Hijr (15:11)**
+> 📖 *We [now] convey unto thee some of the story of Moses and Pharaoh, setting forth the truth for [the benefit of] people who will believe.* — **Al-Qasas (28:3)**
 <!-- quran-verse-end -->
 
 ---
