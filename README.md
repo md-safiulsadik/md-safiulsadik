@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the night as it darkly falls,* — **At-Takwir (81:17)**
+> 📖 *nor are the depths of darkness and the light;* — **Faatir (35:20)**
 <!-- quran-verse-end -->
 
 ---
