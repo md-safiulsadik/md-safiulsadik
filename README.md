@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither do you worship that which I worship!* — **Al-Kaafiroon (109:3)**
+> 📖 *Now if God were to take men [immediately] to task for all the evil that they do [on earth], He would not leave a single living creature upon its face. However, He grants them respite until a term set [by Him]: but when the end of their term approaches, they can neither delay it by a single moment, nor can they hasten it.* — **An-Nahl (16:61)**
 <!-- quran-verse-end -->
 
 ---
