@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Every human being is bound to taste death: but only on the Day of Resurrection will you be requited in full [for whatever you have done] - whereupon he that shall be drawn away from the fire and brought into paradise will indeed have gained a triumph: for the life of this world is nothing but an enjoyment of self-delusion.* — **Aal-i-Imraan (3:185)**
+> 📖 *wherein there are ordinances of ever-true soundness and clarity.* — **Al-Bayyina (98:3)**
 <!-- quran-verse-end -->
 
 ---
