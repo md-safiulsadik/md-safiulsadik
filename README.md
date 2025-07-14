@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for anyone who chooses to remain blind to the remembrance of the Most Gracious, to him We assign an [enduring] evil impulse, to become his other self:* — **Az-Zukhruf (43:36)**
+> 📖 *LO! Thus spoke Joseph unto his father: "O my father! Behold, I saw [in a dream] eleven stars, as well as the sun and the moon: I saw them prostrate themselves before me!"* — **Yusuf (12:4)**
 <!-- quran-verse-end -->
 
 ---
