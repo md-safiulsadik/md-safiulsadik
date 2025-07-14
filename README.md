@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which smote them with stone-hard blows of chastisement pre-ordained,* — **Al-Fil (105:4)**
+> 📖 *SAY: "He is the One God:* — **Al-Ikhlaas (112:1)**
 <!-- quran-verse-end -->
 
 ---
