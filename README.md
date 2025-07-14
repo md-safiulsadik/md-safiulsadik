@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *nor are the depths of darkness and the light;* — **Faatir (35:20)**
+> 📖 *But as for anyone who chooses to remain blind to the remembrance of the Most Gracious, to him We assign an [enduring] evil impulse, to become his other self:* — **Az-Zukhruf (43:36)**
 <!-- quran-verse-end -->
 
 ---
