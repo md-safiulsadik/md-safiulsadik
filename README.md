@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *LO! Thus spoke Joseph unto his father: "O my father! Behold, I saw [in a dream] eleven stars, as well as the sun and the moon: I saw them prostrate themselves before me!"* — **Yusuf (12:4)**
+> 📖 *CONSIDER this divine writ, clear in itself and clearly showing the truth!* — **Ad-Dukhaan (44:2)**
 <!-- quran-verse-end -->
 
 ---
