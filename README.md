@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And found thee lost on thy way, and guided thee?* — **Ad-Dhuhaa (93:7)**
+> 📖 *It is the star that pierces through [life's] darkness:* — **At-Taariq (86:3)**
 <!-- quran-verse-end -->
 
 ---
