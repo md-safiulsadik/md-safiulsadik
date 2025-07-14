@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"the God of men,* — **An-Naas (114:3)**
+> 📖 *And found thee lost on thy way, and guided thee?* — **Ad-Dhuhaa (93:7)**
 <!-- quran-verse-end -->
 
 ---
