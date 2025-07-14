@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is the star that pierces through [life's] darkness:* — **At-Taariq (86:3)**
+> 📖 *And [remember how We punished the tribes of] Ad and Thamud and the people of Ar-Rass, and many generations [of sinners] in-between:* — **Al-Furqaan (25:38)**
 <!-- quran-verse-end -->
 
 ---
