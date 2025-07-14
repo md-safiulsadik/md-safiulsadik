@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now they who are bent on denying the truth are wont to ask. “Why has not the Qur’an been bestowed on him from on high in one single re­velation?” [it has been revealed] in this manner so that We might strengthen thy heart thereby - for We have so arranged its component parts that they form one consistent whole -* — **Al-Furqaan (25:32)**
+> 📖 *[And then He said:] “Now throw down thy staff!” But when he saw it move rapidly, as if it were a serpent, he drew back [in terror], and did not [dare to] return. [And God spoke to him again:] O Moses! Fear not - for, behold, no fear need the message-bearers have in My Presence,* — **An-Naml (27:10)**
 <!-- quran-verse-end -->
 
 ---
