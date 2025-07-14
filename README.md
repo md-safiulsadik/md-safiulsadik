@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *wherein there are ordinances of ever-true soundness and clarity.* — **Al-Bayyina (98:3)**
+> 📖 *[Jacob] replied: "Shall I trust you with him in the same way as I trusted you with his brother (Joseph] aforetime? [Nay,] but God's guardianship is better [than yours], for He is the most merciful of the merciful!"* — **Yusuf (12:64)**
 <!-- quran-verse-end -->
 
 ---
