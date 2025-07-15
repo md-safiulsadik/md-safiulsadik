@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *wherein he will neither die nor remain alive.* — **Al-A'laa (87:13)**
+> 📖 *and who turn away from all that is frivolous,* — **Al-Muminoon (23:3)**
 <!-- quran-verse-end -->
 
 ---
