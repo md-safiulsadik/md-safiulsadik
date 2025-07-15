@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [the tribe of] Thamud, and the people of Lot, and the dwellers of the wooded dales [of Madyan]: they all were leagued together, [as it were, in their unbelief:]* — **Saad (38:13)**
+> 📖 *[AS AGAINST this,] behold, the God-conscious shall dwell amidst [cooling] shades and springs,* — **Al-Mursalaat (77:41)**
 <!-- quran-verse-end -->
 
 ---
