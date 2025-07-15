@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who turn away from all that is frivolous,* — **Al-Muminoon (23:3)**
+> 📖 *"and from the evil of all human beings bent on occult endeavours,* — **Al-Falaq (113:4)**
 <!-- quran-verse-end -->
 
 ---
