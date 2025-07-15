@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Whereupon Pharaoh said: “O you nobles! I did not know that you could have any deity other than myself Well, then, O Haman, kindle me a fire for [baking bricks of] clay, and then build me a lofty tower, that haply I may have a look at the god of Moses although, behold, I am convinced that he is of those who [always] tell lies!”* — **Al-Qasas (28:38)**
+> 📖 *and then, lo, they will be fully awakened [to the truth]!* — **An-Naazi'aat (79:14)**
 <!-- quran-verse-end -->
 
 ---
