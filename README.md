@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! At three times [of day], let [even] those whom you rightfully pos­sess, as well as those from among you who have not yet attained to puberty, ask leave of you [before intruding upon your privacy]: before the prayer of daybreak, and whenever you lay aside your garments in the middle of the day, and after the prayer of nightfall: the three occasions on which your nakedness is likely to be bared. Beyond these [occasions], neither you nor they will incur any sin if they move [freely] about you, attending to [the needs of] one another. In this way God makes clear unto you His mes­sages: for God is all-knowing, wise!* — **An-Noor (24:58)**
+> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
 <!-- quran-verse-end -->
 
 ---
