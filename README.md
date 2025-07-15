@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *well-pleased with [the fruit of] their striving,* — **Al-Ghaashiya (88:9)**
+> 📖 *inasmuch as they said [to their followers], 'Do not ever abandon your gods: abandon neither Wadd nor Suwa', and neither Yaghuth nor Ya’uq nor Nasr!'* — **Nooh (71:23)**
 <!-- quran-verse-end -->
 
 ---
