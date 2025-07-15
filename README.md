@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and,] verily, the hours of night the mind most strongly and speak with the clearest voice,* — **Al-Muzzammil (73:6)**
+> 📖 *for, verily, to the love of wealth is he most ardently devoted.* — **Al-Aadiyaat (100:8)**
 <!-- quran-verse-end -->
 
 ---
