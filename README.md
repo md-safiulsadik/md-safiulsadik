@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for they will have no intercessors in the beings to whom they were wont to ascribe a share in God’s divinity, seeing that [by then] they themselves will have ceased to believe in their erstwhile blasphemous fancies.* — **Ar-Room (30:13)**
+> 📖 *And [because He is your Creator,] it rests with God alone to show you the right path: yet there is [many a one] who swerves from it. However, had He so willed, He would have guided you all aright.* — **An-Nahl (16:9)**
 <!-- quran-verse-end -->
 
 ---
