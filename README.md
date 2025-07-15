@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
+> 📖 *Limitless in His glory is He who has created opposites in whatever the earth produces, and in men’s own selves, and in that of which [as yet] they have no knowledge.* — **Yaseen (36:36)**
 <!-- quran-verse-end -->
 
 ---
