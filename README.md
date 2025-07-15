@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and from the evil of all human beings bent on occult endeavours,* — **Al-Falaq (113:4)**
+> 📖 *"He begets not, and neither is He begotten;* — **Al-Ikhlaas (112:3)**
 <!-- quran-verse-end -->
 
 ---
