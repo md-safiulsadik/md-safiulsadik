@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[AS AGAINST this,] behold, the God-conscious shall dwell amidst [cooling] shades and springs,* — **Al-Mursalaat (77:41)**
+> 📖 *well-pleased with [the fruit of] their striving,* — **Al-Ghaashiya (88:9)**
 <!-- quran-verse-end -->
 
 ---
