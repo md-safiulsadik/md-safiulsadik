@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER this divine writ, clear in itself and clearly showing the truth!* — **Ad-Dukhaan (44:2)**
+> 📖 *and [the tribe of] Thamud, and the people of Lot, and the dwellers of the wooded dales [of Madyan]: they all were leagued together, [as it were, in their unbelief:]* — **Saad (38:13)**
 <!-- quran-verse-end -->
 
 ---
