@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, verily, to the love of wealth is he most ardently devoted.* — **Al-Aadiyaat (100:8)**
+> 📖 *for they will have no intercessors in the beings to whom they were wont to ascribe a share in God’s divinity, seeing that [by then] they themselves will have ceased to believe in their erstwhile blasphemous fancies.* — **Ar-Room (30:13)**
 <!-- quran-verse-end -->
 
 ---
