@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *At that, the one of the two [erstwhile prisoners] who had been saved, and [who suddenly] remembered [Joseph] after all that time, spoke [thus]: "It is I who can inform you of the real meaning of this [dream]; so let me go [in search of it]."* — **Yusuf (12:45)**
+> 📖 *and when all beasts are gathered together,* — **At-Takwir (81:5)**
 <!-- quran-verse-end -->
 
 ---
