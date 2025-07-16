@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the shadows of black smoke -* — **Al-Waaqia (56:43)**
+> 📖 *and the morn when it dawns!* — **Al-Muddaththir (74:34)**
 <!-- quran-verse-end -->
 
 ---
