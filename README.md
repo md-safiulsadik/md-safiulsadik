@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Forbidden to you are your mothers, and your daughters, and your sisters, and your aunts paternal and maternal, and a brother's daughters, and a sister's daughters; and your milk-mothers, and your milk-sisters; and the mothers of your wives; and your step-daughters - who are your foster children - born of your wives with whom you have consummated your marriage; but if you have not consummated your marriage, you will incur no sin [by marrying their daughters]; and [forbidden to you are] the spouses of the sons who have sprung from your loins; and [you are forbidden] to have two sisters [as your wives] at one and the same time - but what is past is past: for, behold, God is indeed much-forgiving, a dispenser of grace.* — **An-Nisaa (4:23)**
+> 📖 *God has already enjoined upon you [O believers] the breaking and expiation of [such of] your oaths [as may run counter to what is right and just]: for, God is your Lord Supreme, and He alone is all-knowing, truly wise.* — **At-Tahrim (66:2)**
 <!-- quran-verse-end -->
 
 ---
