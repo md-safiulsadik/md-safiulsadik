@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *As for those who maintain, "Behold, God has bidden us not to believe in any apostle unless he comes unto us with burnt offerings" - say [unto them, O Prophet]: "Even before me there came unto you apostles with all evidence of the truth, and with that whereof you speak: why, then, did you slay them, if what you say is true?"* — **Aal-i-Imraan (3:183)**
+> 📖 *“And, O my people, I fear for you [the coming of] that Day of [Judgment - the Day when you will be] calling unto one another [in distress] –* — **Ghafir (40:32)**
 <!-- quran-verse-end -->
 
 ---
