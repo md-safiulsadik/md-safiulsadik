@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[On the Day of Judgment,] every human being will be held in pledge for whatever [evil] he has wrought –* — **Al-Muddaththir (74:38)**
+> 📖 *And what could make thee conceive what that Judgment Day will be?* — **Al-Infitaar (82:17)**
 <!-- quran-verse-end -->
 
 ---
