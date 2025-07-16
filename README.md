@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But what do they think-they who attribute their own lying inventions to God-[what do they think will happen to them]. on the Day of Resurrection? Behold, God is indeed limitless in His bounty unto men -but most of them are ungrateful.* — **Yunus (10:60)**
+> 📖 *and the shadows of black smoke -* — **Al-Waaqia (56:43)**
 <!-- quran-verse-end -->
 
 ---
