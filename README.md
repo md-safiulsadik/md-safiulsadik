@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what that Judgment Day will be?* — **Al-Infitaar (82:17)**
+> 📖 *As for those who maintain, "Behold, God has bidden us not to believe in any apostle unless he comes unto us with burnt offerings" - say [unto them, O Prophet]: "Even before me there came unto you apostles with all evidence of the truth, and with that whereof you speak: why, then, did you slay them, if what you say is true?"* — **Aal-i-Imraan (3:183)**
 <!-- quran-verse-end -->
 
 ---
