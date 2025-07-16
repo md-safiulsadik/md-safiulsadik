@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[The hypocrites] swear by God that they have said nothing [wrong]; yet most certainly have they uttered a saying which amounts to a denial of the truth, and have [thus] denied the truth after [having professed] their self-surrender to God: for they were aiming at something which was beyond their reach. And they could find no fault [with the Faith] save that God had enriched them and [caused] His Apostle [to enrich them] out of His bounty! Hence, if they repent, it will be for their own good. But if they turn away, God will cause them to suffer grievous suffering in this world and in the life to come, and they will find no helper on earth, and none to give [them] succour.* — **At-Tawba (9:74)**
+> 📖 *Forbidden to you are your mothers, and your daughters, and your sisters, and your aunts paternal and maternal, and a brother's daughters, and a sister's daughters; and your milk-mothers, and your milk-sisters; and the mothers of your wives; and your step-daughters - who are your foster children - born of your wives with whom you have consummated your marriage; but if you have not consummated your marriage, you will incur no sin [by marrying their daughters]; and [forbidden to you are] the spouses of the sons who have sprung from your loins; and [you are forbidden] to have two sisters [as your wives] at one and the same time - but what is past is past: for, behold, God is indeed much-forgiving, a dispenser of grace.* — **An-Nisaa (4:23)**
 <!-- quran-verse-end -->
 
 ---
