@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“And, O my people, I fear for you [the coming of] that Day of [Judgment - the Day when you will be] calling unto one another [in distress] –* — **Ghafir (40:32)**
+> 📖 *Indeed, unto God belongs all that is in the heavens and all that is on earth: and so He will reward those who do evil in accordance with what they did, and will reward those who do good with ultimate good.* — **An-Najm (53:31)**
 <!-- quran-verse-end -->
 
 ---
