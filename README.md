@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, as for the men and women who accept the truth as true and who [thus] offer up unto God a goodly loan, they will be amply repaid, and shall have a noble reward [in the life to come].* — **Al-Hadid (57:18)**
+> 📖 *[The hypocrites] swear by God that they have said nothing [wrong]; yet most certainly have they uttered a saying which amounts to a denial of the truth, and have [thus] denied the truth after [having professed] their self-surrender to God: for they were aiming at something which was beyond their reach. And they could find no fault [with the Faith] save that God had enriched them and [caused] His Apostle [to enrich them] out of His bounty! Hence, if they repent, it will be for their own good. But if they turn away, God will cause them to suffer grievous suffering in this world and in the life to come, and they will find no helper on earth, and none to give [them] succour.* — **At-Tawba (9:74)**
 <!-- quran-verse-end -->
 
 ---
