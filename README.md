@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God has already enjoined upon you [O believers] the breaking and expiation of [such of] your oaths [as may run counter to what is right and just]: for, God is your Lord Supreme, and He alone is all-knowing, truly wise.* — **At-Tahrim (66:2)**
+> 📖 *Verily, those who have attained to faith and do good works, and are constant in prayer, and dispense charity - they shall have their reward with their Sustainer, and no fear need they have, and neither shall they grieve.* — **Al-Baqara (2:277)**
 <!-- quran-verse-end -->
 
 ---
