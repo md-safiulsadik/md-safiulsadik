@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, those who have attained to faith and do good works, and are constant in prayer, and dispense charity - they shall have their reward with their Sustainer, and no fear need they have, and neither shall they grieve.* — **Al-Baqara (2:277)**
+> 📖 *But what do they think-they who attribute their own lying inventions to God-[what do they think will happen to them]. on the Day of Resurrection? Behold, God is indeed limitless in His bounty unto men -but most of them are ungrateful.* — **Yunus (10:60)**
 <!-- quran-verse-end -->
 
 ---
