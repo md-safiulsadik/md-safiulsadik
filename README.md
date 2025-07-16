@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [We have propounded yet another parable of God-consciousness in the story of] Mary, the daughter of Imran, who guarded her chastity, whereupon We breathed of Our spirit into that [which was in her womb], and who accepted the truth of her Sustainer’s words - and [thus,] of His revelations - and was one of the truly devout.* — **At-Tahrim (66:12)**
+> 📖 *At that, the one of the two [erstwhile prisoners] who had been saved, and [who suddenly] remembered [Joseph] after all that time, spoke [thus]: "It is I who can inform you of the real meaning of this [dream]; so let me go [in search of it]."* — **Yusuf (12:45)**
 <!-- quran-verse-end -->
 
 ---
