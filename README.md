@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *to let loose upon them stone-hard blows of chastisement,* — **Adh-Dhaariyat (51:33)**
+> 📖 *Said [Moses]: "Take-me not to task for my having forgotten [myself], and be not hard on me on account of what I have done!"* — **Al-Kahf (18:73)**
 <!-- quran-verse-end -->
 
 ---
