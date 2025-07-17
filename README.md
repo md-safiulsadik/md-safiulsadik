@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Hence,] no blame whatever attaches to the Prophet for [having done] what God has ordained for him. [Indeed, such was] God’s way with those that have passed away aforetime and [remember that] God’s will is always destiny absolute-;* — **Al-Ahzaab (33:38)**
+> 📖 *and who believe in their Sus­tainer’s messages,* — **Al-Muminoon (23:58)**
 <!-- quran-verse-end -->
 
 ---
