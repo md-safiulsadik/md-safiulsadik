@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and, verily, judgment is bound to come!* — **Adh-Dhaariyat (51:6)**
+> 📖 *and when the stars lose their light,* — **At-Takwir (81:2)**
 <!-- quran-verse-end -->
 
 ---
