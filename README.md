@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for they will have no intercessors in the beings to whom they were wont to ascribe a share in God’s divinity, seeing that [by then] they themselves will have ceased to believe in their erstwhile blasphemous fancies.* — **Ar-Room (30:13)**
+> 📖 *[O you who believe!] God has promised you many war-gains which you shall yet achieve; and He has vouchsafed you these [worldly gains] well in advance, and has stayed from you the hands of [hostile] people, so that this [your inner strength] may become a symbol to the believers [who will come after you], and that He may guide you all on a straight way.* — **Al-Fath (48:20)**
 <!-- quran-verse-end -->
 
 ---
