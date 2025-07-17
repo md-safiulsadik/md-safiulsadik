@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHEN GOD'S SUCCOUR comes, and victory,* — **An-Nasr (110:1)**
+> 📖 *and when the stars lose their light,* — **At-Takwir (81:2)**
 <!-- quran-verse-end -->
 
 ---
