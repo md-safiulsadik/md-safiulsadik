@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said [Moses]: "Take-me not to task for my having forgotten [myself], and be not hard on me on account of what I have done!"* — **Al-Kahf (18:73)**
+> 📖 *And who could be more astray than one who invokes, instead of God, such as will not respond to him either now or on the Day of Resurrection, and are not even conscious of being invoked?* — **Al-Ahqaf (46:5)**
 <!-- quran-verse-end -->
 
 ---
