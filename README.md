@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND NO BEARER of burdens shall be made to bear another’s burden; and if one weighed down by his load calls upon [another] to help him carry it, nothing thereof may be carried [by that other], even if it be one’s near of kin. Hence, thou canst [truly] warn only those who stand in awe of their Sustainer although He is beyond the reach of their perception, and are constant in prayer, and [know that] whoever grows in purity, attains to purity but for the good of his own self, and [that] with God is all journeys’ end.* — **Faatir (35:18)**
+> 📖 *WHEN GOD'S SUCCOUR comes, and victory,* — **An-Nasr (110:1)**
 <!-- quran-verse-end -->
 
 ---
