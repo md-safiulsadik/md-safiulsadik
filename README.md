@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the stars lose their light,* — **At-Takwir (81:2)**
+> 📖 *Why - [how could we be resurrected] after we have died and become mere dust? Such a return seems far-fetched indeed!”* — **Qaaf (50:3)**
 <!-- quran-verse-end -->
 
 ---
