@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Whenever you [intend to] consult the Apostle, offer up something in charity on the occasion of your consultation: this will be for your own good, and more conducive to your [inner] purity. Yet if you are unable to do so, [know that,] verily, God is much-forgiving, a dispen­ser of grace.* — **Al-Mujaadila (58:12)**
+> 📖 *for they will have no intercessors in the beings to whom they were wont to ascribe a share in God’s divinity, seeing that [by then] they themselves will have ceased to believe in their erstwhile blasphemous fancies.* — **Ar-Room (30:13)**
 <!-- quran-verse-end -->
 
 ---
