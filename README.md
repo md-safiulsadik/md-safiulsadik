@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that Day We shall set a seal on their mouths but their hands will speak unto Us, and their feet will bear witness to whatever they have earned [in life].* — **Yaseen (36:65)**
+> 📖 *[Hence,] no blame whatever attaches to the Prophet for [having done] what God has ordained for him. [Indeed, such was] God’s way with those that have passed away aforetime and [remember that] God’s will is always destiny absolute-;* — **Al-Ahzaab (33:38)**
 <!-- quran-verse-end -->
 
 ---
