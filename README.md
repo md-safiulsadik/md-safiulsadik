@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Why - [how could we be resurrected] after we have died and become mere dust? Such a return seems far-fetched indeed!”* — **Qaaf (50:3)**
+> 📖 *O YOU who have attained to faith! Whenever you [intend to] consult the Apostle, offer up something in charity on the occasion of your consultation: this will be for your own good, and more conducive to your [inner] purity. Yet if you are unable to do so, [know that,] verily, God is much-forgiving, a dispen­ser of grace.* — **Al-Mujaadila (58:12)**
 <!-- quran-verse-end -->
 
 ---
