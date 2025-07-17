@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND UNTO [the tribe of] Thamud [We sent] their brother Salih. He said: "O my people! Worship God [alone]: you have no deity other than Him. He brought you into being out of the earth, and made you thrive thereon. Ask Him, therefore, to forgive you your sins, and then turn towards Him in repentance-for, verily, my Sustainer is ever-near, responding [to the call of whoever calls unto Him]!"* — **Hud (11:61)**
+> 📖 *as well as all that you cannot see!* — **Al-Haaqqa (69:39)**
 <!-- quran-verse-end -->
 
 ---
