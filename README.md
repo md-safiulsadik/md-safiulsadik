@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He who has created death as well as life, so that He might put you to a test [and thus show] which of you is best in conduct, and [make you realize that] He alone is almighty, truly forgiving.* — **Al-Mulk (67:2)**
+> 📖 *On that Day We shall set a seal on their mouths but their hands will speak unto Us, and their feet will bear witness to whatever they have earned [in life].* — **Yaseen (36:65)**
 <!-- quran-verse-end -->
 
 ---
