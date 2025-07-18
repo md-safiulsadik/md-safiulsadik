@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND UNTO [the people of] Madyan [We sent] their brother Shu’ayb who thereupon said: “O my peo­ple! Worship God [alone], and look forward to the Last Day, and do not act wickedly on earth by spreading corruption!”* — **Al-Ankaboot (29:36)**
+> 📖 *the like of [what happens] when Satan says unto man, “Deny the truth!” - but as soon as [man] has denied the truth, [Satan] says, “Behold, I am not responsible for thee: behold, I fear God, the Sustainer of all the worlds!”* — **Al-Hashr (59:16)**
 <!-- quran-verse-end -->
 
 ---
