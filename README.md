@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *secure in their winter and summer journeys,* — **Quraish (106:2)**
+> 📖 *EAT [your fill] and enjoy your life for a little while, O you who are lost in sin!* — **Al-Mursalaat (77:46)**
 <!-- quran-verse-end -->
 
 ---
