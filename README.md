@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: for He alone is almighty, truly wise!* — **As-Saff (61:1)**
+> 📖 *[on that Day,] then, shall you be [divided into] three kinds.* — **Al-Waaqia (56:7)**
 <!-- quran-verse-end -->
 
 ---
