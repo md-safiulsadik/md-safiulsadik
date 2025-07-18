@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *EAT [your fill] and enjoy your life for a little while, O you who are lost in sin!* — **Al-Mursalaat (77:46)**
+> 📖 *And what could make thee conceive what it is that comes in the night?* — **At-Taariq (86:2)**
 <!-- quran-verse-end -->
 
 ---
