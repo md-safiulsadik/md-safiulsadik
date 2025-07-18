@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *such as would call God’s messages in question without having any evidence therefor: [a sin] exceedingly loathsome in the sight of God and of those who have attained to faith. It is in this way that God sets a seal on every arrogant, self-exalting heart.”* — **Ghafir (40:35)**
+> 📖 *And the great ones among Pharaoh's people said: "Wilt thou allow Moses and his people to spread corruption on earth, and to [cause thy people to] forsake thee and thy gods?" [Pharaoh] replied: "We shall slay their sons in great numbers and shall spare [only] their women: for, verily, we hold sway over them!"* — **Al-A'raaf (7:127)**
 <!-- quran-verse-end -->
 
 ---
