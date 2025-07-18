@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is they whom God has rejected: and he whom God rejects shall find none to succour him.* — **An-Nisaa (4:52)**
+> 📖 *and [that] We have set up the sky as a canopy well-secured? And yet, they stubbornly turn away from [all] the signs of this [creation],* — **Al-Anbiyaa (21:32)**
 <!-- quran-verse-end -->
 
 ---
