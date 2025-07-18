@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [that] We have set up the sky as a canopy well-secured? And yet, they stubbornly turn away from [all] the signs of this [creation],* — **Al-Anbiyaa (21:32)**
+> 📖 *And, indeed, [even] before thy time have [God's] apostles been derided, and for a while I gave rein to those who were [thus] bent on denying the truth: but then I took them to task - and how awesome was My retribution!* — **Ar-Ra'd (13:32)**
 <!-- quran-verse-end -->
 
 ---
