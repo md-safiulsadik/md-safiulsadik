@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what it is that comes in the night?* — **At-Taariq (86:2)**
+> 📖 *It is they whom God has rejected: and he whom God rejects shall find none to succour him.* — **An-Nisaa (4:52)**
 <!-- quran-verse-end -->
 
 ---
