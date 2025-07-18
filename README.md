@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O PROPHET! When you [intend to divorce women, divorce them with a view to the waiting period appointed for them, and reckon the period [carefully], and be conscious of God, your Sustainer. Do not expel them from their homes; and neither shall they [be made to] leave unless they become openly guilty of immoral conduct. These, then, are the bounds set by God - and he who transgresses the bounds set by God does indeed sin against himself: [for, O man, although] thou knowest it not, after that [first breach] God may well cause something new to come about.* — **At-Talaaq (65:1)**
+> 📖 *[for] if those [to whom they have pledged themselves] are indeed driven away, they will not go forth with them; and if war is waged against them, they will not come to their succour; and even if they [try to] succour them, they will most certainly turn their backs [in flight], and in the end will [themselves] find no succour.* — **Al-Hashr (59:12)**
 <!-- quran-verse-end -->
 
 ---
