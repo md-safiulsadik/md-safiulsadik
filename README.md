@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And the great ones among Pharaoh's people said: "Wilt thou allow Moses and his people to spread corruption on earth, and to [cause thy people to] forsake thee and thy gods?" [Pharaoh] replied: "We shall slay their sons in great numbers and shall spare [only] their women: for, verily, we hold sway over them!"* — **Al-A'raaf (7:127)**
+> 📖 *[the Day] on which the skies shall be rent asunder, [and] His promise [of resurrection] fulfilled?* — **Al-Muzzammil (73:18)**
 <!-- quran-verse-end -->
 
 ---
