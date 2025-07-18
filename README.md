@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who believe in their Sus­tainer’s messages,* — **Al-Muminoon (23:58)**
+> 📖 *ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: for He alone is almighty, truly wise!* — **As-Saff (61:1)**
 <!-- quran-verse-end -->
 
 ---
