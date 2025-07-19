@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *inasmuch as they said [to their followers], 'Do not ever abandon your gods: abandon neither Wadd nor Suwa', and neither Yaghuth nor Ya’uq nor Nasr!'* — **Nooh (71:23)**
+> 📖 *[And when he came.] they asked: “Hast thou done this to our gods, O Abraham?”* — **Al-Anbiyaa (21:62)**
 <!-- quran-verse-end -->
 
 ---
