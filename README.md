@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *About the awesome tiding [of resurrection],* — **An-Naba (78:2)**
+> 📖 *Furthermore, [this divine writ is meant] to warn all those who assert, "God has taken unto Himself a son."* — **Al-Kahf (18:4)**
 <!-- quran-verse-end -->
 
 ---
