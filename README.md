@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Pay heed, then, unto God, and pay heed unto the Apostle; and if you turn away, [know that] Our Apostle's only duty is a clear delivery of this message:* — **At-Taghaabun (64:12)**
+> 📖 *him will God cause to suffer the greatest suffering [in the life to come]:* — **Al-Ghaashiya (88:24)**
 <!-- quran-verse-end -->
 
 ---
