@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Can you ever feel secure that He who is in heaven will not cause the earth to swallow you up when, lo and behold, it begins to quake?* — **Al-Mulk (67:16)**
+> 📖 *inasmuch as they said [to their followers], 'Do not ever abandon your gods: abandon neither Wadd nor Suwa', and neither Yaghuth nor Ya’uq nor Nasr!'* — **Nooh (71:23)**
 <!-- quran-verse-end -->
 
 ---
