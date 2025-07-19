@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware that it is God whose limit­less glory all [creatures] that are in the heavens and on earth extol, even the birds as they spread out their wings? Each [of them] knows indeed how to pray unto Him and to glorify Him; and God has full knowledge of all that they do:* — **An-Noor (24:41)**
+> 📖 *OH, VERILY, unto God belongs whoever is in the heavens and whoever is on earth: hence, what is it that they follow-those who invoke, beside God. beings to whom they ascribe a share in His divinity? They follow but the conjectures [of others], and themselves do nothing but guess -* — **Yunus (10:66)**
 <!-- quran-verse-end -->
 
 ---
