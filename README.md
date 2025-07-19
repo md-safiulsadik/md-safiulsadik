@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "He is the Most Gracious: we have attained to faith in Him, and in Him have we placed our trust; and in time you will come to know which of us was lost in manifest error."* — **Al-Mulk (67:29)**
+> 📖 *Pay heed, then, unto God, and pay heed unto the Apostle; and if you turn away, [know that] Our Apostle's only duty is a clear delivery of this message:* — **At-Taghaabun (64:12)**
 <!-- quran-verse-end -->
 
 ---
