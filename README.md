@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [of Our sway over all that exists] they have a sign in the night: We withdraw from it the [light of] day - and lo! they are in darkness.* — **Yaseen (36:37)**
+> 📖 *and gardens dense with foliage,* — **Abasa (80:30)**
 <!-- quran-verse-end -->
 
 ---
