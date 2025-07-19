@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, indeed, We made this Qur’an easy to bear in mind: who, then, is willing to take it to heart?* — **Al-Qamar (54:32)**
+> 📖 *And [of Our sway over all that exists] they have a sign in the night: We withdraw from it the [light of] day - and lo! they are in darkness.* — **Yaseen (36:37)**
 <!-- quran-verse-end -->
 
 ---
