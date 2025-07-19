@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *to the end that He may reward those who believe and do right­eous deeds: [for] it is they whom forgiveness of sins awaits, and a most excellent sustenance* — **Saba (34:4)**
+> 📖 *Thus is thy Sustainer's word proved true with regard to such as are bent on sinful doings: they will not believes* — **Yunus (10:33)**
 <!-- quran-verse-end -->
 
 ---
