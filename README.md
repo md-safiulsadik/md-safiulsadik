@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *him will God cause to suffer the greatest suffering [in the life to come]:* — **Al-Ghaashiya (88:24)**
+> 📖 *And who could be more wicked than he to whom his Sustainer’s messages are conveyed and who thereupon turns away from them? Verily, We shall inflict Our retribution on those who are [thus] lost in sin!* — **As-Sajda (32:22)**
 <!-- quran-verse-end -->
 
 ---
