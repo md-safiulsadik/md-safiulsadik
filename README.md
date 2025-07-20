@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *fully conscious of what they are doing to the believers,* — **Al-Burooj (85:7)**
+> 📖 *But We shall most certainly give those who are [thus] bent on denying the truth a taste of suffering severe, and We shall most certainly requite them according to the worst of their deeds!* — **Fussilat (41:27)**
 <!-- quran-verse-end -->
 
 ---
