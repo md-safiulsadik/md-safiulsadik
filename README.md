@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And say unto those who will not believe: "Do anything that may be within your power, [while] we, behold, shall labour [in God's way];* — **Hud (11:121)**
+> 📖 *and when We cleft the sea before you, and thus saved you and caused Pharaoh's people to drown before your very eyes;* — **Al-Baqara (2:50)**
 <!-- quran-verse-end -->
 
 ---
