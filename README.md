@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But We shall most certainly give those who are [thus] bent on denying the truth a taste of suffering severe, and We shall most certainly requite them according to the worst of their deeds!* — **Fussilat (41:27)**
+> 📖 *Verily, those who [despite all evidence] are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God - will find themselves in the fire of hell, therein to abide: they are the worst of all creatures.* — **Al-Bayyina (98:6)**
 <!-- quran-verse-end -->
 
 ---
