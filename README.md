@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *an apostle from God, conveying [unto them] revelations blest with purity,* — **Al-Bayyina (98:2)**
+> 📖 *and succoured them, so that [in the end] it was they who achieved victory.* — **As-Saaffaat (37:116)**
 <!-- quran-verse-end -->
 
 ---
