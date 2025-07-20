@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let them, therefore, worship the Sustainer of this Temple;* — **Quraish (106:3)**
+> 📖 *[for] no human being has ever been left unguarded.* — **At-Taariq (86:4)**
 <!-- quran-verse-end -->
 
 ---
