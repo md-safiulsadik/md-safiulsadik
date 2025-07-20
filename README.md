@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Go on towards the threefold shadow* — **Al-Mursalaat (77:30)**
+> 📖 *and be not like those who say, "We have heard", the while they do not hearken.* — **Al-Anfaal (8:21)**
 <!-- quran-verse-end -->
 
 ---
