@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The intercalation [of months] is but one more instance of [their] refusal to acknowledge the truth- [a means] by which those who are bent on denying the truth are led astray. They declare this [intercalation] to be permissible in one year and forbidden in [another] year, in order to conform [outwardly] to the number of months which God has hallowed: and thus they make allowable what God has forbidden. Goodly seems unto them the evil of their own doings, since God does not grace with His guidance people who refuse to acknowledge the truth.* — **At-Tawba (9:37)**
+> 📖 *fully conscious of what they are doing to the believers,* — **Al-Burooj (85:7)**
 <!-- quran-verse-end -->
 
 ---
