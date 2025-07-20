@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"He begets not, and neither is He begotten;* — **Al-Ikhlaas (112:3)**
+> 📖 *Go on towards the threefold shadow* — **Al-Mursalaat (77:30)**
 <!-- quran-verse-end -->
 
 ---
