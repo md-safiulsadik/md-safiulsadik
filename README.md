@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *together with his wife, that carrier of evil tales,* — **Al-Masad (111:4)**
+> 📖 *He answered: "It is my staff; I lean on it; and with it I beat down leaves for my sheep; and [many] other uses have I for it."* — **Taa-Haa (20:18)**
 <!-- quran-verse-end -->
 
 ---
