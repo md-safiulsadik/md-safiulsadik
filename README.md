@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for those who are bent on denying the truth - the fire of hell awaits them: no end shall be put to their lives so that they could die, nor shall aught of the suffering caused by that [fire] be lightened for them: thus shall We requite all who are bereft of gratitude.* — **Faatir (35:36)**
+> 📖 *And he raised his parents to the highest place of honour; and they [all] fell down before Him, prostrating themselves in adoration. Thereupon [Joseph] said: "O my father! This is the real meaning of my dream of long ago, which my Sustainer has made come true. And He was indeed good to me when He freed me from the prison, and [when] He brought you [all unto me] from the desert after Satan had sown discord between me and my brothers. Verily, my Sustainer is unfathomable in [the way He brings about] whatever He wills: verily, He alone is all-knowing, truly wise!* — **Yusuf (12:100)**
 <!-- quran-verse-end -->
 
 ---
