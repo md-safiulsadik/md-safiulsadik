@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *A fire hotly burning!* — **Al-Qaari'a (101:11)**
+> 📖 *[It will occur] on the Day when men will be like moths swarming in confusion,* — **Al-Qaari'a (101:4)**
 <!-- quran-verse-end -->
 
 ---
