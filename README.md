@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Pray thus] for, behold, We are most cer­tainly able to let thee witness [the fulfillment, even in this world, of] whatever We promise them!* — **Al-Muminoon (23:95)**
+> 📖 *And thy Sustainer knows all that their hearts conceal as well as all that they bring into the open:* — **Al-Qasas (28:69)**
 <!-- quran-verse-end -->
 
 ---
