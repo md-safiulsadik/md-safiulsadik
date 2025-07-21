@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and in his heart Moses became apprehensive.* — **Taa-Haa (20:67)**
+> 📖 *Consider the sky and its wondrous make,* — **Ash-Shams (91:5)**
 <!-- quran-verse-end -->
 
 ---
