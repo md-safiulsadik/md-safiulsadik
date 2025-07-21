@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whenever he believes himself to be self-sufficient:* — **Al-Alaq (96:7)**
+> 📖 *Await, then, in all patience thy Sustainer's judgment, and pay no heed to any of them, who is a wilful sinner or an ingrate;* — **Al-Insaan (76:24)**
 <!-- quran-verse-end -->
 
 ---
