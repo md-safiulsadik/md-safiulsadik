@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *verily, it will close in upon them* — **Al-Humaza (104:8)**
+> 📖 *ALL THAT IS in the heavens and all that is on earth extols the limitless glory of God, the Sovereign Supreme, the Holy, the Almighty, the Wise!* — **Al-Jumu'a (62:1)**
 <!-- quran-verse-end -->
 
 ---
