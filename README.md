@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Await, then, in all patience thy Sustainer's judgment, and pay no heed to any of them, who is a wilful sinner or an ingrate;* — **Al-Insaan (76:24)**
+> 📖 *A fire hotly burning!* — **Al-Qaari'a (101:11)**
 <!-- quran-verse-end -->
 
 ---
