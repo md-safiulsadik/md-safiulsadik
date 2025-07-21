@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He answered: "It is my staff; I lean on it; and with it I beat down leaves for my sheep; and [many] other uses have I for it."* — **Taa-Haa (20:18)**
+> 📖 *on that Day will she recount all her tidings,* — **Az-Zalzala (99:4)**
 <!-- quran-verse-end -->
 
 ---
