@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But he who does not respond to God’s call can never elude [Him] on earth, nor can he has any protector against Him [in the life to come]: all such are most obviously lost in error.”* — **Al-Ahqaf (46:32)**
+> 📖 *And they shall be held [in this state as if] by iron grips;* — **Al-Hajj (22:21)**
 <!-- quran-verse-end -->
 
 ---
