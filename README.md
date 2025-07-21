@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And he raised his parents to the highest place of honour; and they [all] fell down before Him, prostrating themselves in adoration. Thereupon [Joseph] said: "O my father! This is the real meaning of my dream of long ago, which my Sustainer has made come true. And He was indeed good to me when He freed me from the prison, and [when] He brought you [all unto me] from the desert after Satan had sown discord between me and my brothers. Verily, my Sustainer is unfathomable in [the way He brings about] whatever He wills: verily, He alone is all-knowing, truly wise!* — **Yusuf (12:100)**
+> 📖 *and in his heart Moses became apprehensive.* — **Taa-Haa (20:67)**
 <!-- quran-verse-end -->
 
 ---
