@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And they shall be held [in this state as if] by iron grips;* — **Al-Hajj (22:21)**
+> 📖 *verily, it will close in upon them* — **Al-Humaza (104:8)**
 <!-- quran-verse-end -->
 
 ---
