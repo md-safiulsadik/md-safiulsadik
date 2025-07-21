@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
+> 📖 *ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?* — **Al-Fil (105:1)**
 <!-- quran-verse-end -->
 
 ---
