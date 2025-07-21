@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the sky and its wondrous make,* — **Ash-Shams (91:5)**
+> 📖 *And in time she returned to her people, carrying the child with her. They said: "O Mary! Thou hast indeed done an amazing thing!* — **Maryam (19:27)**
 <!-- quran-verse-end -->
 
 ---
