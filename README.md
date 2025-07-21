@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And in time she returned to her people, carrying the child with her. They said: "O Mary! Thou hast indeed done an amazing thing!* — **Maryam (19:27)**
+> 📖 *of an orphan near of kin,* — **Al-Balad (90:15)**
 <!-- quran-verse-end -->
 
 ---
