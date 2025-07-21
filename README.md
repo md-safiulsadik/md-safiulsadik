@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thy Sustainer knows all that their hearts conceal as well as all that they bring into the open:* — **Al-Qasas (28:69)**
+> 📖 *And, withal, they have no call to watch over [the beliefs of] others...* — **Al-Mutaffifin (83:33)**
 <!-- quran-verse-end -->
 
 ---
