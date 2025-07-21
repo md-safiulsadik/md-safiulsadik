@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, withal, they have no call to watch over [the beliefs of] others...* — **Al-Mutaffifin (83:33)**
+> 📖 *whenever he believes himself to be self-sufficient:* — **Al-Alaq (96:7)**
 <!-- quran-verse-end -->
 
 ---
