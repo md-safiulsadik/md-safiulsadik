@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And follow [but] that which comes unto thee through revelation from thy Sustainer: for God is truly aware of all that you do, [O men].* — **Al-Ahzaab (33:2)**
+> 📖 *those who, when they are to receive their due from [other] people, demand that it be given in full –* — **Al-Mutaffifin (83:2)**
 <!-- quran-verse-end -->
 
 ---
