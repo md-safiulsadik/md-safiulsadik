@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *knowing all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind - the Almighty, the Wise!* — **At-Taghaabun (64:18)**
+> 📖 *And follow [but] that which comes unto thee through revelation from thy Sustainer: for God is truly aware of all that you do, [O men].* — **Al-Ahzaab (33:2)**
 <!-- quran-verse-end -->
 
 ---
