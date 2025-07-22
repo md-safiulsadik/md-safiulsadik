@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *then He causes him to be begotten out of the essence of a humble fluid;* — **As-Sajda (32:8)**
+> 📖 *knowing all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind - the Almighty, the Wise!* — **At-Taghaabun (64:18)**
 <!-- quran-verse-end -->
 
 ---
