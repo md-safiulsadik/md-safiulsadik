@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *hence, as for those who would separate themselves from their wives by saying, “Thou art as unlawful to me as my mother”, and thereafter would go back on what they have said, [their atonement] shall be the freeing of a human being from bondage before the couple may touch one another again: this you are [hereby] exhorted to do - for God is fully aware of all that you do.* — **Al-Mujaadila (58:3)**
+> 📖 *O YOU who have attained to faith! Be helpers [in the cause of God - even as Jesus, the son of Mary, said unto the white-garbed ones, "Who will be my helpers in God's cause?" - whereupon the white-garbed [disciples] replied, "We shall be [thy] helpers [in the cause] of God!" And so [it happened that] some of the children of Israel came to believe [in the apostleship of Jesus], whereas others denied the truth. But [now] We have given strength against their foes unto those who have [truly] attained to faith: and they have become the ones that shall prevail.* — **As-Saff (61:14)**
 <!-- quran-verse-end -->
 
 ---
