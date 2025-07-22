@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, We have bestowed upon thee good in abundance:* — **Al-Kawthar (108:1)**
+> 📖 *that Day on which they will not [be able to] utter a word,* — **Al-Mursalaat (77:35)**
 <!-- quran-verse-end -->
 
 ---
