@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"from all [temptation to evil by] invisible forces as well as men,"* — **An-Naas (114:6)**
+> 📖 *And why should you not eat of that over which God's name has been pronounced, seeing that He has so clearly spelled out to you what He has forbidden you [to eat] unless you are compelled [to do so]? But, behold, [it is precisely in such matters that] many people lead others astray by their own errant views, without [having any real] knowledge. Verily, thy Sustainer is fully aware of those who transgress the bounds of what is right.* — **Al-An'aam (6:119)**
 <!-- quran-verse-end -->
 
 ---
