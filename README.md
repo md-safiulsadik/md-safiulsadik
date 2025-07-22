@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *those who, when they are to receive their due from [other] people, demand that it be given in full –* — **Al-Mutaffifin (83:2)**
+> 📖 *and when the blazing fire [of hell] is kindled bright,* — **At-Takwir (81:12)**
 <!-- quran-verse-end -->
 
 ---
