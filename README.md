@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whose hearts from their prayer are remote* — **Al-Maa'un (107:5)**
+> 📖 *Or is it, perchance, that they have not recog­nized their Apostle, and so they disavow him?* — **Al-Muminoon (23:69)**
 <!-- quran-verse-end -->
 
 ---
