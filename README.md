@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or is it, perchance, that they have not recog­nized their Apostle, and so they disavow him?* — **Al-Muminoon (23:69)**
+> 📖 *And, verily, thou canst not make the dead hear: and [so, too,] thou canst not make the deaf [of heart] hear this call when they turn their backs [on thee] and go away,* — **Ar-Room (30:52)**
 <!-- quran-verse-end -->
 
 ---
