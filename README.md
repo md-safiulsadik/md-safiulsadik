@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *that Day on which they will not [be able to] utter a word,* — **Al-Mursalaat (77:35)**
+> 📖 *And thy Sustainer knows all that their hearts conceal as well as all that they bring into the open:* — **Al-Qasas (28:69)**
 <!-- quran-verse-end -->
 
 ---
