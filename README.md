@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“‘[Revere thy parents;] yet should they endeavour to make thee ascribe divinity, side by side with Me, to something which thy mind cannot accept [as divine], obey them not; but [even then] bear them company in this world’s life with kindness, and follow the path of those who turn towards Me. In the end, unto Me you all must return; and thereupon I shall make you [truly] understand all that you were doing [in life].’* — **Luqman (31:15)**
+> 📖 *"from the evil of the whispering, elusive tempter* — **An-Naas (114:4)**
 <!-- quran-verse-end -->
 
 ---
