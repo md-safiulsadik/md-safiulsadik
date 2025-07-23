@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"the Sovereign of men,* — **An-Naas (114:2)**
+> 📖 *LET MAN, then, observe out of what he has been created:* — **At-Taariq (86:5)**
 <!-- quran-verse-end -->
 
 ---
