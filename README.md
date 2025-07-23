@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, God loves [only] those who fight in His cause in [solid] ranks, as though they were a building firm and compact.* — **As-Saff (61:4)**
+> 📖 *Does man imagine that it is his due to have all that he might wish for,* — **An-Najm (53:24)**
 <!-- quran-verse-end -->
 
 ---
