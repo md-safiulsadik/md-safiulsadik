@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Does man imagine that it is his due to have all that he might wish for,* — **An-Najm (53:24)**
+> 📖 *No [other] women shall henceforth be lawful to thee nor art thou [allowed] to supplant [any of] them by other wives, even though their beauty should please thee greatly -: [none shall be lawful to thee] beyond those whom thou [already] hast come to possess. And God keeps watch over everything.* — **Al-Ahzaab (33:52)**
 <!-- quran-verse-end -->
 
 ---
