@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O MAN! What is it that lures thee away from thy bountiful Sustainer,* — **Al-Infitaar (82:6)**
+> 📖 *It is they whom God has rejected: and he whom God rejects shall find none to succour him.* — **An-Nisaa (4:52)**
 <!-- quran-verse-end -->
 
 ---
