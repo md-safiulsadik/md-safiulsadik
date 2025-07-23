@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Those of the bedouin who stayed behind will say unto thee: “[The need to take care of] our chat­tels and our families kept us busy: do then, [O Prophet,] ask God to forgive us!” [Thus,] they will utter with their tongues something that is not in their hearts. Say: “Who, then, has it in his power to avert from you aught that God may have willed, whether it be His will to harm you or to confer a benefit on you? Nay, but God is fully aware of what you do!* — **Al-Fath (48:11)**
+> 📖 *Said [Noah]: "O my Sustainer! Verily, I seek refuge with Thee from [ever again] asking of Thee anything whereof I cannot have any knowledge! For unless Thou grant me forgiveness and bestow Thy mercy upon me, I shall be among the lost!"* — **Hud (11:47)**
 <!-- quran-verse-end -->
 
 ---
