@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And when the last Hour dawns, those who were lost in sin will be broken in spirit* — **Ar-Room (30:12)**
+> 📖 *and of all the kinsfolk who ever sheltered him,* — **Al-Ma'aarij (70:13)**
 <!-- quran-verse-end -->
 
 ---
