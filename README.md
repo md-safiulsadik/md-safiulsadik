@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *excepting only his wife, [of whom God says,] `We have ordained [that], behold, she should be among those who stay behind!'* — **Al-Hijr (15:60)**
+> 📖 *Unto Him [alone] is due all prayer aiming at the Ultimate Truth, since those [other beings or powers] whom men invoke instead of God cannot respond to them in any way - [so that he who invokes them is] but like one who stretches his open hands towards water, [hoping] that it will reach his mouth, the while it never reaches him. Hence, the prayer of those who deny the truth amounts to no more than losing oneself in grievous error.* — **Ar-Ra'd (13:14)**
 <!-- quran-verse-end -->
 
 ---
