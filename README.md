@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[All forces of nature praise God and say:] “Among us, too, there is none but has a place assigned to it [by Him];* — **As-Saaffaat (37:164)**
+> 📖 *He boasts, "I have spent wealth abundant!"* — **Al-Balad (90:6)**
 <!-- quran-verse-end -->
 
 ---
