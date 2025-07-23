@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, indeed, he saw him a second time* — **An-Najm (53:13)**
+> 📖 *excepting only his wife, [of whom God says,] `We have ordained [that], behold, she should be among those who stay behind!'* — **Al-Hijr (15:60)**
 <!-- quran-verse-end -->
 
 ---
