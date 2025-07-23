@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the night as it runs its course!* — **Al-Fajr (89:4)**
+> 📖 *And once again he chose the right means [to achieve a right end].* — **Al-Kahf (18:89)**
 <!-- quran-verse-end -->
 
 ---
