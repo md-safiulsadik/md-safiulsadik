@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He boasts, "I have spent wealth abundant!"* — **Al-Balad (90:6)**
+> 📖 *Consider the night as it runs its course!* — **Al-Fajr (89:4)**
 <!-- quran-verse-end -->
 
 ---
