@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and of all the kinsfolk who ever sheltered him,* — **Al-Ma'aarij (70:13)**
+> 📖 *And, indeed, he saw him a second time* — **An-Najm (53:13)**
 <!-- quran-verse-end -->
 
 ---
