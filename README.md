@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who has given them food against hunger, and made them safe from danger.* — **Quraish (106:4)**
+> 📖 *Verily, God loves [only] those who fight in His cause in [solid] ranks, as though they were a building firm and compact.* — **As-Saff (61:4)**
 <!-- quran-verse-end -->
 
 ---
