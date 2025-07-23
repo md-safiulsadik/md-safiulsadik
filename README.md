@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said [Noah]: "O my Sustainer! Verily, I seek refuge with Thee from [ever again] asking of Thee anything whereof I cannot have any knowledge! For unless Thou grant me forgiveness and bestow Thy mercy upon me, I shall be among the lost!"* — **Hud (11:47)**
+> 📖 *who has given them food against hunger, and made them safe from danger.* — **Quraish (106:4)**
 <!-- quran-verse-end -->
 
 ---
