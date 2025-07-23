@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *No [other] women shall henceforth be lawful to thee nor art thou [allowed] to supplant [any of] them by other wives, even though their beauty should please thee greatly -: [none shall be lawful to thee] beyond those whom thou [already] hast come to possess. And God keeps watch over everything.* — **Al-Ahzaab (33:52)**
+> 📖 *[And] those who were wont to glory in their arrogance will say unto those who had been weak: “Why - did we keep you [forcibly] from following the right path after it had become obvious to you? Nay, it was but you [yourselves] who were guilty!”* — **Saba (34:32)**
 <!-- quran-verse-end -->
 
 ---
