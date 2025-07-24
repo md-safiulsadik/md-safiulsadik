@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *verily, it will close in upon them* — **Al-Humaza (104:8)**
+> 📖 *and is enwrapped in the pangs of death* — **Al-Qiyaama (75:29)**
 <!-- quran-verse-end -->
 
 ---
