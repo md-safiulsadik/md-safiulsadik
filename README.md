@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *a divine writ, the messages whereof have been clearly spelled out as a discourse in the Arabic tongue for people of [innate] knowl­edge,* — **Fussilat (41:3)**
+> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
 <!-- quran-verse-end -->
 
 ---
