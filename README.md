@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Have, then, they [who deny the truth] never yet seen how We visit the earth [with Our punishment], gradually depriving it of all that is best thereon? For, [when] God judges, there is no power that could repel His judgment: and swift in reckoning is He!* — **Ar-Ra'd (13:41)**
+> 📖 *O men! Be conscious of your Sustainer: for, verily the violent convulsion of the Last Hour will be an awesome thing!* — **Al-Hajj (22:1)**
 <!-- quran-verse-end -->
 
 ---
