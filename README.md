@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [when] no friend will ask about his friend,* — **Al-Ma'aarij (70:10)**
+> 📖 *a divine writ, the messages whereof have been clearly spelled out as a discourse in the Arabic tongue for people of [innate] knowl­edge,* — **Fussilat (41:3)**
 <!-- quran-verse-end -->
 
 ---
