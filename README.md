@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *until you go down to your graves.* — **At-Takaathur (102:2)**
+> 📖 *having put thee together in whatever form He willed [thee to have]?* — **Al-Infitaar (82:8)**
 <!-- quran-verse-end -->
 
 ---
