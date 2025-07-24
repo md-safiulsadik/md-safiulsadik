@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and is enwrapped in the pangs of death* — **Al-Qiyaama (75:29)**
+> 📖 *and caused them to become like a field of grain that has been eaten down to stubble* — **Al-Fil (105:5)**
 <!-- quran-verse-end -->
 
 ---
