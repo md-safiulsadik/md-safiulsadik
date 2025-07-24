@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [when] the earth yields up her burdens,* — **Az-Zalzala (99:2)**
+> 📖 *and [when] no friend will ask about his friend,* — **Al-Ma'aarij (70:10)**
 <!-- quran-verse-end -->
 
 ---
