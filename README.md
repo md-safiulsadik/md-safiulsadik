@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O men! Be conscious of your Sustainer: for, verily the violent convulsion of the Last Hour will be an awesome thing!* — **Al-Hajj (22:1)**
+> 📖 *NOW, INDEED, We have conferred dignity on the children of Adam, and borne them over land and sea, and provided for them sustenance out of the good things of life, and favoured them far above most of Our creation:* — **Al-Israa (17:70)**
 <!-- quran-verse-end -->
 
 ---
