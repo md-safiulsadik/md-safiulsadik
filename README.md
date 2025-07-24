@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who stand firm whenever they bear witness;* — **Al-Ma'aarij (70:33)**
+> 📖 *VERILY, [O Muhammad,] We have laid open before thee a manifest victory,* — **Al-Fath (48:1)**
 <!-- quran-verse-end -->
 
 ---
