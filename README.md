@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *having put thee together in whatever form He willed [thee to have]?* — **Al-Infitaar (82:8)**
+> 📖 *[for] no human being has ever been left unguarded.* — **At-Taariq (86:4)**
 <!-- quran-verse-end -->
 
 ---
