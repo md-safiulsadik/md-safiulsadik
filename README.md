@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NOW, INDEED, We have conferred dignity on the children of Adam, and borne them over land and sea, and provided for them sustenance out of the good things of life, and favoured them far above most of Our creation:* — **Al-Israa (17:70)**
+> 📖 *and who stand firm whenever they bear witness;* — **Al-Ma'aarij (70:33)**
 <!-- quran-verse-end -->
 
 ---
