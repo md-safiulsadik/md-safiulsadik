@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for him shall We make easy the path towards [ultimate] ease.* — **Al-Lail (92:7)**
+> 📖 *"and from the evil of the envious when he envies."* — **Al-Falaq (113:5)**
 <!-- quran-verse-end -->
 
 ---
