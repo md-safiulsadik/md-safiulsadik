@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Have We not given him two eyes,* — **Al-Balad (90:8)**
+> 📖 *BEAR THEN with patience thy Sustainer's will and be not like him of the great fish, who cried out [in distress] after having given in to anger.* — **Al-Qalam (68:48)**
 <!-- quran-verse-end -->
 
 ---
