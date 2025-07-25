@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEAR THEN with patience thy Sustainer's will and be not like him of the great fish, who cried out [in distress] after having given in to anger.* — **Al-Qalam (68:48)**
+> 📖 *They exclaimed: “Burn him, and [thereby] succour your gods, if you are going to do [anything]!”* — **Al-Anbiyaa (21:68)**
 <!-- quran-verse-end -->
 
 ---
