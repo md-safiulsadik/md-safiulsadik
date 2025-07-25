@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Thus, part of such war-gains shall be given] to the poor among those who have forsaken the domain of evil: those who have been driven from their homelands and their possessions, seeking favour with God and [His] goodly acceptance, and who aid [the cause of] God and His Apostle: it is they, they who are true to their word!* — **Al-Hashr (59:8)**
+> 📖 *and He made you heirs to their lands, and their houses, and their goods - and [promised you] lands on which you had never yet set foot: for God has indeed the power to will anything.* — **Al-Ahzaab (33:27)**
 <!-- quran-verse-end -->
 
 ---
