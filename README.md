@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said [his sons]: "By God! Thou wilt never cease to remember, Joseph till thou art broken in body and spirit or art dead!"* — **Yusuf (12:85)**
+> 📖 *Yet as soon as He has saved them from this [danger], lo! they behave outrageously on earth, offending against all right! O men! All your outrageous deeds are bound to fall back upon your own selves! [You care only for] the enjoyment of life in this world: [but remember that] in the end unto Us you must return, whereupon We shall make you truly understand all that you were doing [in life].* — **Yunus (10:23)**
 <!-- quran-verse-end -->
 
 ---
