@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"from all [temptation to evil by] invisible forces as well as men,"* — **An-Naas (114:6)**
+> 📖 *for him shall We make easy the path towards [ultimate] ease.* — **Al-Lail (92:7)**
 <!-- quran-verse-end -->
 
 ---
