@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and He made you heirs to their lands, and their houses, and their goods - and [promised you] lands on which you had never yet set foot: for God has indeed the power to will anything.* — **Al-Ahzaab (33:27)**
+> 📖 *in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen* — **Al-Qadr (97:4)**
 <!-- quran-verse-end -->
 
 ---
