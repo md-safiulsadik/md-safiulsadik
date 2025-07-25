@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so she said to his sister, “Follow him” - and [the girl] watched him from afar, while they [who had taken him in] were not aware of it,* — **Al-Qasas (28:11)**
+> 📖 *that had weighed so heavily on thy back?* — **Ash-Sharh (94:3)**
 <!-- quran-verse-end -->
 
 ---
