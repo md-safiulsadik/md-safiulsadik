@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They exclaimed: “Burn him, and [thereby] succour your gods, if you are going to do [anything]!”* — **Al-Anbiyaa (21:68)**
+> 📖 *THE LAST HOUR draws near, and the moon is split asunder!* — **Al-Qamar (54:1)**
 <!-- quran-verse-end -->
 
 ---
