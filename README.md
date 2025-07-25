@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, God loves [only] those who fight in His cause in [solid] ranks, as though they were a building firm and compact.* — **As-Saff (61:4)**
+> 📖 *Said [his sons]: "By God! Thou wilt never cease to remember, Joseph till thou art broken in body and spirit or art dead!"* — **Yusuf (12:85)**
 <!-- quran-verse-end -->
 
 ---
