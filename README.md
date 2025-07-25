@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and from the evil of the envious when he envies."* — **Al-Falaq (113:5)**
+> 📖 *until he was but two bow-lengths away, or even nearer.* — **An-Najm (53:9)**
 <!-- quran-verse-end -->
 
 ---
