@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *that had weighed so heavily on thy back?* — **Ash-Sharh (94:3)**
+> 📖 *"and from the evil of the envious when he envies."* — **Al-Falaq (113:5)**
 <!-- quran-verse-end -->
 
 ---
