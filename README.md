@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *in sublime almightiness enthroned,* — **Al-Burooj (85:15)**
+> 📖 *These are messages of a divine writ clear in itself and clearly showing the truth.* — **Al-Qasas (28:2)**
 <!-- quran-verse-end -->
 
 ---
