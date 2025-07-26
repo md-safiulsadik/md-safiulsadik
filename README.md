@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"Do you claim that Abraham and Ishmael and Isaac and Jacob and their descendants were `Jews' or `Christians'?" Say: "Do you know more than God does? And who could be more wicked than he who suppresses a testimony given to him by God? Yet God is not unmindful of what you do.* — **Al-Baqara (2:140)**
+> 📖 *No food for them save the bitterness of dry thorns,* — **Al-Ghaashiya (88:6)**
 <!-- quran-verse-end -->
 
 ---
