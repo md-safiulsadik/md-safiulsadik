@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *this, because [they profess that] they have attained to faith, whereas [inwardly] they deny the truth - and so, a seal has been set on their hearts so that they can no longer understand [what is true and what false].* — **Al-Munaafiqoon (63:3)**
+> 📖 *O you who have attained to faith! Turn unto God in sincere repentance: it may well be that your Sustainer will efface from you your bad deeds, and will admit you into gardens through which running waters flow, on a Day on which God will not shame the Prophet and those who share his faith: their light will spread rapidly before them, and on their right; [and] they will pray: "O our Sustainer! Cause this our light to shine for us forever, and forgive us our sins: for, verily, Thou hast the power to will anything!"* — **At-Tahrim (66:8)**
 <!-- quran-verse-end -->
 
 ---
