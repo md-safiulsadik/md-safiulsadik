@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus shall it be. And We shall pair them with companions pure, most beautiful of eye.* — **Ad-Dukhaan (44:54)**
+> 📖 *which, to them, is the only thing worth knowing. Behold, thy Sustainer is fully aware as to who has strayed from His path, and fully aware is He as to who follows His guidance.* — **An-Najm (53:30)**
 <!-- quran-verse-end -->
 
 ---
