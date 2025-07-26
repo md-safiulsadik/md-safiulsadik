@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but thou shalt worship God [alone], and be among those who are grateful [to Him]!* — **Az-Zumar (39:66)**
+> 📖 *And what could make thee conceive what it is, that Night of Destiny?* — **Al-Qadr (97:2)**
 <!-- quran-verse-end -->
 
 ---
