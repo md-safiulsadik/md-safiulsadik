@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and, withal, deny all assistance [to their fellow-men]!* — **Al-Maa'un (107:7)**
+> 📖 *Such is the bounty of God - and none has the knowledge which God has.* — **An-Nisaa (4:70)**
 <!-- quran-verse-end -->
 
 ---
