@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[for] no human being has ever been left unguarded.* — **At-Taariq (86:4)**
+> 📖 *[But,] Joseph, let this pass! And thou, [O wife,] ask forgiveness for thy sin-for, verily, thou hast been greatly at fault!"* — **Yusuf (12:29)**
 <!-- quran-verse-end -->
 
 ---
