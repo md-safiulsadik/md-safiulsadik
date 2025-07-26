@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But,] Joseph, let this pass! And thou, [O wife,] ask forgiveness for thy sin-for, verily, thou hast been greatly at fault!"* — **Yusuf (12:29)**
+> 📖 *O YOU who have attained to faith! Do not deprive yourselves of the good things of life which God has made lawful to you, but do not transgress the bounds of what is right: verily, God does not love those who transgress the bounds of what is right.* — **Al-Maaida (5:87)**
 <!-- quran-verse-end -->
 
 ---
