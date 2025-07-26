@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and so,] whenever Our messages are conveyed to them, they but say, "Fables of ancient times!"* — **Al-Mutaffifin (83:13)**
+> 📖 *“And turn not thy cheek away from people in [false] pride, and walk not haughtily on earth: for, behold, God does not love anyone who, out of self- conceit, acts in a boastful manner.* — **Luqman (31:18)**
 <!-- quran-verse-end -->
 
 ---
