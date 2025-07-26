@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *These are messages of a divine writ clear in itself and clearly showing the truth.* — **Al-Qasas (28:2)**
+> 📖 *"Do you claim that Abraham and Ishmael and Isaac and Jacob and their descendants were `Jews' or `Christians'?" Say: "Do you know more than God does? And who could be more wicked than he who suppresses a testimony given to him by God? Yet God is not unmindful of what you do.* — **Al-Baqara (2:140)**
 <!-- quran-verse-end -->
 
 ---
