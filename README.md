@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Do not deprive yourselves of the good things of life which God has made lawful to you, but do not transgress the bounds of what is right: verily, God does not love those who transgress the bounds of what is right.* — **Al-Maaida (5:87)**
+> 📖 *[and so,] whenever Our messages are conveyed to them, they but say, "Fables of ancient times!"* — **Al-Mutaffifin (83:13)**
 <!-- quran-verse-end -->
 
 ---
