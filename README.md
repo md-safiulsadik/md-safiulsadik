@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which, to them, is the only thing worth knowing. Behold, thy Sustainer is fully aware as to who has strayed from His path, and fully aware is He as to who follows His guidance.* — **An-Najm (53:30)**
+> 📖 *[There,] anyone who has done a bad deed will be requited with no more than the like thereof, whereas anyone, be it man or woman, who has done righteous deeds and is a believer withal - all such will enter paradise, wherein they shall be blest with good beyond all reckoning!* — **Ghafir (40:40)**
 <!-- quran-verse-end -->
 
 ---
