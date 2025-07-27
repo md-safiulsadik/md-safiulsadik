@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[If you do so,] He will forgive you your sins, and [in the life to come] will admit you into gardens through which running waters flow, and into goodly mansions in [those] gardens of perpetual bliss: that [will be] the triumph supreme!* — **As-Saff (61:12)**
+> 📖 *behold, We have bestowed it from on high as a discourse in the Arabic tongue, so that you might encompass it with your reason.* — **Yusuf (12:2)**
 <!-- quran-verse-end -->
 
 ---
