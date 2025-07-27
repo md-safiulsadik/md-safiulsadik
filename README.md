@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and is no idle tale.* — **At-Taariq (86:14)**
+> 📖 *And [on that Day] paradise will be brought within the sight of the God-conscious, and will no longer be far away; [and they will be told:]* — **Qaaf (50:31)**
 <!-- quran-verse-end -->
 
 ---
