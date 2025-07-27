@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And whenever they spend anything [for the sake of God], be it little or much, and whenever they move on earth [in God's cause] -it is recorded in their favour, and God will grant them the best reward for all that they have been doing.* — **At-Tawba (9:121)**
+> 📖 *And there are among them such as [seem to] listen to thee [O Prophet]: but over their hearts We have laid veils which prevent them from grasping the truth, and into their ears, deafness. And were they to see every sign [of the truth], they would still not believe in it-so much so that when they come unto thee to contend with thee, those who are bent on denying the truth say, "This is nothing but fables of ancient times!"* — **Al-An'aam (6:25)**
 <!-- quran-verse-end -->
 
 ---
