@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *behold, We have bestowed it from on high as a discourse in the Arabic tongue, so that you might encompass it with your reason.* — **Yusuf (12:2)**
+> 📖 *And then, [even] if they endure [their lot] in patience, the fire will still be their abode; and if they pray to be allowed to make amends, they will not be allowed to do so:* — **Fussilat (41:24)**
 <!-- quran-verse-end -->
 
 ---
