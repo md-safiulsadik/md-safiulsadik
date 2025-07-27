@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[In the life to come] he shall have to endure a fire fiercely glowing;* — **Al-Masad (111:3)**
+> 📖 *"'And God has caused you to grow out of the earth in [gradual] growth; and thereafter He will return you to it [in death]:* — **Nooh (71:17)**
 <!-- quran-verse-end -->
 
 ---
