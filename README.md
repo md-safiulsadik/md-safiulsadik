@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[There,] anyone who has done a bad deed will be requited with no more than the like thereof, whereas anyone, be it man or woman, who has done righteous deeds and is a believer withal - all such will enter paradise, wherein they shall be blest with good beyond all reckoning!* — **Ghafir (40:40)**
+> 📖 *And indeed, there had come unto them an apostle from among themselves -but they gave him the lie; and therefore suffering overwhelmed them while they were thus doing wrong [to themselves].* — **An-Nahl (16:113)**
 <!-- quran-verse-end -->
 
 ---
