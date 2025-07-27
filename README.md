@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "Had God willed it [otherwise], I would not have conveyed this [divine writ] unto you, nor would He have brought it to your knowledge. Indeed. a whole lifetime have I dwelt among you ere this [revelation came unto me]: will you not, then, use your reason?”* — **Yunus (10:16)**
+> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
 <!-- quran-verse-end -->
 
 ---
