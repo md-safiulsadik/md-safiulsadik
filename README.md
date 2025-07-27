@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But they cruelly slaughtered her - and then they had cause to regret it:* — **Ash-Shu'araa (26:157)**
+> 📖 *Behold, they were not expecting to be called to account,* — **An-Naba (78:27)**
 <!-- quran-verse-end -->
 
 ---
