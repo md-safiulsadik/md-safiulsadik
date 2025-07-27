@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Pay heed, then, unto God, and pay heed unto the Apostle; and if you turn away, [know that] Our Apostle's only duty is a clear delivery of this message:* — **At-Taghaabun (64:12)**
+> 📖 *And so, he who shall have done an atom's weight of good, shall behold it;* — **Az-Zalzala (99:7)**
 <!-- quran-verse-end -->
 
 ---
