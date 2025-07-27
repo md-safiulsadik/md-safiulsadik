@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
+> 📖 *And whenever they spend anything [for the sake of God], be it little or much, and whenever they move on earth [in God's cause] -it is recorded in their favour, and God will grant them the best reward for all that they have been doing.* — **At-Tawba (9:121)**
 <!-- quran-verse-end -->
 
 ---
