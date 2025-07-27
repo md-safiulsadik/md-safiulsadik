@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "If an afterlife with God is to be for you alone, to the exclusion of all other people, then. you should long for death-if what you say is true!"* — **Al-Baqara (2:94)**
+> 📖 *But they cruelly slaughtered her - and then they had cause to regret it:* — **Ash-Shu'araa (26:157)**
 <!-- quran-verse-end -->
 
 ---
