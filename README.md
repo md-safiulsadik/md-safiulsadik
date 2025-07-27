@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And indeed, there had come unto them an apostle from among themselves -but they gave him the lie; and therefore suffering overwhelmed them while they were thus doing wrong [to themselves].* — **An-Nahl (16:113)**
+> 📖 *[the while] We shall summon the forces of heavenly chastisement!* — **Al-Alaq (96:18)**
 <!-- quran-verse-end -->
 
 ---
