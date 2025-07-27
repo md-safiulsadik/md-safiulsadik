@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [on that Day] paradise will be brought within the sight of the God-conscious, and will no longer be far away; [and they will be told:]* — **Qaaf (50:31)**
+> 📖 *Pay heed, then, unto God, and pay heed unto the Apostle; and if you turn away, [know that] Our Apostle's only duty is a clear delivery of this message:* — **At-Taghaabun (64:12)**
 <!-- quran-verse-end -->
 
 ---
