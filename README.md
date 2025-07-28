@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And among His signs are the ships that sail like [floating] mountains through the seas:* — **Ash-Shura (42:32)**
+> 📖 *But [as for me,] I do not know whether, perchance, this [delay in God’s judgment] is but a trial for you, and a [merciful] respite for a while.”* — **Al-Anbiyaa (21:111)**
 <!-- quran-verse-end -->
 
 ---
