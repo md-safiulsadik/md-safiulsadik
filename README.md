@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and fields of grain, and noble dwellings,* — **Ad-Dukhaan (44:26)**
+> 📖 *If good fortune comes to you, it grieves them; and if evil befalls you, they rejoice in it. But if you are patient in adversity and conscious of God, their guile cannot harm you at all: for, verily, God encompasses [with His might] all that they do.* — **Aal-i-Imraan (3:120)**
 <!-- quran-verse-end -->
 
 ---
