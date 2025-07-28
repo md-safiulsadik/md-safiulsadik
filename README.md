@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thou seest people enter God's religion in hosts,* — **An-Nasr (110:2)**
+> 📖 *whereas by day a long chain of doings is thy portion.* — **Al-Muzzammil (73:7)**
 <!-- quran-verse-end -->
 
 ---
