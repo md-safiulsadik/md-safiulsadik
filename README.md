@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *obeying its Sustainer, as in truth it must;* — **Al-Inshiqaaq (84:2)**
+> 📖 *and fields of grain, and noble dwellings,* — **Ad-Dukhaan (44:26)**
 <!-- quran-verse-end -->
 
 ---
