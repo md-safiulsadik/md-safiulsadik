@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Do not take for your bosom-friends people who are not of your kind. They spare no effort to corrupt you; they would love to see you in distress. Vehement hatred has already come into the open from out of their mouths, but what their hearts conceal is yet worse. We have indeed made the signs [thereof] clear unto you, if you would but use your reason.* — **Aal-i-Imraan (3:118)**
+> 📖 *and vines and edible plants,* — **Abasa (80:28)**
 <!-- quran-verse-end -->
 
 ---
