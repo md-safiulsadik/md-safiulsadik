@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
+> 📖 *And among His signs are the ships that sail like [floating] mountains through the seas:* — **Ash-Shura (42:32)**
 <!-- quran-verse-end -->
 
 ---
