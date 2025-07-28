@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *wherein there are ordinances of ever-true soundness and clarity.* — **Al-Bayyina (98:3)**
+> 📖 *thereby storming [blindly] into any host!* — **Al-Aadiyaat (100:5)**
 <!-- quran-verse-end -->
 
 ---
