@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [also,] that the suffering which I shall impose [on sinners] will indeed be a suffering most grievous.* — **Al-Hijr (15:50)**
+> 📖 *and, indeed, we granted this wisdom unto Luq­man: “Be grateful unto God - for he who is grateful [unto Him] is but grateful for the good of his own self; whereas he who chooses to be ungrateful [ought to know that], verily, God is self-sufficient, ever to be praised!”* — **Luqman (31:12)**
 <!-- quran-verse-end -->
 
 ---
