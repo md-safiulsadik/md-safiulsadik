@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and vines and edible plants,* — **Abasa (80:28)**
+> 📖 *[And this will be] a reward for what they did [in life].* — **Al-Waaqia (56:24)**
 <!-- quran-verse-end -->
 
 ---
