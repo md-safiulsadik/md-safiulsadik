@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *If good fortune comes to you, it grieves them; and if evil befalls you, they rejoice in it. But if you are patient in adversity and conscious of God, their guile cannot harm you at all: for, verily, God encompasses [with His might] all that they do.* — **Aal-i-Imraan (3:120)**
+> 📖 *Or is it that [they who reject thy message, O Muhammad, fear lest] thou ask of them a reward, so that they would be burdened with debt [if they should listen to thee]?* — **At-Tur (52:40)**
 <!-- quran-verse-end -->
 
 ---
