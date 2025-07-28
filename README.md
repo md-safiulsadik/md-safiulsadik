@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But [as for me,] I do not know whether, perchance, this [delay in God’s judgment] is but a trial for you, and a [merciful] respite for a while.”* — **Al-Anbiyaa (21:111)**
+> 📖 *and [also,] that the suffering which I shall impose [on sinners] will indeed be a suffering most grievous.* — **Al-Hijr (15:50)**
 <!-- quran-verse-end -->
 
 ---
