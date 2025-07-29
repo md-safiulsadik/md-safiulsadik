@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *How could it be that He who has created [all] should not know [all]? Yea, He alone is unfathomable [in His wisdom], aware!* — **Al-Mulk (67:14)**
+> 📖 *ALL THAT IS in the heavens and all that is on earth extols the limitless glory of God, the Sovereign Supreme, the Holy, the Almighty, the Wise!* — **Al-Jumu'a (62:1)**
 <!-- quran-verse-end -->
 
 ---
