@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither will you [ever] worship that which I worship.* — **Al-Kaafiroon (109:5)**
+> 📖 *NAY, but when [the last breath] comes up to the throat [of a dying man],* — **Al-Qiyaama (75:26)**
 <!-- quran-verse-end -->
 
 ---
