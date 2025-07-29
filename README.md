@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NAY, but when [the last breath] comes up to the throat [of a dying man],* — **Al-Qiyaama (75:26)**
+> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
 <!-- quran-verse-end -->
 
 ---
