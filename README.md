@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[For thus it always happens: We seal the doom of all who deny the truth and give the lie to Our messages;] and thereupon We save Our apostles and those who have attained to faith. Thus have We willed it upon Ourselves: We save all who believe [in Us],* — **Yunus (10:103)**
+> 📖 *If they could but overcome you, they would [still] remain your foes, and would stretch forth their hands and tongues against you with evil intent: for they desire that you [too] should deny the truth.* — **Al-Mumtahana (60:2)**
 <!-- quran-verse-end -->
 
 ---
