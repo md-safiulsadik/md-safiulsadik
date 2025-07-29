@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Their apostles answered them: "True, we are nothing but mortal men like yourselves: but God bestows His favour upon whomever He wills of His servants. Withal, it is not within our power to bring you a proof [of our mission], unless it be by God's leave-and [so] it is in God that all believers must place their trust.* — **Ibrahim (14:11)**
+> 📖 *and that [we were mistaken when] we thought that neither man nor [any of] the invisible forces would ever tell a lie about God.* — **Al-Jinn (72:5)**
 <!-- quran-verse-end -->
 
 ---
