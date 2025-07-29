@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thou seest people enter God's religion in hosts,* — **An-Nasr (110:2)**
+> 📖 *How could it be that He who has created [all] should not know [all]? Yea, He alone is unfathomable [in His wisdom], aware!* — **Al-Mulk (67:14)**
 <!-- quran-verse-end -->
 
 ---
