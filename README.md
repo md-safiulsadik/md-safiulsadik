@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And in your own nature, and in [that of] all the animals which He scatters [over the earth] there are messages for people who are endowed with inner certainty.* — **Al-Jaathiya (45:4)**
+> 📖 *As for those who attain to faith and do right­eous deeds - gardens of rest await them, as a wel­come [from God], in result of what they did;* — **As-Sajda (32:19)**
 <!-- quran-verse-end -->
 
 ---
