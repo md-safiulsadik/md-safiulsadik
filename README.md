@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.* — **An-Nasr (110:3)**
+> 📖 *And in your own nature, and in [that of] all the animals which He scatters [over the earth] there are messages for people who are endowed with inner certainty.* — **Al-Jaathiya (45:4)**
 <!-- quran-verse-end -->
 
 ---
