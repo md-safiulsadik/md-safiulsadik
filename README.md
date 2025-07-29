@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ALL THAT IS in the heavens and all that is on earth extols the limitless glory of God, the Sovereign Supreme, the Holy, the Almighty, the Wise!* — **Al-Jumu'a (62:1)**
+> 📖 *But in the eyes of those who have attained to faith and have always been conscious of Us, a reward in the life to come is a far greater good [than any reward in this world].* — **Yusuf (12:57)**
 <!-- quran-verse-end -->
 
 ---
