@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But in the eyes of those who have attained to faith and have always been conscious of Us, a reward in the life to come is a far greater good [than any reward in this world].* — **Yusuf (12:57)**
+> 📖 *Their apostles answered them: "True, we are nothing but mortal men like yourselves: but God bestows His favour upon whomever He wills of His servants. Withal, it is not within our power to bring you a proof [of our mission], unless it be by God's leave-and [so] it is in God that all believers must place their trust.* — **Ibrahim (14:11)**
 <!-- quran-verse-end -->
 
 ---
