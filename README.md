@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
+> 📖 *and thou seest people enter God's religion in hosts,* — **An-Nasr (110:2)**
 <!-- quran-verse-end -->
 
 ---
