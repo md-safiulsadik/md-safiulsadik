@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *This is [to be borne in mind]. And anyone who honours the symbols set up by God [shall know that] verily, these [symbols derive their value] from the God-consciousness in the [believers’] hearts.* — **Al-Hajj (22:32)**
+> 📖 *[For thus it always happens: We seal the doom of all who deny the truth and give the lie to Our messages;] and thereupon We save Our apostles and those who have attained to faith. Thus have We willed it upon Ourselves: We save all who believe [in Us],* — **Yunus (10:103)**
 <!-- quran-verse-end -->
 
 ---
