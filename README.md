@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND UNTO [the people of] Madyan [We sent] their brother Shu'ayb. He said: "O my people! Worship God alone: you have no deity other than Him. Clear evidence of the truth has now come unto you from your Sustainer. Give, therefore, full measure and weight [in all your dealings], and do not deprive people of what is rightfully theirs; and do not spread corruption on earth after it has be, en so well ordered: [all] this is for your own good, 'if you would but believe.* — **Al-A'raaf (7:85)**
+> 📖 *[O wives of the Prophet!] Were he to divorce [any of] you, God might well give him in your stead spouses better than you - women who surrender themselves unto God, who truly believe, devoutly obey His will, turn [unto Him] in repentance [whenever they have sinned] worship [Him alone] and go on and on [seeking His goodly acceptance] - be they women previously married or virgins.* — **At-Tahrim (66:5)**
 <!-- quran-verse-end -->
 
 ---
