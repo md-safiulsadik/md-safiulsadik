@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *wherein there are ordinances of ever-true soundness and clarity.* — **Al-Bayyina (98:3)**
+> 📖 *and whoever wills may take it to heart.* — **Al-Muddaththir (74:55)**
 <!-- quran-verse-end -->
 
 ---
