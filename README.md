@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let them, then, laugh a little - for they will weep a lot in return for what they have earned.* — **At-Tawba (9:82)**
+> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
 <!-- quran-verse-end -->
 
 ---
