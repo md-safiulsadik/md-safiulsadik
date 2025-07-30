@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, if you have to respond to an attack (in argument], respond only to the extent of the attack levelled against you; but to bear yourselves with patience is indeed far better for (you, since God is with] those who are patient in adversity.* — **An-Nahl (16:126)**
+> 📖 *But he would not try to ascend the steep uphill road...* — **Al-Balad (90:11)**
 <!-- quran-verse-end -->
 
 ---
