@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *This is what you are promised for the Day of Reckoning:* — **Saad (38:53)**
+> 📖 *[But] there it is: any and all human beings, however [strongly] leagued together, are bound to suffer defeat [whenever they refuse to accept the truth].* — **Saad (38:11)**
 <!-- quran-verse-end -->
 
 ---
