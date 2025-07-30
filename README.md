@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But] there it is: any and all human beings, however [strongly] leagued together, are bound to suffer defeat [whenever they refuse to accept the truth].* — **Saad (38:11)**
+> 📖 *Why do not their men of God and their rabbis forbid them to make sinful assertions and to swallow all that is evil? Vile indeed is what they contrive!* — **Al-Maaida (5:63)**
 <!-- quran-verse-end -->
 
 ---
