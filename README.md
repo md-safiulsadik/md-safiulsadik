@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[O wives of the Prophet!] Were he to divorce [any of] you, God might well give him in your stead spouses better than you - women who surrender themselves unto God, who truly believe, devoutly obey His will, turn [unto Him] in repentance [whenever they have sinned] worship [Him alone] and go on and on [seeking His goodly acceptance] - be they women previously married or virgins.* — **At-Tahrim (66:5)**
+> 📖 *Hence, if you have to respond to an attack (in argument], respond only to the extent of the attack levelled against you; but to bear yourselves with patience is indeed far better for (you, since God is with] those who are patient in adversity.* — **An-Nahl (16:126)**
 <!-- quran-verse-end -->
 
 ---
