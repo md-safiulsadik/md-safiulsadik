@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said He: “Not so, indeed! Go forth, then, both of you, with Our messages: verify, We shall be with you, listening [to your call]!* — **Ash-Shu'araa (26:15)**
+> 📖 *AND UNTO [the people of] Madyan [We sent] their brother Shu'ayb. He said: "O my people! Worship God alone: you have no deity other than Him. Clear evidence of the truth has now come unto you from your Sustainer. Give, therefore, full measure and weight [in all your dealings], and do not deprive people of what is rightfully theirs; and do not spread corruption on earth after it has be, en so well ordered: [all] this is for your own good, 'if you would but believe.* — **Al-A'raaf (7:85)**
 <!-- quran-verse-end -->
 
 ---
