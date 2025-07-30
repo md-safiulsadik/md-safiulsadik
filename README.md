@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and on that Day you will most surely be called to account for [what you did with] the boon of life!* — **At-Takaathur (102:8)**
+> 📖 *Let them, then, laugh a little - for they will weep a lot in return for what they have earned.* — **At-Tawba (9:82)**
 <!-- quran-verse-end -->
 
 ---
