@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [God has willed] to impose suffering [in the life to come] on the hypocrites, both men and women, and on those who ascribe divinity to aught beside Him, both men and women: all who entertain evil thoughts about God. Evil encompasses them from all sides, and God’s condemnation rests upon them; and He has rejected them [from His grace], and has readied hell for them: and how evil a journey’s end!* — **Al-Fath (48:6)**
+> 📖 *Hence, fight against them until there is no more oppression and all worship is devoted to God alone; but if they desist, then all hostility shall cease, save against those who [wilfully] do wrong.* — **Al-Baqara (2:193)**
 <!-- quran-verse-end -->
 
 ---
