@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and whoever wills may take it to heart.* — **Al-Muddaththir (74:55)**
+> 📖 *Said He: “Not so, indeed! Go forth, then, both of you, with Our messages: verify, We shall be with you, listening [to your call]!* — **Ash-Shu'araa (26:15)**
 <!-- quran-verse-end -->
 
 ---
