@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, fight against them until there is no more oppression and all worship is devoted to God alone; but if they desist, then all hostility shall cease, save against those who [wilfully] do wrong.* — **Al-Baqara (2:193)**
+> 📖 *an apostle from God, conveying [unto them] revelations blest with purity,* — **Al-Bayyina (98:2)**
 <!-- quran-verse-end -->
 
 ---
