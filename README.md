@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and that [we were mistaken when] we thought that neither man nor [any of] the invisible forces would ever tell a lie about God.* — **Al-Jinn (72:5)**
+> 📖 *Now if God were to take men [at once] to task for whatever [wrong] they commit [on earth], He would not leave a single living creature upon its surface. However, He grants them respite for a term set [by Him]: but when their term comes to an end - then, verily, [they come to know that] God sees all that is in [the hearts of] His servants.* — **Faatir (35:45)**
 <!-- quran-verse-end -->
 
 ---
