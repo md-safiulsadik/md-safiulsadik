@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now if God were to take men [at once] to task for whatever [wrong] they commit [on earth], He would not leave a single living creature upon its surface. However, He grants them respite for a term set [by Him]: but when their term comes to an end - then, verily, [they come to know that] God sees all that is in [the hearts of] His servants.* — **Faatir (35:45)**
+> 📖 *those who want only to be seen and praised,* — **Al-Maa'un (107:6)**
 <!-- quran-verse-end -->
 
 ---
