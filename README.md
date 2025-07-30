@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But he would not try to ascend the steep uphill road...* — **Al-Balad (90:11)**
+> 📖 *And who could be more astray than one who invokes, instead of God, such as will not respond to him either now or on the Day of Resurrection, and are not even conscious of being invoked?* — **Al-Ahqaf (46:5)**
 <!-- quran-verse-end -->
 
 ---
