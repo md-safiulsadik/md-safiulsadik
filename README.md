@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But] they answered: "By no means shall we cease to worship it until Moses comes back to us!"* — **Taa-Haa (20:91)**
+> 📖 *[And] they say, "Indeed, when we return to the City [we,] the ones most worthy of honour will surely drive out therefrom those most contemptible ones!" However, all honour belongs to God, and [thus] to His Apostle and those who believe [in God]: but of this the hypocrites are not aware.* — **Al-Munaafiqoon (63:8)**
 <!-- quran-verse-end -->
 
 ---
