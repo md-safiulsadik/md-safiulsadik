@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Be not friends with people whom God has condemned! They [who would befriend them] are indeed bereft of all hope of a life to come - just as those deniers of the truth are bereft of all hope of [ever again seeing] those who are [now] in their graves.* — **Al-Mumtahana (60:13)**
+> 📖 *and the thunder extols His limitless glory and praises Him, and [so do] the angels, in awe of Him; and He [it is who] lets loose the thunderbolts and strikes with them whom He wills. And yet, they stubbornly argue about God, notwithstanding [all evidence] that He alone has the power to contrive whatever His unfathomable wisdom wills!* — **Ar-Ra'd (13:13)**
 <!-- quran-verse-end -->
 
 ---
