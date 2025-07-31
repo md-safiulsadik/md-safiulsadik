@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for him shall We make easy the path towards [ultimate] ease.* — **Al-Lail (92:7)**
+> 📖 *[And We told him:] “This is Our gift, for thee to bestow freely on others, or to withhold, without [having to render] account!”* — **Saad (38:39)**
 <!-- quran-verse-end -->
 
 ---
