@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND NO BEARER of burdens shall be made to bear another’s burden; and if one weighed down by his load calls upon [another] to help him carry it, nothing thereof may be carried [by that other], even if it be one’s near of kin. Hence, thou canst [truly] warn only those who stand in awe of their Sustainer although He is beyond the reach of their perception, and are constant in prayer, and [know that] whoever grows in purity, attains to purity but for the good of his own self, and [that] with God is all journeys’ end.* — **Faatir (35:18)**
+> 📖 *Unto Him [alone] is due all prayer aiming at the Ultimate Truth, since those [other beings or powers] whom men invoke instead of God cannot respond to them in any way - [so that he who invokes them is] but like one who stretches his open hands towards water, [hoping] that it will reach his mouth, the while it never reaches him. Hence, the prayer of those who deny the truth amounts to no more than losing oneself in grievous error.* — **Ar-Ra'd (13:14)**
 <!-- quran-verse-end -->
 
 ---
