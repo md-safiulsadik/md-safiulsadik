@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the thunder extols His limitless glory and praises Him, and [so do] the angels, in awe of Him; and He [it is who] lets loose the thunderbolts and strikes with them whom He wills. And yet, they stubbornly argue about God, notwithstanding [all evidence] that He alone has the power to contrive whatever His unfathomable wisdom wills!* — **Ar-Ra'd (13:13)**
+> 📖 *and the Day of Judgment we were wont to call a lie –* — **Al-Muddaththir (74:46)**
 <!-- quran-verse-end -->
 
 ---
