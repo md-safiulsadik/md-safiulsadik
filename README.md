@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[for] no human being has ever been left unguarded.* — **At-Taariq (86:4)**
+> 📖 *And [in this insight] Solomon was [truly] David’s heir; and he would say: “O you people! We have been taught the speech of birds, and have been given [in abundance] of all [good] things: this, behold, is indeed a manifest favour [from God]!”* — **An-Naml (27:16)**
 <!-- quran-verse-end -->
 
 ---
