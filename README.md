@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *until such a time as they shall come [to be judged. And] He will say: “Did you give the lie to My messages even though you failed to encompass them with [your] knowledge? Or what was it that [you thought] you were doing?”* — **An-Naml (27:84)**
+> 📖 *and man cries out, "What has happened to her?" -* — **Az-Zalzala (99:3)**
 <!-- quran-verse-end -->
 
 ---
