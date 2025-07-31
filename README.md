@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God is the Light of the heavens and the earth. The parable of His light is, as it were, that of a niche containing a lamp; the lamp is [enclosed] in glass, the glass [shining] like a radiant star: [a lamp] lit from a blessed tree - an olive-tree that is neither of the east nor of the west the oil whereof [is so bright that it] would well-nigh give light [of itself] even though fire had not touched it: light upon light! God guides unto His light him that wills [to be guided]; and [to this end] God propounds parables unto men, since God [alone] has full knowledge of all things.* — **An-Noor (24:35)**
+> 📖 *O YOU who have attained to faith! Be not friends with people whom God has condemned! They [who would befriend them] are indeed bereft of all hope of a life to come - just as those deniers of the truth are bereft of all hope of [ever again seeing] those who are [now] in their graves.* — **Al-Mumtahana (60:13)**
 <!-- quran-verse-end -->
 
 ---
