@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Some faces will on that Day be bright with happiness,* — **Al-Qiyaama (75:22)**
+> 📖 *[But] they answered: "By no means shall we cease to worship it until Moses comes back to us!"* — **Taa-Haa (20:91)**
 <!-- quran-verse-end -->
 
 ---
