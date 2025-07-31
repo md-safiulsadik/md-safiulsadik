@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [in this insight] Solomon was [truly] David’s heir; and he would say: “O you people! We have been taught the speech of birds, and have been given [in abundance] of all [good] things: this, behold, is indeed a manifest favour [from God]!”* — **An-Naml (27:16)**
+> 📖 *on the Day when all secrets will be laid bare,* — **At-Taariq (86:9)**
 <!-- quran-verse-end -->
 
 ---
