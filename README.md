@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, behold, with every hardship comes ease:* — **Ash-Sharh (94:5)**
+> 📖 *[And the word will be spoken:] “Seize him, [O you forces of hell,] and drag him into the midst of the blazing fire:* — **Ad-Dukhaan (44:47)**
 <!-- quran-verse-end -->
 
 ---
