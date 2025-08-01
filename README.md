@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *See to what they liken thee, [O Prophet simply] because they have gone astray and are now unable to find a way [to the truth]!* — **Al-Israa (17:48)**
+> 📖 *Whither, then, will you go?* — **At-Takwir (81:26)**
 <!-- quran-verse-end -->
 
 ---
