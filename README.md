@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but they who are bent on denying the truth give the lie [to this divine writ]!* — **Al-Inshiqaaq (84:22)**
+> 📖 *See to what they liken thee, [O Prophet simply] because they have gone astray and are now unable to find a way [to the truth]!* — **Al-Israa (17:48)**
 <!-- quran-verse-end -->
 
 ---
