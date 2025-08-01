@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, whenever Our messages are conveyed to such a one, he turns away in his arrogance as though he had not heard them - as though there were deafness in his ears. Give him, then, the tiding of grievous suffering [in the life to come].* — **Luqman (31:7)**
+> 📖 *God’s alone is the dominion over the heavens and the earth. He creates whatever He wills: He bestows the gift of female offspring on whomever He wills, and the gift of male offspring on whomever He wills;* — **Ash-Shura (42:49)**
 <!-- quran-verse-end -->
 
 ---
