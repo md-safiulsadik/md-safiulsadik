@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Remain, then, conscious of God as best you can, and listen [to Him], and pay heed. And spend in charity for the good of your own selves: for, such as from their own covetousness are saved – it is they, they that shall attain to a happy state!* — **At-Taghaabun (64:16)**
+> 📖 *For, whenever Our messages are conveyed to such a one, he turns away in his arrogance as though he had not heard them - as though there were deafness in his ears. Give him, then, the tiding of grievous suffering [in the life to come].* — **Luqman (31:7)**
 <!-- quran-verse-end -->
 
 ---
