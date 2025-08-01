@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, We have bestowed upon thee good in abundance:* — **Al-Kawthar (108:1)**
+> 📖 *Yea indeed! His Sustainer did see all that was in him!* — **Al-Inshiqaaq (84:15)**
 <!-- quran-verse-end -->
 
 ---
