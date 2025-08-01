@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Since they have become oblivious of God,] corruption has appeared on land and in the sea as an outcome of what men’s hands have wrought: and so He will let them taste [the evil of] some of their doings, so that they might return [to the right path].* — **Ar-Room (30:41)**
+> 📖 *had it not been revealed unto me [by God] - to no other end than that I might convey [unto you] a plain warning.* — **Saad (38:70)**
 <!-- quran-verse-end -->
 
 ---
