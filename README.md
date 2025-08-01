@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And then they cruelly slaughtered the she-camel and turned with disdain from their Sustainer's commandment, and said: "O Salih! Bring about that [punishment] with which thou hast threatened us, if thou art truly one of God's message bearers!"* — **Al-A'raaf (7:77)**
+> 📖 *"and from the evil of the black darkness whenever it descends,* — **Al-Falaq (113:3)**
 <!-- quran-verse-end -->
 
 ---
