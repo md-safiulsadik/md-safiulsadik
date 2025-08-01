@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on the Day when all secrets will be laid bare,* — **At-Taariq (86:9)**
+> 📖 *Thus, too, gave the lie to the truth [many of] those who lived before them; and although those [earlier people] had not attained to even a tenth of [the evidence of the truth] which We have vouch­safed unto these [late successors of theirs], yet when they gave the lie to My apostles, how awesome was My rejection!* — **Saba (34:45)**
 <!-- quran-verse-end -->
 
 ---
