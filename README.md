@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God’s alone is the dominion over the heavens and the earth. He creates whatever He wills: He bestows the gift of female offspring on whomever He wills, and the gift of male offspring on whomever He wills;* — **Ash-Shura (42:49)**
+> 📖 *And then they cruelly slaughtered the she-camel and turned with disdain from their Sustainer's commandment, and said: "O Salih! Bring about that [punishment] with which thou hast threatened us, if thou art truly one of God's message bearers!"* — **Al-A'raaf (7:77)**
 <!-- quran-verse-end -->
 
 ---
