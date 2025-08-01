@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And who could be more wicked than one who invents [such] a lie about [a message from] God, seeing that he is [but] being called to self-surrender unto Him? But God does not bestow His guidance upon evil-doing folk.* — **As-Saff (61:7)**
+> 📖 *[Since they have become oblivious of God,] corruption has appeared on land and in the sea as an outcome of what men’s hands have wrought: and so He will let them taste [the evil of] some of their doings, so that they might return [to the right path].* — **Ar-Room (30:41)**
 <!-- quran-verse-end -->
 
 ---
