@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *had it not been revealed unto me [by God] - to no other end than that I might convey [unto you] a plain warning.* — **Saad (38:70)**
+> 📖 *To happiness [in the life to come] will indeed attain he who attains to purity [in this world],* — **Al-A'laa (87:14)**
 <!-- quran-verse-end -->
 
 ---
