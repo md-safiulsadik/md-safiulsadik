@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Guide us the straight way.* — **Al-Faatiha (1:6)**
+> 📖 *She exclaimed: "Verily, 'I seek refuge from thee with the Most Gracious! [Approach me not] if thou art conscious of Him!"* — **Maryam (19:18)**
 <!-- quran-verse-end -->
 
 ---
