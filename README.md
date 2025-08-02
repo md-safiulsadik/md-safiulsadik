@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, I am an apostle [sent by Him] to you, [and therefore] worthy of your trust:* — **Ash-Shu'araa (26:125)**
+> 📖 *whereas those who are bent on denying the truth of Our messages – they are such as have lost themselves in evil,* — **Al-Balad (90:19)**
 <!-- quran-verse-end -->
 
 ---
