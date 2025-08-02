@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"He begets not, and neither is He begotten;* — **Al-Ikhlaas (112:3)**
+> 📖 *[and] there will be thrones [of happiness] raised high,* — **Al-Ghaashiya (88:13)**
 <!-- quran-verse-end -->
 
 ---
