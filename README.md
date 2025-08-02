@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *She exclaimed: "Verily, 'I seek refuge from thee with the Most Gracious! [Approach me not] if thou art conscious of Him!"* — **Maryam (19:18)**
+> 📖 *And then, behold! after all this, you are destined to die;* — **Al-Muminoon (23:15)**
 <!-- quran-verse-end -->
 
 ---
