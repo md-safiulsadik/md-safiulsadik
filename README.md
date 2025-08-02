@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ALL FOOD was lawful unto the children of Israel, save what Israel had made unlawful unto itself [by its sinning] before the Torah was bestowed from on high. Say: "Come forward, then, with the Torah and recite it, if what you say is true!"* — **Aal-i-Imraan (3:93)**
+> 📖 *Whosoever shall come [before God] with a good deed will gain [further] good there from; but as for any who shall come with an evil deed - [know that] they who do evil deeds will not be requited with more than [the like of] what they have done.* — **Al-Qasas (28:84)**
 <!-- quran-verse-end -->
 
 ---
