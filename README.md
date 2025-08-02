@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who give food - however great be their own want of it - unto the needy, and the orphan, and the captive,* — **Al-Insaan (76:8)**
+> 📖 *READ in the name of thy Sustainer, who has-* — **Al-Alaq (96:1)**
 <!-- quran-verse-end -->
 
 ---
