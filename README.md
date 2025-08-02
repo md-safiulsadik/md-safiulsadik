@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Why do you say one thing and do another?* — **As-Saff (61:2)**
+> 📖 *Oh, the chargers that run panting,* — **Al-Aadiyaat (100:1)**
 <!-- quran-verse-end -->
 
 ---
