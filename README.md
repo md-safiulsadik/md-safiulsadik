@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "O you who deny the truth!* — **Al-Kaafiroon (109:1)**
+> 📖 *Guide us the straight way.* — **Al-Faatiha (1:6)**
 <!-- quran-verse-end -->
 
 ---
