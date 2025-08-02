@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And then, behold! after all this, you are destined to die;* — **Al-Muminoon (23:15)**
+> 📖 *ALL FOOD was lawful unto the children of Israel, save what Israel had made unlawful unto itself [by its sinning] before the Torah was bestowed from on high. Say: "Come forward, then, with the Torah and recite it, if what you say is true!"* — **Aal-i-Imraan (3:93)**
 <!-- quran-verse-end -->
 
 ---
