@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *READ in the name of thy Sustainer, who has-* — **Al-Alaq (96:1)**
+> 📖 *SAY: "O you who deny the truth!* — **Al-Kaafiroon (109:1)**
 <!-- quran-verse-end -->
 
 ---
