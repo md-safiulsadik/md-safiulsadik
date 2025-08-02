@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[even thus, O men,] are you bound to move; onward from stage to stage.* — **Al-Inshiqaaq (84:19)**
+> 📖 *Alif. Lam. Mim. Ra. THESE ARE MESSAGES of revelation: and what has been bestowed upon thee from on high by thy Sustainer is the truth-yet most people will not believe [in it]?* — **Ar-Ra'd (13:1)**
 <!-- quran-verse-end -->
 
 ---
