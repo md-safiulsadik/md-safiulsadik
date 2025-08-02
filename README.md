@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But if they [who reject all thought of the Last Hour] were to see a sign [of its approach], they would turn aside and say, “An ever-recurring delusion!” –* — **Al-Qamar (54:2)**
+> 📖 *and who give food - however great be their own want of it - unto the needy, and the orphan, and the captive,* — **Al-Insaan (76:8)**
 <!-- quran-verse-end -->
 
 ---
