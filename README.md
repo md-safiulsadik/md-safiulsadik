@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Whosoever shall come [before God] with a good deed will gain [further] good there from; but as for any who shall come with an evil deed - [know that] they who do evil deeds will not be requited with more than [the like of] what they have done.* — **Al-Qasas (28:84)**
+> 📖 *And yet, he had no power at all over them: [for if We allow him to tempt man,] it is only to the end that We might make a clear distinction between those who [truly] believe in the life to come and those who are in doubt thereof: for thy Sustainer watches over all things.* — **Saba (34:21)**
 <!-- quran-verse-end -->
 
 ---
