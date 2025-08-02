@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And who could be more wicked than he who invents lies about God? and gives the lie to the truth as soon as it has been placed before him? Is not hell the [proper] abode for all who deny the truth?* — **Az-Zumar (39:32)**
+> 📖 *those who want only to be seen and praised,* — **Al-Maa'un (107:6)**
 <!-- quran-verse-end -->
 
 ---
