@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and, behold, Ours is [the dominion over] the life to come as well as [over] this earlier part [of your life]:* — **Al-Lail (92:13)**
+> 📖 *But if they [who reject all thought of the Last Hour] were to see a sign [of its approach], they would turn aside and say, “An ever-recurring delusion!” –* — **Al-Qamar (54:2)**
 <!-- quran-verse-end -->
 
 ---
