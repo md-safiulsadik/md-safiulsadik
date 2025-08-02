@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet, he had no power at all over them: [for if We allow him to tempt man,] it is only to the end that We might make a clear distinction between those who [truly] believe in the life to come and those who are in doubt thereof: for thy Sustainer watches over all things.* — **Saba (34:21)**
+> 📖 *And who could be more wicked than he who invents lies about God? and gives the lie to the truth as soon as it has been placed before him? Is not hell the [proper] abode for all who deny the truth?* — **Az-Zumar (39:32)**
 <!-- quran-verse-end -->
 
 ---
