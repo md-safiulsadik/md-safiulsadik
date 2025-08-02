@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But then, [so they told Moses, the Samaritan] had produced for them [out of the molten gold] the effigy of a calf, which made a lowing sound; and thereupon they said [to one another], "This is your deity, and the deity of Moses-but he has forgotten [his past]* — **Taa-Haa (20:88)**
+> 📖 *Behold, I am an apostle [sent by Him] to you, [and therefore] worthy of your trust:* — **Ash-Shu'araa (26:125)**
 <!-- quran-verse-end -->
 
 ---
