@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, in the heavens as well as on earth there are indeed messages for all who [are willing to] believe.* — **Al-Jaathiya (45:3)**
+> 📖 *extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.* — **An-Nasr (110:3)**
 <!-- quran-verse-end -->
 
 ---
