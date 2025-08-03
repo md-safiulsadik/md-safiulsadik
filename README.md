@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and brusquely turned his back [on Moses];* — **An-Naazi'aat (79:22)**
+> 📖 *And [he continued:] "Alas, if thou hadst but said, on entering thy garden, `Whatever God wills [shall come to pass, for] there is no power save with God!' Although, as thou seest, I have less wealth and offspring than thou,* — **Al-Kahf (18:39)**
 <!-- quran-verse-end -->
 
 ---
