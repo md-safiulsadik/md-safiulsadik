@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now as for the Thamud - they were destroyed by a violent upheaval [of the earth];* — **Al-Haaqqa (69:5)**
+> 📖 *God will requite them for their mockery, and will leave them for a while in their overweening arrogance, blindly stumbling to and fro:* — **Al-Baqara (2:15)**
 <!-- quran-verse-end -->
 
 ---
