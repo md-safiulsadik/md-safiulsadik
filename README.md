@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The seven heavens extol His limitless glory, and the earth, and all that they contain; and there is not a single thing but extols His limitless glory and praise: but you [O men] fail to grasp the manner of their glorifying Him! Verily, He is forbearing, much-forgiving!* — **Al-Israa (17:44)**
+> 📖 *But if you turn away [from the message which I bear, remember that] I have asked no reward whatever of you: my reward rests with none but God, for I have been bidden to be among those who have surrendered themselves unto Him."* — **Yunus (10:72)**
 <!-- quran-verse-end -->
 
 ---
