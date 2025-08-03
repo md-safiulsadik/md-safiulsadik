@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Such has been God’s way with those who [sinned in like manner and] passed away aforetime - and never wilt thou find any change in God’s way!* — **Al-Ahzaab (33:62)**
+> 📖 *They will be given a drink of pure wine whereon the seal [of God] will have been set,* — **Al-Mutaffifin (83:25)**
 <!-- quran-verse-end -->
 
 ---
