@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And God] will say: "Join those hosts of invisible beings and humans who have gone before you into the fire!" [And] every time a host enters [the fire], it will curse its fellow-host -so much so that, when they all shall have passed into it, one after another, the last of them will speak [thus] of the first of them: "O our Sustainer! It is they who have led us astray: give, them, therefore, double suffering through fire!" He, will reply: "Every one of you deserves double suffering -but you know it not."* — **Al-A'raaf (7:38)**
+> 📖 *O men! Behold, We have created you all out of a male and a female, and have made you into nations and tribes, so that you might come to know one another. Verily, the noblest of you in the sight of God is the one who is most deeply conscious of Him. Behold, God is all-knowing, all-aware.* — **Al-Hujuraat (49:13)**
 <!-- quran-verse-end -->
 
 ---
