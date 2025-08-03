@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On the Day when God will raise them all from the dead, they will swear before Him as they [now] swear before you, thinking that they are on firm ground [in their assumptions]. Oh, verily, it is they, they who are the [greatest] liars!* — **Al-Mujaadila (58:18)**
+> 📖 *The seven heavens extol His limitless glory, and the earth, and all that they contain; and there is not a single thing but extols His limitless glory and praise: but you [O men] fail to grasp the manner of their glorifying Him! Verily, He is forbearing, much-forgiving!* — **Al-Israa (17:44)**
 <!-- quran-verse-end -->
 
 ---
