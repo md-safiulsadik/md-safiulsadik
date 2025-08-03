@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Add Thou through him to my strength,* — **Taa-Haa (20:31)**
+> 📖 *and would say, “What! After we have died and become mere dust and bones, shall we, forsooth, be raised from the dead? -* — **Al-Waaqia (56:47)**
 <!-- quran-verse-end -->
 
 ---
