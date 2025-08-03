@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But one Day We shall raise up a witness out of every community, whereupon they who were bent on denying the truth will not be allowed to plead [ignorance], and neither will they be allowed to make amends.* — **An-Nahl (16:84)**
+> 📖 *We will let them enjoy them­selves for a short while - but in the end We shall drive them into suffering severe.* — **Luqman (31:24)**
 <!-- quran-verse-end -->
 
 ---
