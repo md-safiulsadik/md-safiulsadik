@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *All that lives on earth or in the heavens is bound to pass away:* — **Ar-Rahmaan (55:26)**
+> 📖 *Add Thou through him to my strength,* — **Taa-Haa (20:31)**
 <!-- quran-verse-end -->
 
 ---
