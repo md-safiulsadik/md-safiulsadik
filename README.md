@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O men! Behold, We have created you all out of a male and a female, and have made you into nations and tribes, so that you might come to know one another. Verily, the noblest of you in the sight of God is the one who is most deeply conscious of Him. Behold, God is all-knowing, all-aware.* — **Al-Hujuraat (49:13)**
+> 📖 *But one Day We shall raise up a witness out of every community, whereupon they who were bent on denying the truth will not be allowed to plead [ignorance], and neither will they be allowed to make amends.* — **An-Nahl (16:84)**
 <!-- quran-verse-end -->
 
 ---
