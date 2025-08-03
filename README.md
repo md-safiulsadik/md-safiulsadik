@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and would say, “What! After we have died and become mere dust and bones, shall we, forsooth, be raised from the dead? -* — **Al-Waaqia (56:47)**
+> 📖 *Now as for the Thamud - they were destroyed by a violent upheaval [of the earth];* — **Al-Haaqqa (69:5)**
 <!-- quran-verse-end -->
 
 ---
