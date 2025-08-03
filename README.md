@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *We will let them enjoy them­selves for a short while - but in the end We shall drive them into suffering severe.* — **Luqman (31:24)**
+> 📖 *and brusquely turned his back [on Moses];* — **An-Naazi'aat (79:22)**
 <!-- quran-verse-end -->
 
 ---
