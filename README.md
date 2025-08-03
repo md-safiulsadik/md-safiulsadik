@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God will requite them for their mockery, and will leave them for a while in their overweening arrogance, blindly stumbling to and fro:* — **Al-Baqara (2:15)**
+> 📖 *[Thereupon the King sent for those women; and when they came,] he asked: "What was it that you hoped to achieve when you sought to make Joseph yield himself unto you?" The women answered: "God save us! We did not perceive the least evil [intention] on his part!" [And] the wife of Joseph's former master exclaimed: "Now has the truth come to light! It was I who sought to make him yield himself unto me - whereas he, behold, was indeed speaking the truth!"* — **Yusuf (12:51)**
 <!-- quran-verse-end -->
 
 ---
