@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [he continued:] "Alas, if thou hadst but said, on entering thy garden, `Whatever God wills [shall come to pass, for] there is no power save with God!' Although, as thou seest, I have less wealth and offspring than thou,* — **Al-Kahf (18:39)**
+> 📖 *On the Day when God will raise them all from the dead, they will swear before Him as they [now] swear before you, thinking that they are on firm ground [in their assumptions]. Oh, verily, it is they, they who are the [greatest] liars!* — **Al-Mujaadila (58:18)**
 <!-- quran-verse-end -->
 
 ---
