@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas those who are bent on denying the truth of Our messages – they are such as have lost themselves in evil,* — **Al-Balad (90:19)**
+> 📖 *Behold, in the heavens as well as on earth there are indeed messages for all who [are willing to] believe.* — **Al-Jaathiya (45:3)**
 <!-- quran-verse-end -->
 
 ---
