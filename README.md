@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But if you turn away [from the message which I bear, remember that] I have asked no reward whatever of you: my reward rests with none but God, for I have been bidden to be among those who have surrendered themselves unto Him."* — **Yunus (10:72)**
+> 📖 *Such has been God’s way with those who [sinned in like manner and] passed away aforetime - and never wilt thou find any change in God’s way!* — **Al-Ahzaab (33:62)**
 <!-- quran-verse-end -->
 
 ---
