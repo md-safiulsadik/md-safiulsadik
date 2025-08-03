@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and] to whom the dominion of the heavens and the earth belongs. But God is witness unto everything!* — **Al-Burooj (85:9)**
+> 📖 *All that lives on earth or in the heavens is bound to pass away:* — **Ar-Rahmaan (55:26)**
 <!-- quran-verse-end -->
 
 ---
