@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.* — **An-Nasr (110:3)**
+> 📖 *for, whoever on that day turns his back on them-unless it be in a battle manoeuvre or in an endeavour to join another troop [of the believers] - shall indeed have earned the burden of God's condemnation, and his goal shall be hell: and how vile a journey's end!* — **Al-Anfaal (8:16)**
 <!-- quran-verse-end -->
 
 ---
