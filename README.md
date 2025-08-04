@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"'And God has made the earth a wide expanse for you,* — **Nooh (71:19)**
+> 📖 *Have they, then, any deity other than God? Utterly remote is God, in His limitless glory, from anything to which men may ascribe a share in His divinity!* — **At-Tur (52:43)**
 <!-- quran-verse-end -->
 
 ---
