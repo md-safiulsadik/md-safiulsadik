@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and he who shall have done an atom's weight of evil, shall behold it.* — **Az-Zalzala (99:8)**
+> 📖 *And what could make thee conceive what that mode most lofty will be?* — **Al-Mutaffifin (83:19)**
 <!-- quran-verse-end -->
 
 ---
