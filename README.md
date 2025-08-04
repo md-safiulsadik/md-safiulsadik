@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
+> 📖 *but I shall bring all their scheming to nought.* — **At-Taariq (86:16)**
 <!-- quran-verse-end -->
 
 ---
