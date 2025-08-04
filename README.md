@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *in a garden sublime,* — **Al-Ghaashiya (88:10)**
+> 📖 *And should they seek but to deceive thee [by their show of peace] - behold, God is enough for thee! He it is who has strengthened thee with His succour, and by giving thee believing followers* — **Al-Anfaal (8:62)**
 <!-- quran-verse-end -->
 
 ---
