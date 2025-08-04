@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The offerings given for the sake of God are [meant] only for the poor and the needy, and those who are in charge thereof, and those whose hearts are to be won over, and for the freeing of human beings from bondage, and [for] those who are over burdened with debts, and [for every struggle] in God's cause, and [for] the wayfarer: [this is] an ordinance from God - and God is all-knowing, wise.* — **At-Tawba (9:60)**
+> 📖 *and he who shall have done an atom's weight of evil, shall behold it.* — **Az-Zalzala (99:8)**
 <!-- quran-verse-end -->
 
 ---
