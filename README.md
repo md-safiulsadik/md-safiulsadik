@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND UNTO [the tribe of] Thamud [We sent] their brother salih He said: "O my people! Worship God alone: you have no deity other than Him. Clear evidence of the truth has now come unto you from your Sustainer. "This she-camel belonging to God shall be a token for you: so leave her alone to pasture on God's earth, and do her no harm, lest grievous chastisement befall you.* — **Al-A'raaf (7:73)**
+> 📖 *Behold, in the heavens as well as on earth there are indeed messages for all who [are willing to] believe.* — **Al-Jaathiya (45:3)**
 <!-- quran-verse-end -->
 
 ---
