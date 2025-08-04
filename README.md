@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They will be given a drink of pure wine whereon the seal [of God] will have been set,* — **Al-Mutaffifin (83:25)**
+> 📖 *This Our record speaks of you in all truth: for, verily, We have caused to be recorded all that you ever did!”* — **Al-Jaathiya (45:29)**
 <!-- quran-verse-end -->
 
 ---
