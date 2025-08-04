@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and caused the earth to burst forth with springs, so that the waters met for a purpose pre-ordained:* — **Al-Qamar (54:12)**
+> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
 <!-- quran-verse-end -->
 
 ---
