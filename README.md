@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the seas burst beyond their bounds,* — **Al-Infitaar (82:3)**
+> 📖 *and the morn as it softly breathes:* — **At-Takwir (81:18)**
 <!-- quran-verse-end -->
 
 ---
