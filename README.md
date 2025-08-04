@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHEN THE HYPOCRITES come unto thee, they say, "We bear witness that thou art indeed God's Apostle!" But God knows that thou art truly His Apostle; and He bears witness that the hypocrites are indeed false [in their declaration of faith].* — **Al-Munaafiqoon (63:1)**
+> 📖 *God only forbids you to turn in friendship towards such as fight against you because of [your] faith, and drive you forth from your homelands, or aid [others] in driving you forth: and as for those [from among you] who turn towards them in friendship; it is they, they who are truly wrongdoers!* — **Al-Mumtahana (60:9)**
 <!-- quran-verse-end -->
 
 ---
