@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Enjoy, then, all that is lawful and good among the things which you have gained in war, and remain conscious of God: verily, God is much-forgiving, a dispenser of grace.* — **Al-Anfaal (8:69)**
+> 📖 *And God ordained this only as a glad tiding, and that your hearts should thereby be set at rest-since no succour can come from any save God: verily, God is almighty, wise!* — **Al-Anfaal (8:10)**
 <!-- quran-verse-end -->
 
 ---
