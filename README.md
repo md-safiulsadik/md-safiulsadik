@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, in the heavens as well as on earth there are indeed messages for all who [are willing to] believe.* — **Al-Jaathiya (45:3)**
+> 📖 *and that they [so often] say what they do not do [or feel]?* — **Ash-Shu'araa (26:226)**
 <!-- quran-verse-end -->
 
 ---
