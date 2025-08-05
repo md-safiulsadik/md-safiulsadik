@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, God does not wrong [anyone] by as much as an atom's weight; and if there be a good deed, He will multiply it, and will bestow out of His grace a mighty reward.* — **An-Nisaa (4:40)**
+> 📖 *for, behold, thou keepest indeed to a sublime way of life;* — **Al-Qalam (68:4)**
 <!-- quran-verse-end -->
 
 ---
