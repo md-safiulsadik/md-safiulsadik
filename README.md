@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, if you could but understand [it] with an understanding [born] of certainty,* — **At-Takaathur (102:5)**
+> 📖 *O Prophet! God is enough for thee and those of the believers who follow thee!* — **Al-Anfaal (8:64)**
 <!-- quran-verse-end -->
 
 ---
