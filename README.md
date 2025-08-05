@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"He begets not, and neither is He begotten;* — **Al-Ikhlaas (112:3)**
+> 📖 *HAS IT ever come within thy ken, the story of the [sinful] hosts* — **Al-Burooj (85:17)**
 <!-- quran-verse-end -->
 
 ---
