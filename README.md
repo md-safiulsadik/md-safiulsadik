@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [this despite the fact that even] before thy time We never sent any apostle without having revealed to him that there is no deity save Me, - [and that,] therefore, you shall worship Me [alone]!* — **Al-Anbiyaa (21:25)**
+> 📖 *Nay, if you could but understand [it] with an understanding [born] of certainty,* — **At-Takaathur (102:5)**
 <!-- quran-verse-end -->
 
 ---
