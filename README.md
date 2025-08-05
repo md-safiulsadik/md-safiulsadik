@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And God ordained this only as a glad tiding, and that your hearts should thereby be set at rest-since no succour can come from any save God: verily, God is almighty, wise!* — **Al-Anfaal (8:10)**
+> 📖 *and [this despite the fact that even] before thy time We never sent any apostle without having revealed to him that there is no deity save Me, - [and that,] therefore, you shall worship Me [alone]!* — **Al-Anbiyaa (21:25)**
 <!-- quran-verse-end -->
 
 ---
