@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND CONVEY unto them the story of Noah-when he said unto his people: "O my people! If my presence [among you] and my announcement of God's messages are repugnant to you -well, in God have I placed my trust. Decide, then, upon what you are going to do [against me], and [call to your aid] those beings to whom you ascribe a share in God's divinity; and once you have chosen your course of action, let no hesitation deflect you from it; and then carry out against me [whatever you may have decided], and give me no respite!* — **Yunus (10:71)**
+> 📖 *"And I will not worship ~hat which you have [ever] worshipped,* — **Al-Kaafiroon (109:4)**
 <!-- quran-verse-end -->
 
 ---
