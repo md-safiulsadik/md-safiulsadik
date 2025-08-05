@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Woe unto him who amasses wealth and counts it a safeguard,* — **Al-Humaza (104:2)**
+> 📖 *thereby raising clouds of dust,* — **Al-Aadiyaat (100:4)**
 <!-- quran-verse-end -->
 
 ---
