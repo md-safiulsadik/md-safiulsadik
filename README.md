@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thereby raising clouds of dust,* — **Al-Aadiyaat (100:4)**
+> 📖 *"from the evil of the whispering, elusive tempter* — **An-Naas (114:4)**
 <!-- quran-verse-end -->
 
 ---
