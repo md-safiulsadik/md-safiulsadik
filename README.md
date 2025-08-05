@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yea indeed! His Sustainer did see all that was in him!* — **Al-Inshiqaaq (84:15)**
+> 📖 *sparks of fire striking,* — **Al-Aadiyaat (100:2)**
 <!-- quran-verse-end -->
 
 ---
