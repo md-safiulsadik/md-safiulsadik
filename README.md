@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whenever he believes himself to be self-sufficient:* — **Al-Alaq (96:7)**
+> 📖 *Say: "O you who follow the Jewish faith! If you claim that you [alone] are close to God, to the exclusion of all other people, then you should be longing for death - if what you say is true!"* — **Al-Jumu'a (62:6)**
 <!-- quran-verse-end -->
 
 ---
