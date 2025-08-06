@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, it is We who have bestowed this revela­tion upon thee from on high, setting forth the truth: so worship Him, sincere in thy faith in Him alone!* — **Az-Zumar (39:2)**
+> 📖 *[And then He said:] “Now throw down thy staff!” But when he saw it move rapidly, as if it were a serpent, he drew back [in terror], and did not [dare to] return. [And God spoke to him again:] O Moses! Fear not - for, behold, no fear need the message-bearers have in My Presence,* — **An-Naml (27:10)**
 <!-- quran-verse-end -->
 
 ---
