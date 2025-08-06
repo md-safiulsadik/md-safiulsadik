@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now had God so willed, He could surely have made them all one single community: none the less, He admits unto His grace him that wills [to be admitted] whereas the evildoers shall have none to protect them and none to succour them [on Judgment Day].* — **Ash-Shura (42:8)**
+> 📖 *And unto Solomon [We made subservient] the stormy wind, so that it sped at his behest towards the land which We had blessed: for it is We who have knowledge of everything.* — **Al-Anbiyaa (21:81)**
 <!-- quran-verse-end -->
 
 ---
