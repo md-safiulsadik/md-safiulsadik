@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And there are on earth [many] tracts of land close by one another [and yet widely differing from one another]; and [there are on it] vinyards, and fields of grain, and date-palms growing in clusters from one root or standing alone, [all] watered with the same water: and yet, some of them have We favoured above others by way of the food [which they provide for man and beast]. Verily, in all this there are messages indeed for people who use their reason!* — **Ar-Ra'd (13:4)**
+> 📖 *Now had God so willed, He could surely have made them all one single community: none the less, He admits unto His grace him that wills [to be admitted] whereas the evildoers shall have none to protect them and none to succour them [on Judgment Day].* — **Ash-Shura (42:8)**
 <!-- quran-verse-end -->
 
 ---
