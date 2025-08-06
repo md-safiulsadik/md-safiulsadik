@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Is not God the most just of judges?* — **At-Tin (95:8)**
+> 📖 *And He has made subservient to you, [as a gift] from Himself, all that is in the heavens and on earth: in this, behold, there are messages indeed for people who think!* — **Al-Jaathiya (45:13)**
 <!-- quran-verse-end -->
 
 ---
