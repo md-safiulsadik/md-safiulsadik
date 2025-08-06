@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"'And God has made the earth a wide expanse for you,* — **Nooh (71:19)**
+> 📖 *And if any of them were to say, “Behold, I am deity beside Him” - that one We should requite with hell: thus do We requite all [such] evildoers.* — **Al-Anbiyaa (21:29)**
 <!-- quran-verse-end -->
 
 ---
