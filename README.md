@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "O you who follow the Jewish faith! If you claim that you [alone] are close to God, to the exclusion of all other people, then you should be longing for death - if what you say is true!"* — **Al-Jumu'a (62:6)**
+> 📖 *"'And God has made the earth a wide expanse for you,* — **Nooh (71:19)**
 <!-- quran-verse-end -->
 
 ---
