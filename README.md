@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *of one-half thereof - or make it a little less than that,* — **Al-Muzzammil (73:3)**
+> 📖 *O followers of earlier revelation! Why do you deny the truth of God's messages to which you yourselves bear witness?* — **Aal-i-Imraan (3:70)**
 <!-- quran-verse-end -->
 
 ---
