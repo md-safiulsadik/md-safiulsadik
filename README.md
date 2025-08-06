@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O followers of earlier revelation! Why do you deny the truth of God's messages to which you yourselves bear witness?* — **Aal-i-Imraan (3:70)**
+> 📖 *whenever he believes himself to be self-sufficient:* — **Al-Alaq (96:7)**
 <!-- quran-verse-end -->
 
 ---
