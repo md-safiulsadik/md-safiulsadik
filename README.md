@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And unto Solomon [We made subservient] the stormy wind, so that it sped at his behest towards the land which We had blessed: for it is We who have knowledge of everything.* — **Al-Anbiyaa (21:81)**
+> 📖 *they will not believe in it till they behold the grievous suffering* — **Ash-Shu'araa (26:201)**
 <!-- quran-verse-end -->
 
 ---
