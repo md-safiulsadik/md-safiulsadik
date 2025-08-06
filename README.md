@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *they will not believe in it till they behold the grievous suffering* — **Ash-Shu'araa (26:201)**
+> 📖 *for, behold, it is We who have bestowed this revela­tion upon thee from on high, setting forth the truth: so worship Him, sincere in thy faith in Him alone!* — **Az-Zumar (39:2)**
 <!-- quran-verse-end -->
 
 ---
