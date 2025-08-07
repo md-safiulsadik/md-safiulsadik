@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And once again: We shall save [from hell] those who have been conscious of Us; but We shall leave in it the evildoers, on their knees.* — **Maryam (19:72)**
+> 📖 *And [are they not aware that] We have set up firm mountains on earth, lest it sway with them, and [that] We have appointed thereon broad paths, so that they might find their way,* — **Al-Anbiyaa (21:31)**
 <!-- quran-verse-end -->
 
 ---
