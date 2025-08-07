@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, We have caused it to be a trial for evildoers:* — **As-Saaffaat (37:63)**
+> 📖 *Never set foot in such a place! Only a house of worship founded, from the very first day, upon God-consciousness is worthy of thy setting foot therein -[a house of worship] wherein there are men desirous of growing in purity: for God loves all who purify themselves.* — **At-Tawba (9:108)**
 <!-- quran-verse-end -->
 
 ---
