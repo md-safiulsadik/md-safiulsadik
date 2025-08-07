@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *TO [THIS] TRUTH gave the lie, in their overweening arrogance, [the tribe of] Thamud,* — **Ash-Shams (91:11)**
+> 📖 *And then, when they [clearly] beheld Our punishment, they said: “We have come to believe in the One God, and we have renounced all belief in that to which we were wont to ascribe a share in His divinity!”* — **Ghafir (40:84)**
 <!-- quran-verse-end -->
 
 ---
