@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and whenever they pass by them, they wink at one another [derisively];* — **Al-Mutaffifin (83:30)**
+> 📖 *And found thee in want, and given thee sufficiency?* — **Ad-Dhuhaa (93:8)**
 <!-- quran-verse-end -->
 
 ---
