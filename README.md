@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware of how far they who call God’s messages in question have lost sight of the truth?* — **Ghafir (40:69)**
+> 📖 *WHEN THE HYPOCRITES come unto thee, they say, "We bear witness that thou art indeed God's Apostle!" But God knows that thou art truly His Apostle; and He bears witness that the hypocrites are indeed false [in their declaration of faith].* — **Al-Munaafiqoon (63:1)**
 <!-- quran-verse-end -->
 
 ---
