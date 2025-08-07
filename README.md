@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and fields of grain, and noble dwellings,* — **Ad-Dukhaan (44:26)**
+> 📖 *TO [THIS] TRUTH gave the lie, in their overweening arrogance, [the tribe of] Thamud,* — **Ash-Shams (91:11)**
 <!-- quran-verse-end -->
 
 ---
