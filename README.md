@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And found thee in want, and given thee sufficiency?* — **Ad-Dhuhaa (93:8)**
+> 📖 *But, by thy Sustainer! [On the Day of Judgment] We shall indeed call them to account, one and all,* — **Al-Hijr (15:92)**
 <!-- quran-verse-end -->
 
 ---
