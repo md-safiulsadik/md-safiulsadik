@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and from the evil of the envious when he envies."* — **Al-Falaq (113:5)**
+> 📖 *And once again: We shall save [from hell] those who have been conscious of Us; but We shall leave in it the evildoers, on their knees.* — **Maryam (19:72)**
 <!-- quran-verse-end -->
 
 ---
