@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [are they not aware that] We have set up firm mountains on earth, lest it sway with them, and [that] We have appointed thereon broad paths, so that they might find their way,* — **Al-Anbiyaa (21:31)**
+> 📖 *and thereupon that [chastisement] which they were promised befalls them –* — **Ash-Shu'araa (26:206)**
 <!-- quran-verse-end -->
 
 ---
