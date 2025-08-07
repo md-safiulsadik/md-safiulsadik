@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereupon that [chastisement] which they were promised befalls them –* — **Ash-Shu'araa (26:206)**
+> 📖 *O YOU who have attained to faith! Remain conscious of God, and seek to come closer unto Him, and strive hard in His cause, so that you might attain to a happy state.* — **Al-Maaida (5:35)**
 <!-- quran-verse-end -->
 
 ---
