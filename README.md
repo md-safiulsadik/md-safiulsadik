@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *toiling [under burdens of sin], worn out [by fear],* — **Al-Ghaashiya (88:3)**
+> 📖 *and whenever they pass by them, they wink at one another [derisively];* — **Al-Mutaffifin (83:30)**
 <!-- quran-verse-end -->
 
 ---
