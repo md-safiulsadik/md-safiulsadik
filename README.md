@@ -16,7 +16,7 @@
 
 ---
 
-
+## 📚 Tech Stack
 <p align="left">
   <a href="https://www.java.com/" target="_blank">
     <img src="https://raw.githubusercontent.com/devicons/devicon/master/icons/java/java-original.svg" alt="Java" width="42" height="42"/>
@@ -36,7 +36,7 @@
 </p>
 
 ---
-
+## 📈 GitHub Stats
 <p align="center">
   <picture>
     <source media="(prefers-color-scheme: dark)" srcset="https://github-readme-stats.vercel.app/api?username=md-safiulsadik&show_icons=true&theme=radical&locale=en">
@@ -60,7 +60,7 @@
 </p>
 
 ---
-
+## 🏆 Trophies
 <p align="center">
   <picture>
     <source media="(prefers-color-scheme: dark)" srcset="https://github-profile-trophy.vercel.app/?username=md-safiulsadik&theme=onedark">
@@ -70,6 +70,7 @@
 
 ---
 
+## 📬 Contact Me
 <p align="left">
   <a href="mailto:msadik2430416@bscse.uiu.ac.bd" target="_blank">
     <img src="https://img.shields.io/badge/Gmail-D14836?style=for-the-badge&logo=gmail&logoColor=white" alt="Gmail Badge"/>
