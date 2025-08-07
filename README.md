@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But, by thy Sustainer! [On the Day of Judgment] We shall indeed call them to account, one and all,* — **Al-Hijr (15:92)**
+> 📖 *ART THOU NOT aware of how far they who call God’s messages in question have lost sight of the truth?* — **Ghafir (40:69)**
 <!-- quran-verse-end -->
 
 ---
