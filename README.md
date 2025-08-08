@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"'And [now we have become aware] that we [created beings] may not know whether evil fortune is intended for [any of] those who live on earth, or whether it is their Sustainer’s will to endow them with consciousness of what is right:* — **Al-Jinn (72:10)**
+> 📖 *and seeing that he who repents and [thenceforth] does what is right has truly turned unto God by [this very act of] repent­ance.* — **Al-Furqaan (25:71)**
 <!-- quran-verse-end -->
 
 ---
