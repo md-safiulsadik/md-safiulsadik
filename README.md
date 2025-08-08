@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *in endless columns!* — **Al-Humaza (104:9)**
+> 📖 *Excepted, however, shall be they who repent and attain to faith and do righteous deeds: for it is they whose [erstwhile] bad deeds God will transform into good ones - seeing that God is indeed much-forgiving, a dispenser of grace,* — **Al-Furqaan (25:70)**
 <!-- quran-verse-end -->
 
 ---
