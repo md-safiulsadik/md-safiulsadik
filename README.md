@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Remain conscious of God, and seek to come closer unto Him, and strive hard in His cause, so that you might attain to a happy state.* — **Al-Maaida (5:35)**
+> 📖 *through God’s bounty and favour; and God is all-knowing, truly wise.* — **Al-Hujuraat (49:8)**
 <!-- quran-verse-end -->
 
 ---
