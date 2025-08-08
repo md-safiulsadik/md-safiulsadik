@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and seeing that he who repents and [thenceforth] does what is right has truly turned unto God by [this very act of] repent­ance.* — **Al-Furqaan (25:71)**
+> 📖 *Have they, then, never beheld the birds above them, spreading their wings and drawing them in? None but the Most Gracious upholds them: for, verily, He keeps all things in His sight.* — **Al-Mulk (67:19)**
 <!-- quran-verse-end -->
 
 ---
