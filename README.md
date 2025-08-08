@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Be not, then, faint of heart, and grieve not: for you are bound to rise high if you are [truly] believers.* — **Aal-i-Imraan (3:139)**
+> 📖 *What, then, [O man,] could henceforth cause thee to give the lie to this moral law?* — **At-Tin (95:7)**
 <!-- quran-verse-end -->
 
 ---
