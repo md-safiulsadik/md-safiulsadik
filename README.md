@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *What, then, [O man,] could henceforth cause thee to give the lie to this moral law?* — **At-Tin (95:7)**
+> 📖 *Thus, from wherever thou mayest come forth, turn thy face [in prayer] towards the Inviolable House of Worship-for,. behold, this [commandment] comes in truth from thy Sustainer; and God is not unaware of what you do.* — **Al-Baqara (2:149)**
 <!-- quran-verse-end -->
 
 ---
