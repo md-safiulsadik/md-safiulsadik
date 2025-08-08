@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Most Gracious, the Dispenser of Grace,* — **Al-Faatiha (1:3)**
+> 📖 *wherein he will neither die nor remain alive.* — **Al-A'laa (87:13)**
 <!-- quran-verse-end -->
 
 ---
