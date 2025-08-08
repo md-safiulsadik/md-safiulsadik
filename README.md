@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, from wherever thou mayest come forth, turn thy face [in prayer] towards the Inviolable House of Worship-for,. behold, this [commandment] comes in truth from thy Sustainer; and God is not unaware of what you do.* — **Al-Baqara (2:149)**
+> 📖 *GOD is He who has created seven heavens, and, like them, [the many aspects] of the earth. Through all of them flows down from on high, unceasingly, His [creative] will, so that you might come to know that God has the power to will anything, and that God encompasses all things with His knowledge.* — **At-Talaaq (65:12)**
 <!-- quran-verse-end -->
 
 ---
