@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *through God’s bounty and favour; and God is all-knowing, truly wise.* — **Al-Hujuraat (49:8)**
+> 📖 *Hence, [bear in mind] the Day on which He will say, "Call [now] unto those beings whom you imagined to have a share in My divinity!" - whereupon they will invoke them, but those [beings] will not respond to them: for We shall have placed between them an unbridgeable gulf.* — **Al-Kahf (18:52)**
 <!-- quran-verse-end -->
 
 ---
