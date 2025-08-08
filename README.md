@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.* — **Al-Qadr (97:1)**
+> 📖 *Be not, then, faint of heart, and grieve not: for you are bound to rise high if you are [truly] believers.* — **Aal-i-Imraan (3:139)**
 <!-- quran-verse-end -->
 
 ---
