@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Are they, then, not aware that it is God who grants abundant sustenance, or gives it in scant measure, unto whomever He wills? In this, behold, there are messages indeed for peo­ple who will believe!* — **Ar-Room (30:37)**
+> 📖 *and the moon, as it grows to its fullness:* — **Al-Inshiqaaq (84:18)**
 <!-- quran-verse-end -->
 
 ---
