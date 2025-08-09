@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the moon, as it grows to its fullness:* — **Al-Inshiqaaq (84:18)**
+> 📖 *verily, it will close in upon them* — **Al-Humaza (104:8)**
 <!-- quran-verse-end -->
 
 ---
