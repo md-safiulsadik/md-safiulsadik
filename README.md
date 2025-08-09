@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then, lo, they will be fully awakened [to the truth]!* — **An-Naazi'aat (79:14)**
+> 📖 *[On the Day of Judgment,] every human being will be held in pledge for whatever [evil] he has wrought –* — **Al-Muddaththir (74:38)**
 <!-- quran-verse-end -->
 
 ---
