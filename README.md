@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and who only hope] that God may reward them in accordance with the best that they ever did, and give them, out of His bounty, more [than they deserve]: for, God grants sustenance unto whom He wills, beyond all reckon­ing.* — **An-Noor (24:38)**
+> 📖 *Considering all this - could there be, to anyone endowed with reason, a [more] solemn evidence of the truth?* — **Al-Fajr (89:5)**
 <!-- quran-verse-end -->
 
 ---
