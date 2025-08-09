@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *hence, as for those who would separate themselves from their wives by saying, “Thou art as unlawful to me as my mother”, and thereafter would go back on what they have said, [their atonement] shall be the freeing of a human being from bondage before the couple may touch one another again: this you are [hereby] exhorted to do - for God is fully aware of all that you do.* — **Al-Mujaadila (58:3)**
+> 📖 *as well as a tree that issues from [the lands adjoining] Mount Sinai, yielding oil and relish for all to eat.* — **Al-Muminoon (23:20)**
 <!-- quran-verse-end -->
 
 ---
