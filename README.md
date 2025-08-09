@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *that had weighed so heavily on thy back?* — **Ash-Sharh (94:3)**
+> 📖 *CAN, THEN, he who takes his stand on a clear evidence from his Sustainer be likened Unto one to whom the evil of his own doings [always] seems goodly, and unto such as would follow but their own lusts?* — **Muhammad (47:14)**
 <!-- quran-verse-end -->
 
 ---
