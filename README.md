@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when all the apostles are called together at a time appointed...* — **Al-Mursalaat (77:11)**
+> 📖 *they who were [always] drawn close unto God!* — **Al-Waaqia (56:11)**
 <!-- quran-verse-end -->
 
 ---
