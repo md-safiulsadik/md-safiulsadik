@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *verily, it will close in upon them* — **Al-Humaza (104:8)**
+> 📖 *although thou art not accountable for his failure to attain to purity;* — **Abasa (80:7)**
 <!-- quran-verse-end -->
 
 ---
