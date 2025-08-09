@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Does he, then, think that no one has power over him?* — **Al-Balad (90:5)**
+> 📖 *and then, lo, they will be fully awakened [to the truth]!* — **An-Naazi'aat (79:14)**
 <!-- quran-verse-end -->
 
 ---
