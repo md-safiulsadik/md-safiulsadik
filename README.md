@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *as well as a tree that issues from [the lands adjoining] Mount Sinai, yielding oil and relish for all to eat.* — **Al-Muminoon (23:20)**
+> 📖 *Now among those [hapless sinners] are such as [pretend to] listen to thee, [O Muhammad,] and then, as soon as they leave thy presence, speak [with scorn] unto those who have understood [thy mes­sage]: “What is it that he has said just now?” It is such as these whose hearts God has sealed because they [always] followed but their own lusts* — **Muhammad (47:16)**
 <!-- quran-verse-end -->
 
 ---
