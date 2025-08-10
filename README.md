@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, those [towns] stood by a road that still exists.* — **Al-Hijr (15:76)**
+> 📖 *But if one happens to be of those who are wont to call the truth a lie, and [thus] go astray,* — **Al-Waaqia (56:92)**
 <!-- quran-verse-end -->
 
 ---
