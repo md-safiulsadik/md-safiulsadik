@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for [when they became obli­vious of Us,] We assigned to them [their own evil impulses as their] other selves, and these made appear goodly to them whatever lay open before them and whatever was beyond their ken. And so, the sentence [of doom] will have fallen due upon them together with the [other sinful] com­munities of invisible beings and humans that passed away before their time: verily, they [all] will indeed be lost!* — **Fussilat (41:25)**
+> 📖 *and We saved [only] those who had attained to faith and were conscious of Us.* — **Fussilat (41:18)**
 <!-- quran-verse-end -->
 
 ---
