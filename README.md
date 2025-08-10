@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And God] would say: “After a little while they will surely be smitten with remorse!”* — **Al-Muminoon (23:40)**
+> 📖 *Behold, they [who refuse to accept it] devise many a false argument [to disprove its truth];* — **At-Taariq (86:15)**
 <!-- quran-verse-end -->
 
 ---
