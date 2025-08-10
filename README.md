@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Wealth and children are an adornment of this, world's life: but good deeds, the fruit whereof endures forever, are of far greater merit in thy Sustainer's sight, and a far better source of hope.* — **Al-Kahf (18:46)**
+> 📖 *whereas those who have attained to faith and do righteous deeds, and have come to believe in what has been bestowed from on high on Muhammad - for it is the truth from their Sustainer - [shall attain to God’s grace:] He will efface their [past] bad deeds, and will set their hearts at rest.* — **Muhammad (47:2)**
 <!-- quran-verse-end -->
 
 ---
