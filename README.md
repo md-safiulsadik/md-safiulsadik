@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Hence,] O you who have attained to faith, when you do hold secret confabulations, do not conspire with one another with a view to sinful doings, and aggressive conduct, and disobedience to the Apostle, but [rather] hold counsel in the cause of virtue and God-consciousness: and [always] remain conscious of God, unto whom you all shall be gathered.* — **Al-Mujaadila (58:9)**
+> 📖 *for, behold, those [towns] stood by a road that still exists.* — **Al-Hijr (15:76)**
 <!-- quran-verse-end -->
 
 ---
