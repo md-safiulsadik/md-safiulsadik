@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet, they who are bent on denying the truth assert, “Never will the Last Hour come upon us!” Say: “Nay, by my Sustainer! By Him who knows all that is beyond the reach of a created being’s perception: it will most certainly come upon you!” Not an atom’s weight [of whatever there is] in the heavens or on earth escapes His knowledge; and neither is there anything smaller than that, or larger, but is recorded in [His] clear decree,* — **Saba (34:3)**
+> 📖 *extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.* — **An-Nasr (110:3)**
 <!-- quran-verse-end -->
 
 ---
