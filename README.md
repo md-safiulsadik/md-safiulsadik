@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and he turned away in [the pride of] his power and said, “A sorcerer [is this Moses], or a madman!” –* — **Adh-Dhaariyat (51:39)**
+> 📖 *[And God] would say: “After a little while they will surely be smitten with remorse!”* — **Al-Muminoon (23:40)**
 <!-- quran-verse-end -->
 
 ---
