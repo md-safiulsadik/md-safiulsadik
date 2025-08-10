@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *What will his wealth avail him, and all that he has gained?* — **Al-Masad (111:2)**
+> 📖 *whose hearts from their prayer are remote* — **Al-Maa'un (107:5)**
 <!-- quran-verse-end -->
 
 ---
