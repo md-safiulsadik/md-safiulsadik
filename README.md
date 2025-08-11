@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and will thereupon have to drink [many a draught] of burning despair -* — **Al-Waaqia (56:54)**
+> 📖 *What is amiss with you? On what do you base your judgment [of right and wrong]?* — **Al-Qalam (68:36)**
 <!-- quran-verse-end -->
 
 ---
