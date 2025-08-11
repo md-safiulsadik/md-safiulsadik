@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "I seek refuge with the Sustainer of men,* — **An-Naas (114:1)**
+> 📖 *some [of you] He will have graced with His guidance, whereas, for some a straying from the right path will have become unavoidable: for, behold, they will have taken [their own] evil impulses for their masters in preference to God, thinking all the while that they have found the right path!"* — **Al-A'raaf (7:30)**
 <!-- quran-verse-end -->
 
 ---
