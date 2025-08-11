@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[well aware of] those who, [even] if We firmly establish them on earth, remain constant in prayer, and give in charity, and enjoin the doing of what is right and forbid the doing of what is wrong; but with God rests the final outcome of all events.* — **Al-Hajj (22:41)**
+> 📖 *Do they not know that they are bound to be raised from the dead* — **Al-Mutaffifin (83:4)**
 <!-- quran-verse-end -->
 
 ---
