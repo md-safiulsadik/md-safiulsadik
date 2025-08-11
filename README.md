@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and no message of their Sustainer s messages ever reaches them without their turning away from it.* — **Yaseen (36:46)**
+> 📖 *AND AFTER those [people of old] We gave rise to new generations;* — **Al-Muminoon (23:31)**
 <!-- quran-verse-end -->
 
 ---
