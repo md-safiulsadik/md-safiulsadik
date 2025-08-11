@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and that [therefore] it is within His power to bring about a second life;* — **An-Najm (53:47)**
+> 📖 *But nay! Verily, all [that awaits him] is a raging flame,* — **Al-Ma'aarij (70:15)**
 <!-- quran-verse-end -->
 
 ---
