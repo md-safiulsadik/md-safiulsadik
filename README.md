@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and with Pharaoh of the [many] tent-poles?* — **Al-Fajr (89:10)**
+> 📖 *[And God said:] “On the morrow they will come to know who the boastful liar is!* — **Al-Qamar (54:26)**
 <!-- quran-verse-end -->
 
 ---
