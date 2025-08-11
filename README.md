@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"As for that boat, it belonged to some needy people who toiled upon the sea -and I desired to damage it because (I knew that] behind them was a king who is wont to seize every boat by brute force.* — **Al-Kahf (18:79)**
+> 📖 *nor be allowed to proffer excuses!* — **Al-Mursalaat (77:36)**
 <!-- quran-verse-end -->
 
 ---
