@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *some [of you] He will have graced with His guidance, whereas, for some a straying from the right path will have become unavoidable: for, behold, they will have taken [their own] evil impulses for their masters in preference to God, thinking all the while that they have found the right path!"* — **Al-A'raaf (7:30)**
+> 📖 *"As for that boat, it belonged to some needy people who toiled upon the sea -and I desired to damage it because (I knew that] behind them was a king who is wont to seize every boat by brute force.* — **Al-Kahf (18:79)**
 <!-- quran-verse-end -->
 
 ---
