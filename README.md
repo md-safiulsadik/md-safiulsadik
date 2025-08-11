@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Do they not know that they are bound to be raised from the dead* — **Al-Mutaffifin (83:4)**
+> 📖 *and that [therefore] it is within His power to bring about a second life;* — **An-Najm (53:47)**
 <!-- quran-verse-end -->
 
 ---
