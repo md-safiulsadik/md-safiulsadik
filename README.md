@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And his people came running to him, impelled towards his house [by their desire]: for they had ever been wont to commit [such], abominations. Said [Lot]: "O my people! [Take instead] these daughters of mine: they are purer for you [than men]! Be, then, conscious of God, and disgrace me not by [assaulting] my guests. Is there not among you even one right-minded man?"* — **Hud (11:78)**
+> 📖 *for what crime she had been slain,* — **At-Takwir (81:9)**
 <!-- quran-verse-end -->
 
 ---
