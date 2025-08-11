@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *What is amiss with you? On what do you base your judgment [of right and wrong]?* — **Al-Qalam (68:36)**
+> 📖 *“And if you give [me] the lie - well, [other] communities have given the lie [to Gods prophets] before your time: but no more is an apostle bound to do than clearly deliver the message [entrusted to him].”* — **Al-Ankaboot (29:18)**
 <!-- quran-verse-end -->
 
 ---
