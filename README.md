@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But nay! Verily, all [that awaits him] is a raging flame,* — **Al-Ma'aarij (70:15)**
+> 📖 *God bestows from on high the best of all teachings in the shape of a divine writ fully consistent within itself, repeating each statement [of the truth] in manifold forms [a divine writ] whereat shiver the skins of all who of their Sustainer stand in awe: [but] in the end their skins and their hearts do soften at the remembrance of [the grace of] God. Such is God’s guidance: He guides therewith him that wills [to be guided] whereas he whom God lets go astray can never find any guide* — **Az-Zumar (39:23)**
 <!-- quran-verse-end -->
 
 ---
