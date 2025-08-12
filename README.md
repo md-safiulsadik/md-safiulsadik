@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *No empty talk will they hear in that [paradise], nor any lie.* — **An-Naba (78:35)**
+> 📖 *[Say: "Our life takes its] hue from God! And who could give a better hue [to life] than God, if we but truly worship Him?"* — **Al-Baqara (2:138)**
 <!-- quran-verse-end -->
 
 ---
