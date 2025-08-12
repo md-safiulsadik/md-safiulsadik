@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what that Judgment Day will be?* — **Al-Infitaar (82:17)**
+> 📖 *for, verily, He alone is all-hearing, all-knowing!* — **Ash-Shu'araa (26:220)**
 <!-- quran-verse-end -->
 
 ---
