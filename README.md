@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "Can any of those beings to whom you ascribe a share in God's divinity create [life] in the first instance, and then bring it forth anew?” Say: "It is God [alone] who creates [all life] in the first instance, and then brings it forth anew. How perverted, then, are your minds!"* — **Yunus (10:34)**
+> 📖 *whereas, whenever He tries him by straitening his means of livelihood, he says, "My Sustainer has disgraced me!"* — **Al-Fajr (89:16)**
 <!-- quran-verse-end -->
 
 ---
