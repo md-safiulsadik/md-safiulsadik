@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Do you, perchance, find this tiding strange?* — **An-Najm (53:59)**
+> 📖 *and so, no friend has here today,* — **Al-Haaqqa (69:35)**
 <!-- quran-verse-end -->
 
 ---
