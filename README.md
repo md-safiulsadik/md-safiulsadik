@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Such, behold, will in truth be the [confusion and] mutual wrangling of the people of the fire!* — **Saad (38:64)**
+> 📖 *He it is who has created for you all that is on earth, and has applied His design to the heavens and fashioned them into seven heavens; and He alone has full knowledge of everything.* — **Al-Baqara (2:29)**
 <!-- quran-verse-end -->
 
 ---
