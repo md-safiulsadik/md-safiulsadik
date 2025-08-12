@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He boasts, "I have spent wealth abundant!"* — **Al-Balad (90:6)**
+> 📖 *it is they, they who are truly denying the truth: and for those who deny the truth We have readied shameful suffering.* — **An-Nisaa (4:151)**
 <!-- quran-verse-end -->
 
 ---
