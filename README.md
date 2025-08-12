@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And immortal youths will wait upon them: when thou seest them, thou wouldst deem them to be scattered pearls;* — **Al-Insaan (76:19)**
+> 📖 *He boasts, "I have spent wealth abundant!"* — **Al-Balad (90:6)**
 <!-- quran-verse-end -->
 
 ---
