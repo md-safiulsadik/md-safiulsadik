@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who know with certainty that they shall meet their Sustainer and that unto Him they shall return.* — **Al-Baqara (2:46)**
+> 📖 *And immortal youths will wait upon them: when thou seest them, thou wouldst deem them to be scattered pearls;* — **Al-Insaan (76:19)**
 <!-- quran-verse-end -->
 
 ---
