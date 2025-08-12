@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and so, no friend has here today,* — **Al-Haaqqa (69:35)**
+> 📖 *The [servant’s] heart did not give the lie to what he saw:* — **An-Najm (53:11)**
 <!-- quran-verse-end -->
 
 ---
