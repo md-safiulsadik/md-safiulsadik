@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *with downcast eyes, with ignominy overwhelming them: that Day which they were promised again and…* — **Al-Ma'aarij (70:44)**
+> 📖 *Just as [we do not know how it happens] that some from among us are righteous, while some of us are [far] below that: we have always followed widely divergent paths.* — **Al-Jinn (72:11)**
 <!-- quran-verse-end -->
 
 ---
