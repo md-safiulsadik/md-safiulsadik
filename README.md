@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the bright morning hours,* — **Ad-Dhuhaa (93:1)**
+> 📖 *with downcast eyes, with ignominy overwhelming them: that Day which they were promised again and…* — **Al-Ma'aarij (70:44)**
 <!-- quran-verse-end -->
 
 ---
