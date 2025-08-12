@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *We [now] convey unto thee some of the story of Moses and Pharaoh, setting forth the truth for [the benefit of] people who will believe.* — **Al-Qasas (28:3)**
+> 📖 *and then let him summon [to his aid] the counsels of his own [spurious] wisdom,* — **Al-Alaq (96:17)**
 <!-- quran-verse-end -->
 
 ---
