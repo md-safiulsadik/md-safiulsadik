@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The [servant’s] heart did not give the lie to what he saw:* — **An-Najm (53:11)**
+> 📖 *Art thou not aware of such as have been for­bidden [to intrigue through] secret confabulations, and yet [always] revert to that which they have been forbidden, and conspire with one another with a view to sinful doings, and aggressive conduct, and dis­obedience to the Apostle? Now whenever such [people] approach thee, [O Muhammad,] they salute thee with a greeting which God has never countenanced; and they say to themselves, “Why does not God chastise us for what we are saying?” Hell shall be their allotted portion: they shall [in­deed] enter it - and how vile a journey’s end!* — **Al-Mujaadila (58:8)**
 <!-- quran-verse-end -->
 
 ---
