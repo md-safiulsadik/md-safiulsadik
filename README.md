@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BUT WHETHER We let thee see [in thy lifetime, O Prophet, the fulfilment of] some of what We have promised them, or whether We cause thee to die [before its fulfilment] - thy duty is no more than to deliver the message; and the reckoning is Ours.* — **Ar-Ra'd (13:40)**
+> 📖 *No empty talk will they hear in that [paradise], nor any lie.* — **An-Naba (78:35)**
 <!-- quran-verse-end -->
 
 ---
