@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, verily, He alone is all-hearing, all-knowing!* — **Ash-Shu'araa (26:220)**
+> 📖 *Such, behold, will in truth be the [confusion and] mutual wrangling of the people of the fire!* — **Saad (38:64)**
 <!-- quran-verse-end -->
 
 ---
