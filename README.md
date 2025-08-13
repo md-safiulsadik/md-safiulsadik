@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Behold, my Sustainer grants abundant sustenance, or gives it in scant measure, unto whomever He wills of His servants; and whatever it be that you spend on others, He [always] replaces it: for He is the best of providers.”* — **Saba (34:39)**
+> 📖 *making [all truth] visible to mortal man.* — **Al-Muddaththir (74:29)**
 <!-- quran-verse-end -->
 
 ---
