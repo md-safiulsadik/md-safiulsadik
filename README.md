@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *a source [of bliss] whereof God's servants shall drink, seeing it flow in a flow abundant.* — **Al-Insaan (76:6)**
+> 📖 *and yet, they [who are bent on denying the truth] assert, “[Muhammad] has invented it!” Nay, but it is the truth from thy Sustainer, enabling thee to warn [this] people to whom no warner has come before thee, so that they might follow the right path.* — **As-Sajda (32:3)**
 <!-- quran-verse-end -->
 
 ---
