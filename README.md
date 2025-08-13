@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *this, because time and again there came unto them their apostles with all evidence of the truth, but they [always] replied, "Shall mere mortal men be our guides?" And so they. denied the truth and turned away. But God was not in need [of them]: for God is self-sufficient, ever to be praised.* — **At-Taghaabun (64:6)**
+> 📖 *IS IT NOT time that the hearts of all who have attained to faith should feel humble at the remem­brance of God and of all the truth that has been bestowed [on them] from on high, lest they become like those who were granted revelation aforetime, and whose hearts have hardened with the passing of time so that many of them are [now] depraved?* — **Al-Hadid (57:16)**
 <!-- quran-verse-end -->
 
 ---
