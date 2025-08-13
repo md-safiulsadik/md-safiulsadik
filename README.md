@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and yet, they [who are bent on denying the truth] assert, “[Muhammad] has invented it!” Nay, but it is the truth from thy Sustainer, enabling thee to warn [this] people to whom no warner has come before thee, so that they might follow the right path.* — **As-Sajda (32:3)**
+> 📖 *this, because time and again there came unto them their apostles with all evidence of the truth, but they [always] replied, "Shall mere mortal men be our guides?" And so they. denied the truth and turned away. But God was not in need [of them]: for God is self-sufficient, ever to be praised.* — **At-Taghaabun (64:6)**
 <!-- quran-verse-end -->
 
 ---
