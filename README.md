@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They will answer: “Limitless art Thou in Thy glory! Thou [alone] art close unto us, not they! Nay, [when they thought that they were worshipping us,] they were but [blindly] worshipping forces concealed from their senses; most of them believed in them.”* — **Saba (34:41)**
+> 📖 *extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.* — **An-Nasr (110:3)**
 <!-- quran-verse-end -->
 
 ---
