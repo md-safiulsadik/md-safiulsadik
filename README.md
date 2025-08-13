@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thereupon We inspired Moses thus: Strike the sea with thy staff!”- whereupon it parted, and each part appeared like a mountain vast.* — **Ash-Shu'araa (26:63)**
+> 📖 *And whenever. a [divine] message comes to them, they say, "We shall not believe unless we are given the like of what God's apostles were given!" [But] God knows best upon whom to bestow His message. Abasement in the sight of God will befall those who have become guilty of evildoing, and suffering severe for all the schemes which they were wont to weave.* — **Al-An'aam (6:124)**
 <!-- quran-verse-end -->
 
 ---
