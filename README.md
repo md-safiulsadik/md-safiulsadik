@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and goblets placed ready,* — **Al-Ghaashiya (88:14)**
+> 📖 *Thereupon We inspired Moses thus: Strike the sea with thy staff!”- whereupon it parted, and each part appeared like a mountain vast.* — **Ash-Shu'araa (26:63)**
 <!-- quran-verse-end -->
 
 ---
