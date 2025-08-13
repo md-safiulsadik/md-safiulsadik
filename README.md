@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Does he, then, think that no one has power over him?* — **Al-Balad (90:5)**
+> 📖 *And let them know, those who call Our mes­sages in question, that for them there is no escape.* — **Ash-Shura (42:35)**
 <!-- quran-verse-end -->
 
 ---
