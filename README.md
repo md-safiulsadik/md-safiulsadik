@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?* — **Al-Fil (105:1)**
+> 📖 *Say: “Behold, my Sustainer grants abundant sustenance, or gives it in scant measure, unto whomever He wills of His servants; and whatever it be that you spend on others, He [always] replaces it: for He is the best of providers.”* — **Saba (34:39)**
 <!-- quran-verse-end -->
 
 ---
