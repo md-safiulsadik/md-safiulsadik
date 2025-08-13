@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, We have bestowed upon thee good in abundance:* — **Al-Kawthar (108:1)**
+> 📖 *and goblets placed ready,* — **Al-Ghaashiya (88:14)**
 <!-- quran-verse-end -->
 
 ---
