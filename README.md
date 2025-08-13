@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And let them know, those who call Our mes­sages in question, that for them there is no escape.* — **Ash-Shura (42:35)**
+> 📖 *And who could be more wicked than he who attributes his own lying inventions to God, or gives the lie to the truth when it comes unto him [through revelation]? Is not hell the [proper] abode for all who [thus] deny the truth?* — **Al-Ankaboot (29:68)**
 <!-- quran-verse-end -->
 
 ---
