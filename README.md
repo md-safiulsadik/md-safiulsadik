@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but they are bent on giving the lie to everything the wisdom whereof they do not comprehend, and ere its inner meaning has become clear to them Even thus did those who lived before their time give the lie to the truth: and behold what happened in the end to those evildoers!* — **Yunus (10:39)**
+> 📖 *[And] tell [those of] My servants who have attained to faith that they should be constant in prayer and spend [in Our way], secretly and openly, out of what We provide for them as sustenance, ere there come a Day when there will be no bargaining, and no mutual befriending.* — **Ibrahim (14:31)**
 <!-- quran-verse-end -->
 
 ---
