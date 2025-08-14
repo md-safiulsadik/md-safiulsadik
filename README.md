@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NAY! I call to witness this land –* — **Al-Balad (90:1)**
+> 📖 *not as payment for favours received,* — **Al-Lail (92:19)**
 <!-- quran-verse-end -->
 
 ---
