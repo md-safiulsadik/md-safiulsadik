@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They said: “O our people! Behold, we have been listening to a revelation bestowed from on high after [that of] Moses, confirming the truth of what­ever there still remains [of the Torah]: it guides towards the truth, and onto a straight way.* — **Al-Ahqaf (46:30)**
+> 📖 *and then let him summon [to his aid] the counsels of his own [spurious] wisdom,* — **Al-Alaq (96:17)**
 <!-- quran-verse-end -->
 
 ---
