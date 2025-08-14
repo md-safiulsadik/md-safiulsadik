@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nor is this [message] the word of any satanic force accursed.* — **At-Takwir (81:25)**
+> 📖 *Nay, but they are bent on giving the lie to everything the wisdom whereof they do not comprehend, and ere its inner meaning has become clear to them Even thus did those who lived before their time give the lie to the truth: and behold what happened in the end to those evildoers!* — **Yunus (10:39)**
 <!-- quran-verse-end -->
 
 ---
