@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then let him summon [to his aid] the counsels of his own [spurious] wisdom,* — **Al-Alaq (96:17)**
+> 📖 *[It is these hypocrites] who find fault with such of the believers as give for the sake of God more than they are duty-bound to give, as well as with, such as find nothing [to give] beyond [the meagre fruits of] their toil, and who scoff at them [all]. God will cause their scoffing to rebound on themselves. and grievous suffering awaits them.* — **At-Tawba (9:79)**
 <!-- quran-verse-end -->
 
 ---
