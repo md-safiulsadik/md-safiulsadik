@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And among them are such as find fault with thee [O Prophet] concerning [the distribution of] the offerings given for the sake of God: if they are given something thereof, they are well-pleased; but if they are not given anything thereof, lo! they are consumed with anger.* — **At-Tawba (9:58)**
+> 📖 *this, because their apostles had come to them with all evidence of the truth, and yet they rejected it: and so God took them to task - for, verily, He is powerful, severe in retribution!* — **Ghafir (40:22)**
 <!-- quran-verse-end -->
 
 ---
