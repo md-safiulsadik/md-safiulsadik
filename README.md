@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for it is composed of all that is most exalting* — **Al-Mutaffifin (83:27)**
+> 📖 *And when Moses had fulfilled his term and was wandering with his family [in the desert], he per­ceived a fire on the slope of Mount Sinai; [and so] he said to his family: “Wait here. Behold, I perceive a fire [far away]; perhaps I may bring you from there some tiding, or [at least] a burning brand from the fire, so that you might warm yourselves.* — **Al-Qasas (28:29)**
 <!-- quran-verse-end -->
 
 ---
