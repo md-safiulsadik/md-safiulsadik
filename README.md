@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nothing did I tell them beyond what Thou didst bid me [to say]: `Worship God, [who is] my Sustainer as well as your Sustainer.' And I bore witness to what they did as long as I dwelt in their midst; but since Thou hast caused me to die, Thou alone hast been their keeper: for Thou art witness unto everything.* — **Al-Maaida (5:117)**
+> 📖 *and the earth and all its expanse!* — **Ash-Shams (91:6)**
 <!-- quran-verse-end -->
 
 ---
