@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the earth and all its expanse!* — **Ash-Shams (91:6)**
+> 📖 *Verily, God's alone is the dominion over the heavens and the earth; He [alone] grants life and deals death; and there is none besides God who could protect you or bring you succour.* — **At-Tawba (9:116)**
 <!-- quran-verse-end -->
 
 ---
