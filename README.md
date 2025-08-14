@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And when Moses had fulfilled his term and was wandering with his family [in the desert], he per­ceived a fire on the slope of Mount Sinai; [and so] he said to his family: “Wait here. Behold, I perceive a fire [far away]; perhaps I may bring you from there some tiding, or [at least] a burning brand from the fire, so that you might warm yourselves.* — **Al-Qasas (28:29)**
+> 📖 *Nothing did I tell them beyond what Thou didst bid me [to say]: `Worship God, [who is] my Sustainer as well as your Sustainer.' And I bore witness to what they did as long as I dwelt in their midst; but since Thou hast caused me to die, Thou alone hast been their keeper: for Thou art witness unto everything.* — **Al-Maaida (5:117)**
 <!-- quran-verse-end -->
 
 ---
