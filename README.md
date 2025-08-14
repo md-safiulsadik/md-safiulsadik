@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, God's alone is the dominion over the heavens and the earth; He [alone] grants life and deals death; and there is none besides God who could protect you or bring you succour.* — **At-Tawba (9:116)**
+> 📖 *and We bestowed upon them [manifold] gifts out of Our grace, and granted them a lofty power to convey the truth [unto others].* — **Maryam (19:50)**
 <!-- quran-verse-end -->
 
 ---
