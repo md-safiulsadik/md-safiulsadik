@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *this, because their apostles had come to them with all evidence of the truth, and yet they rejected it: and so God took them to task - for, verily, He is powerful, severe in retribution!* — **Ghafir (40:22)**
+> 📖 *They said: “O our people! Behold, we have been listening to a revelation bestowed from on high after [that of] Moses, confirming the truth of what­ever there still remains [of the Torah]: it guides towards the truth, and onto a straight way.* — **Al-Ahqaf (46:30)**
 <!-- quran-verse-end -->
 
 ---
