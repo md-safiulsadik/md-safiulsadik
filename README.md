@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and We bestowed upon them [manifold] gifts out of Our grace, and granted them a lofty power to convey the truth [unto others].* — **Maryam (19:50)**
+> 📖 *And among them are such as find fault with thee [O Prophet] concerning [the distribution of] the offerings given for the sake of God: if they are given something thereof, they are well-pleased; but if they are not given anything thereof, lo! they are consumed with anger.* — **At-Tawba (9:58)**
 <!-- quran-verse-end -->
 
 ---
