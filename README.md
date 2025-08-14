@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and will aid you with worldly goods and children, and will bestow upon you gardens, and bestow upon you running waters.* — **Nooh (71:12)**
+> 📖 *NAY! I call to witness this land –* — **Al-Balad (90:1)**
 <!-- quran-verse-end -->
 
 ---
