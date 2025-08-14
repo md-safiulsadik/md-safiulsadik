@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, he that hates thee has indeed been cut off [from all that is good]!* — **Al-Kawthar (108:3)**
+> 📖 *and will aid you with worldly goods and children, and will bestow upon you gardens, and bestow upon you running waters.* — **Nooh (71:12)**
 <!-- quran-verse-end -->
 
 ---
