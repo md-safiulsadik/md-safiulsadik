@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"from the evil of aught that He has created,* — **Al-Falaq (113:2)**
+> 📖 *Most loathsome is it in the sight of God that you say what you do not do!* — **As-Saff (61:3)**
 <!-- quran-verse-end -->
 
 ---
