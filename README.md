@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [thus it was that Jesus always said]: "Verily, God is my Sustainer as well as your Sustainer; so worship [none but] Him: this (alone] is a straight way."* — **Maryam (19:36)**
+> 📖 *Or has he never yet been told of what was [said] in the revelations of Moses,* — **An-Najm (53:36)**
 <!-- quran-verse-end -->
 
 ---
