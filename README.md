@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *will you, then, contend with him as to what he saw?* — **An-Najm (53:12)**
+> 📖 *for you and for your animals to enjoy.* — **Abasa (80:32)**
 <!-- quran-verse-end -->
 
 ---
