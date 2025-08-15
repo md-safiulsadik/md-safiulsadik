@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say [O Muhammad]: “He who knows all the mysteries of the heavens and the earth has bestowed from on high this [Qur’an upon me]! Verily, He is much-forgiving, a dispenser of grace!”* — **Al-Furqaan (25:6)**
+> 📖 *However, ere [We condemn them to] that supreme suffering, We shall most certainly let them taste of a suffering closer at hand, so that they might [repent and] mend their ways.* — **As-Sajda (32:21)**
 <!-- quran-verse-end -->
 
 ---
