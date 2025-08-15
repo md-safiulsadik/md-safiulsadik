@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for you and for your animals to enjoy.* — **Abasa (80:32)**
+> 📖 *And [thus it was that Jesus always said]: "Verily, God is my Sustainer as well as your Sustainer; so worship [none but] Him: this (alone] is a straight way."* — **Maryam (19:36)**
 <!-- quran-verse-end -->
 
 ---
