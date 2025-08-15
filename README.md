@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or has he never yet been told of what was [said] in the revelations of Moses,* — **An-Najm (53:36)**
+> 📖 *ARE YOU NOT aware that God has made subservient to you all that is in the heavens and all that is on earth, and has lavished upon you His blessings, both outward and inward? And yet, among men there is many a one that argues about God without having any knowledge [of Him], without any guidance, and without any light-giving revelation;* — **Luqman (31:20)**
 <!-- quran-verse-end -->
 
 ---
