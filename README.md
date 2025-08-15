@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *If you offer up to God a goodly loan, He will amply repay you for it, and will forgive you your sins: for God is ever responsive to gratitude, forbearing,* — **At-Taghaabun (64:17)**
+> 📖 *Hallowed is He who, if it be His will, shall give thee something better than that [whereof they speak] - gardens through which running waters flow - and shall assign to thee mansions [of bliss in the life to come].* — **Al-Furqaan (25:10)**
 <!-- quran-verse-end -->
 
 ---
