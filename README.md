@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Most loathsome is it in the sight of God that you say what you do not do!* — **As-Saff (61:3)**
+> 📖 *And [thus] did We inspire Moses and his brother: "Set aside for your people some houses in the city, and [tell them], `Turn your houses into places of worship, and be constant in prayer!' And give thou [O Moses] the glad tiding [of God's succour] to all believers."* — **Yunus (10:87)**
 <!-- quran-verse-end -->
 
 ---
