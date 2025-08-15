@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and Pharaoh rebelled against the apostle, whereupon We took him to task with a crushing grip.* — **Al-Muzzammil (73:16)**
+> 📖 *Some faces will on that Day be downcast,* — **Al-Ghaashiya (88:2)**
 <!-- quran-verse-end -->
 
 ---
