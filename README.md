@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [thus] did We inspire Moses and his brother: "Set aside for your people some houses in the city, and [tell them], `Turn your houses into places of worship, and be constant in prayer!' And give thou [O Moses] the glad tiding [of God's succour] to all believers."* — **Yunus (10:87)**
+> 📖 *Verily, God will admit all who attain to faith and do righteous deeds into gardens through which running waters flow, whereas they who are bent on denying the truth shall have - even though they may enjoy their life [in this world] and eat as cattle eat - the fire [of the hereafter] for their abode.* — **Muhammad (47:12)**
 <!-- quran-verse-end -->
 
 ---
