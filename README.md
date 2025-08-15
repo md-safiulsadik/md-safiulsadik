@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *However, ere [We condemn them to] that supreme suffering, We shall most certainly let them taste of a suffering closer at hand, so that they might [repent and] mend their ways.* — **As-Sajda (32:21)**
+> 📖 *And it is He who sends down rain after [men] have lost all hope, and unfolds His grace [thereby]: for He alone is [their] Protector, the One to whom all praise is due.* — **Ash-Shura (42:28)**
 <!-- quran-verse-end -->
 
 ---
