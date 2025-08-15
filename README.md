@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hallowed is He who, if it be His will, shall give thee something better than that [whereof they speak] - gardens through which running waters flow - and shall assign to thee mansions [of bliss in the life to come].* — **Al-Furqaan (25:10)**
+> 📖 *will you, then, contend with him as to what he saw?* — **An-Najm (53:12)**
 <!-- quran-verse-end -->
 
 ---
