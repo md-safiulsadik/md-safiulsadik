@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Some faces will on that Day be downcast,* — **Al-Ghaashiya (88:2)**
+> 📖 *Say [O Muhammad]: “He who knows all the mysteries of the heavens and the earth has bestowed from on high this [Qur’an upon me]! Verily, He is much-forgiving, a dispenser of grace!”* — **Al-Furqaan (25:6)**
 <!-- quran-verse-end -->
 
 ---
