@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Have they, then, never tried to understand this word [of God]? Or has there [now] come to them something that never came to their forefathers of old?* — **Al-Muminoon (23:68)**
+> 📖 *"from the evil of aught that He has created,* — **Al-Falaq (113:2)**
 <!-- quran-verse-end -->
 
 ---
