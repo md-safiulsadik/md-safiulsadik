@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Indeed, God has shown the truth in His Apostle’s true vision: most certainly shall you enter the Inviolable House of Worship, if God so wills, in full security, with your heads shaved or your hair cut short, without any fear: for He has [always] known that which you yourselves could not know. And He has ordained [for you], besides this, a victory soon to come.* — **Al-Fath (48:27)**
+> 📖 *and [I call to witness] parent and offspring:* — **Al-Balad (90:3)**
 <!-- quran-verse-end -->
 
 ---
