@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and him that seeks [thy] help shalt thou never chide,* — **Ad-Dhuhaa (93:10)**
+> 📖 *And [have We not] raised thee high in dignity?* — **Ash-Sharh (94:4)**
 <!-- quran-verse-end -->
 
 ---
