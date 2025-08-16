@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, if you could but understand [it] with an understanding [born] of certainty,* — **At-Takaathur (102:5)**
+> 📖 *He cannot be called to account for whatever He does, whereas they will be called to account:* — **Al-Anbiyaa (21:23)**
 <!-- quran-verse-end -->
 
 ---
