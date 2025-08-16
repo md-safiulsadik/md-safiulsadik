@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *If they but knew - they who are bent on deny­ing the truth - [that there will come] a time when they will not be able to ward off the fire from their faces, nor from their backs, and will not find any succour!* — **Al-Anbiyaa (21:39)**
+> 📖 *It has been given to you] lest you say, "Only unto two groups of people, [both of them] before our time, has a divine writ been bestowed from on high and we were indeed unaware of their teachings";* — **Al-An'aam (6:156)**
 <!-- quran-verse-end -->
 
 ---
