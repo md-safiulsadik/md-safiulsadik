@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WOE unto every slanderer, fault-finder!* — **Al-Humaza (104:1)**
+> 📖 *Nay, if you could but understand [it] with an understanding [born] of certainty,* — **At-Takaathur (102:5)**
 <!-- quran-verse-end -->
 
 ---
