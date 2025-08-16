@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on the Day when man's very being shall be bared to the bone, and when they [who now deny the truth] shall be called upon to prostrate themselves [before God], and shall be unable to do so:* — **Al-Qalam (68:42)**
+> 📖 *[It will take place] on a Day when the sky will be like molten lead,* — **Al-Ma'aarij (70:8)**
 <!-- quran-verse-end -->
 
 ---
