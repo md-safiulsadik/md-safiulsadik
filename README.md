@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and that it is He who creates the two kinds - the male and the female –* — **An-Najm (53:45)**
+> 📖 *be, then, con­scious of God, and pay heed unto me!* — **Ash-Shu'araa (26:126)**
 <!-- quran-verse-end -->
 
 ---
