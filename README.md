@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In [each of] these two will two kinds of every fruit be [found].* — **Ar-Rahmaan (55:52)**
+> 📖 *[everyone] who stood in awe of the Most Gracious although He is beyond the reach of human perception, and who has come [unto Him] with a heart full of contrition.* — **Qaaf (50:33)**
 <!-- quran-verse-end -->
 
 ---
