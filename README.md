@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [I call to witness] parent and offspring:* — **Al-Balad (90:3)**
+> 📖 *and the mountains will be like fluffy tufts of wool....* — **Al-Qaari'a (101:5)**
 <!-- quran-verse-end -->
 
 ---
