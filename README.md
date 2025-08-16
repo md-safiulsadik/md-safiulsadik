@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O you who have attained to faith! Hold fast unto your belief in God and His Apostle, and in the divine writ which He has bestowed from on high upon His Apostle, step by step, as well as in the revelation which He sent down aforetime: for he who denies God, and His angels, and His revelations, and His apostles, and the Last Day, has indeed gone far astray.* — **An-Nisaa (4:136)**
+> 📖 *And, indeed, in time will thy Sustainer grant thee [what thy heart desires], and thou shalt be well-pleased.* — **Ad-Dhuhaa (93:5)**
 <!-- quran-verse-end -->
 
 ---
