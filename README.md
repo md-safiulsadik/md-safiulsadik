@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and lifted from thee the burden* — **Ash-Sharh (94:2)**
+> 📖 *of fire fiercely burning [for all who have attained to faith]!* — **Al-Burooj (85:5)**
 <!-- quran-verse-end -->
 
 ---
