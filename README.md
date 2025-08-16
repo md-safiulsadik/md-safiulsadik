@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [have We not] raised thee high in dignity?* — **Ash-Sharh (94:4)**
+> 📖 *[all] save such of them as are truly Thy servants!"* — **Al-Hijr (15:40)**
 <!-- quran-verse-end -->
 
 ---
