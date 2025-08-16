@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[all] save such of them as are truly Thy servants!"* — **Al-Hijr (15:40)**
+> 📖 *In [each of] these two will two kinds of every fruit be [found].* — **Ar-Rahmaan (55:52)**
 <!-- quran-verse-end -->
 
 ---
