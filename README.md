@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *be, then, con­scious of God, and pay heed unto me!* — **Ash-Shu'araa (26:126)**
+> 📖 *on the Day when man's very being shall be bared to the bone, and when they [who now deny the truth] shall be called upon to prostrate themselves [before God], and shall be unable to do so:* — **Al-Qalam (68:42)**
 <!-- quran-verse-end -->
 
 ---
