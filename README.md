@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *of fire fiercely burning [for all who have attained to faith]!* — **Al-Burooj (85:5)**
+> 📖 *If they but knew - they who are bent on deny­ing the truth - [that there will come] a time when they will not be able to ward off the fire from their faces, nor from their backs, and will not find any succour!* — **Al-Anbiyaa (21:39)**
 <!-- quran-verse-end -->
 
 ---
