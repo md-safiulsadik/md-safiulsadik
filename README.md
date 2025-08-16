@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It has been given to you] lest you say, "Only unto two groups of people, [both of them] before our time, has a divine writ been bestowed from on high and we were indeed unaware of their teachings";* — **Al-An'aam (6:156)**
+> 📖 *WOE unto every slanderer, fault-finder!* — **Al-Humaza (104:1)**
 <!-- quran-verse-end -->
 
 ---
