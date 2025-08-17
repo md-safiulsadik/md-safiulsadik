@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He cannot be called to account for whatever He does, whereas they will be called to account:* — **Al-Anbiyaa (21:23)**
+> 📖 *[On that Day] it will come to pass that those who had been [falsely] adored shall disown their followers, and the latter shall see the suffering [that awaits them], with all their hopes cut to pieces!* — **Al-Baqara (2:166)**
 <!-- quran-verse-end -->
 
 ---
