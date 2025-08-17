@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In that [garden] they will on couches recline, and will know therein neither [burning] sun nor cold severe,* — **Al-Insaan (76:13)**
+> 📖 *and lifted from thee the burden* — **Ash-Sharh (94:2)**
 <!-- quran-verse-end -->
 
 ---
