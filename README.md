@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He knows all that enters the earth, and all that comes out of it, as well as all that descends from the skies, and all that ascends to them. And He alone is a dispenser of grace, truly-forgiving.* — **Saba (34:2)**
+> 📖 *BEHOLD. We sent Noah unto his people. [saying:] "Warn thy people ere grievous suffering befall them!* — **Nooh (71:1)**
 <!-- quran-verse-end -->
 
 ---
