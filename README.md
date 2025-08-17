@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and will admit them to the paradise which He has promised them.* — **Muhammad (47:6)**
+> 📖 *For, God’s are all the forces of the heavens and the earth; and God is indeed almighty, truly wise!* — **Al-Fath (48:7)**
 <!-- quran-verse-end -->
 
 ---
