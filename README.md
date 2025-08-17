@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, [in the life to come] the truly virtuous: will indeed be in bliss,* — **Al-Infitaar (82:13)**
+> 📖 *[and] in that [state of happiness] they will call out, "Limitless art Thou in Thy glory, O God!"-and will be answered with the greeting, "Peace!" And their call will close with [the words], "All praise is due to God, the Sustainer of all the worlds!"* — **Yunus (10:10)**
 <!-- quran-verse-end -->
 
 ---
