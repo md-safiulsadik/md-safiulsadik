@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“[As for me,] why should I not worship Him who has brought me into being, and to whom you all will be brought back?* — **Yaseen (36:22)**
+> 📖 *Let, then, the deniers of the truth have their will: let them have their will for a little while.* — **At-Taariq (86:17)**
 <!-- quran-verse-end -->
 
 ---
