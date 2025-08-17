@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And after that there will come a year in which the people will be delivered from all distress, and in which they will press [oil and wine as before]."* — **Yusuf (12:49)**
+> 📖 *He knows all that enters the earth, and all that comes out of it, as well as all that descends from the skies, and all that ascends to them. And He alone is a dispenser of grace, truly-forgiving.* — **Saba (34:2)**
 <!-- quran-verse-end -->
 
 ---
