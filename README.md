@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and on that Day you will most surely be called to account for [what you did with] the boon of life!* — **At-Takaathur (102:8)**
+> 📖 *God is He save whom there is no deity: the Sovereign Supreme, the Holy, the One with whom all salvation rests, the Giver of Faith, the One who determines what is true and false, the Almighty, the One who subdues wrong and restores right, the One to whom all greatness belongs! Utterly remote is God, in His limitless glory, from anything to which men may ascribe a share in His divinity!* — **Al-Hashr (59:23)**
 <!-- quran-verse-end -->
 
 ---
