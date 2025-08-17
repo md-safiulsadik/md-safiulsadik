@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and lifted from thee the burden* — **Ash-Sharh (94:2)**
+> 📖 *SAY: "Call upon those [beings] whom you imagine [to be endowed with divine powers] beside Him and [you will find that] they have it not in their power to remove any affliction from you, or to shift it [elsewhere]. "* — **Al-Israa (17:56)**
 <!-- quran-verse-end -->
 
 ---
