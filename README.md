@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[On that Day] it will come to pass that those who had been [falsely] adored shall disown their followers, and the latter shall see the suffering [that awaits them], with all their hopes cut to pieces!* — **Al-Baqara (2:166)**
+> 📖 *And after that there will come a year in which the people will be delivered from all distress, and in which they will press [oil and wine as before]."* — **Yusuf (12:49)**
 <!-- quran-verse-end -->
 
 ---
