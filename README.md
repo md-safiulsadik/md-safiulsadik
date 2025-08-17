@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And then, he whose weight [of good deeds] is heavy in the balance* — **Al-Qaari'a (101:6)**
+> 📖 *But never will they long for it, because [they are aware] of what their hands have wrought in this world; and God has full knowledge of evildoers.* — **Al-Jumu'a (62:7)**
 <!-- quran-verse-end -->
 
 ---
