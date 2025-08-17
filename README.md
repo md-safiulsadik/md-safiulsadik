@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and of whoever [else] lives on earth, all of them - so that he could but save himself.* — **Al-Ma'aarij (70:14)**
+> 📖 *in a garden sublime,* — **Al-Ghaashiya (88:10)**
 <!-- quran-verse-end -->
 
 ---
