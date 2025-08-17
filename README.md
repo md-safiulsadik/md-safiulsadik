@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But never will they long for it, because [they are aware] of what their hands have wrought in this world; and God has full knowledge of evildoers.* — **Al-Jumu'a (62:7)**
+> 📖 *In that [garden] they will on couches recline, and will know therein neither [burning] sun nor cold severe,* — **Al-Insaan (76:13)**
 <!-- quran-verse-end -->
 
 ---
