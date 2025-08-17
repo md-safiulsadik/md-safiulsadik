@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let, then, the deniers of the truth have their will: let them have their will for a little while.* — **At-Taariq (86:17)**
+> 📖 *And then, he whose weight [of good deeds] is heavy in the balance* — **Al-Qaari'a (101:6)**
 <!-- quran-verse-end -->
 
 ---
