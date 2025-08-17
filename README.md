@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and] in that [state of happiness] they will call out, "Limitless art Thou in Thy glory, O God!"-and will be answered with the greeting, "Peace!" And their call will close with [the words], "All praise is due to God, the Sustainer of all the worlds!"* — **Yunus (10:10)**
+> 📖 *and on that Day you will most surely be called to account for [what you did with] the boon of life!* — **At-Takaathur (102:8)**
 <!-- quran-verse-end -->
 
 ---
