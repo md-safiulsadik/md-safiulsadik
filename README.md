@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BELIEVE in God and His Apostle, and spend on others out of that of which He has made you trus­tees: for, those of you who have attained to faith and who spend freely [in God’s cause] shall have a great reward.* — **Al-Hadid (57:7)**
+> 📖 *Behold, [in the life to come] the truly virtuous: will indeed be in bliss,* — **Al-Infitaar (82:13)**
 <!-- quran-verse-end -->
 
 ---
