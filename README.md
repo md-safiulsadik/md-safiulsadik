@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *excepting only such as attain to faith and do good works: and theirs shall be a reward unending!* — **At-Tin (95:6)**
+> 📖 *Hell is ahead of them; and all that they may have gained [in this world] shall be of no avail whatever to them, and neither shall any of those things which, instead of God, they have come to regard as their protectors: for, awesome suffering awaits them.* — **Al-Jaathiya (45:10)**
 <!-- quran-verse-end -->
 
 ---
