@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, God has rejected the deniers of the truth, and has readied for them a blazing fire,* — **Al-Ahzaab (33:64)**
+> 📖 *of one-half thereof - or make it a little less than that,* — **Al-Muzzammil (73:3)**
 <!-- quran-verse-end -->
 
 ---
