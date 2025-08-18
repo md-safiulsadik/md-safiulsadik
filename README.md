@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither do you worship that which I worship!* — **Al-Kaafiroon (109:3)**
+> 📖 *O you who have been granted revelation [aforetime]! Believe in what We have [now] bestowed from on high in confirmation of whatever [of the truth] you already possess, lest We efface your hopes and bring them to an end - just as We rejected those people who broke the Sabbath: for God's will is always done.* — **An-Nisaa (4:47)**
 <!-- quran-verse-end -->
 
 ---
