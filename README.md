@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And found thee lost on thy way, and guided thee?* — **Ad-Dhuhaa (93:7)**
+> 📖 *excepting only such as attain to faith and do good works: and theirs shall be a reward unending!* — **At-Tin (95:6)**
 <!-- quran-verse-end -->
 
 ---
