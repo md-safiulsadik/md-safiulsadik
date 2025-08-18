@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And when Moses returned to his people, full of wrath and sorrow, he exclaimed: "Vile is the course which you have followed in my absence! Have you forsaken your Sustainer's commandment?" And he threw down the tablets [of the Law], and seized his brother's head, dragging him towards himself. Cried Aaron: "O my mother's son! Behold, the people brought me low and almost slew me: so let not mine enemies rejoice at my affliction, and count me not among the evildoing folk!"* — **Al-A'raaf (7:150)**
+> 📖 *does it make secure, until the rise of dawn.* — **Al-Qadr (97:5)**
 <!-- quran-verse-end -->
 
 ---
