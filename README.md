@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O you who have been granted revelation [aforetime]! Believe in what We have [now] bestowed from on high in confirmation of whatever [of the truth] you already possess, lest We efface your hopes and bring them to an end - just as We rejected those people who broke the Sabbath: for God's will is always done.* — **An-Nisaa (4:47)**
+> 📖 *And thus We established Joseph securely in the land [of Egypt]: he had full mastery over it, [doing] whatever he willed. [Thus do] We cause Our grace to alight upon whomever We will; and We do not fail to requite the doers of good.* — **Yusuf (12:56)**
 <!-- quran-verse-end -->
 
 ---
