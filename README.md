@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither shall they taste death there after having passed through their erstwhile death. Thus will He have preserved them from all suffer­ing through the blazing fire-* — **Ad-Dukhaan (44:56)**
+> 📖 *and shown him the two highways [of good and evil]?* — **Al-Balad (90:10)**
 <!-- quran-verse-end -->
 
 ---
