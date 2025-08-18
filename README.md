@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and We said, “Go you both unto the people who have given the lie to Our messages!” - and thereupon We broke those [sinners] to smithereens.* — **Al-Furqaan (25:36)**
+> 📖 *And [know] that all worship is due to God [alone]: hence, do not invoke anyone side by side with God!* — **Al-Jinn (72:18)**
 <!-- quran-verse-end -->
 
 ---
