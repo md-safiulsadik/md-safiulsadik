@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thus We established Joseph securely in the land [of Egypt]: he had full mastery over it, [doing] whatever he willed. [Thus do] We cause Our grace to alight upon whomever We will; and We do not fail to requite the doers of good.* — **Yusuf (12:56)**
+> 📖 *and We said, “Go you both unto the people who have given the lie to Our messages!” - and thereupon We broke those [sinners] to smithereens.* — **Al-Furqaan (25:36)**
 <!-- quran-verse-end -->
 
 ---
