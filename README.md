@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.* — **An-Nasr (110:3)**
+> 📖 *Gardens of perpetual bliss will they enter - [gardens] through which running waters flow - having therein all that they might desire. Thus will God reward those who are conscious of Him-* — **An-Nahl (16:31)**
 <!-- quran-verse-end -->
 
 ---
