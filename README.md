@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Gardens of perpetual bliss will they enter - [gardens] through which running waters flow - having therein all that they might desire. Thus will God reward those who are conscious of Him-* — **An-Nahl (16:31)**
+> 📖 *and neither shall they taste death there after having passed through their erstwhile death. Thus will He have preserved them from all suffer­ing through the blazing fire-* — **Ad-Dukhaan (44:56)**
 <!-- quran-verse-end -->
 
 ---
