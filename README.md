@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is the star that pierces through [life's] darkness:* — **At-Taariq (86:3)**
+> 📖 *And found thee in want, and given thee sufficiency?* — **Ad-Dhuhaa (93:8)**
 <!-- quran-verse-end -->
 
 ---
