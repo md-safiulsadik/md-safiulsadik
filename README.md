@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *when that most hapless wretch from among them rushed forward [to commit his evil deed],* — **Ash-Shams (91:12)**
+> 📖 *You are to believe in God and His Apostle, and to strive hard in God's cause with your possessions and your lives: this is for your own good - if you but knew it!* — **As-Saff (61:11)**
 <!-- quran-verse-end -->
 
 ---
