@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And found thee in want, and given thee sufficiency?* — **Ad-Dhuhaa (93:8)**
+> 📖 *AND THEY claim, "None shall ever enter paradise unless he be a Jew" - or, "a Christian". Such are their wishful beliefs! Say: "Produce an evidence for what you are claiming, if what you say is true!"* — **Al-Baqara (2:111)**
 <!-- quran-verse-end -->
 
 ---
