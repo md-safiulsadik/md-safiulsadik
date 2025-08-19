@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND THEY claim, "None shall ever enter paradise unless he be a Jew" - or, "a Christian". Such are their wishful beliefs! Say: "Produce an evidence for what you are claiming, if what you say is true!"* — **Al-Baqara (2:111)**
+> 📖 *Fie upon you and upon all that you worship instead of God! Will you not, then, use your reason?”* — **Al-Anbiyaa (21:67)**
 <!-- quran-verse-end -->
 
 ---
