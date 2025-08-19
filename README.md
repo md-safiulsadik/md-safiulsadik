@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now as for those who indulge in sinful doings - do they think that We place them, both in their life and their death, on an equal footing with those who have attained to faith and do righteous deeds? Bad, indeed, is their judgment:* — **Al-Jaathiya (45:21)**
+> 📖 *Did He not utterly confound their artful planning?* — **Al-Fil (105:2)**
 <!-- quran-verse-end -->
 
 ---
