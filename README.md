@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is [such as] these from whom We shall accept the best that they ever did, and whose bad deeds We shall overlook: [they will find themselves] among those who are destined for paradise, in fulfillment of the true promise which they were given [in this world].* — **Al-Ahqaf (46:16)**
+> 📖 *"He begets not, and neither is He begotten;* — **Al-Ikhlaas (112:3)**
 <!-- quran-verse-end -->
 
 ---
