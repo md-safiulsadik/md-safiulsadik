@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[who bears] around her neck a rope of twisted strands!* — **Al-Masad (111:5)**
+> 📖 *Say: “Go all over the earth and behold how [wondrously] He has created [man] in the first in­stance: and thus, too, will God bring into being your second life for, verily, God has the power to will anything!* — **Al-Ankaboot (29:20)**
 <!-- quran-verse-end -->
 
 ---
