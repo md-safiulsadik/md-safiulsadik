@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *he will in time pray for utter destruction:* — **Al-Inshiqaaq (84:11)**
+> 📖 *In this, behold, there is indeed a reminder for everyone whose heart is wide-awake -that is, [every­one who] lends ear with a conscious mind -* — **Qaaf (50:37)**
 <!-- quran-verse-end -->
 
 ---
