@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *A Surah [is this] which We have bestowed from on high, and which We have laid down in plain terms; and in it have We bestowed from on high messages which are clear [in themselves], so that you might keep [them] in mind.* — **An-Noor (24:1)**
+> 📖 *"He begets not, and neither is He begotten;* — **Al-Ikhlaas (112:3)**
 <!-- quran-verse-end -->
 
 ---
