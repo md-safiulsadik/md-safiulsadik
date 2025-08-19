@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and he who shall have done an atom's weight of evil, shall behold it.* — **Az-Zalzala (99:8)**
+> 📖 *he will in time pray for utter destruction:* — **Al-Inshiqaaq (84:11)**
 <!-- quran-verse-end -->
 
 ---
