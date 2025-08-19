@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the night when it grows still and dark.* — **Ad-Dhuhaa (93:2)**
+> 📖 *providing guidance and grace unto the doers of good* — **Luqman (31:3)**
 <!-- quran-verse-end -->
 
 ---
