@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, [O Muhammad,] thou hast never been able to recite any divine writ ere this one [was revealed], nor didst thou ever transcribe one with your own hand or else, they who try to disprove the truth [of thy revelation] might indeed have had cause to doubt [it].* — **Al-Ankaboot (29:48)**
+> 📖 *Therefore, [O believer,] endure all adversity with goodly patience:* — **Al-Ma'aarij (70:5)**
 <!-- quran-verse-end -->
 
 ---
