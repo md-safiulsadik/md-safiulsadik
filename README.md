@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And all who are thus blest will be told:] "Eat and drink with good cheer in return for all [the good deeds] that you have sent ahead in days gone by!"* — **Al-Haaqqa (69:24)**
+> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
 <!-- quran-verse-end -->
 
 ---
