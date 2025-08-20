@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for behold, unto Us will be their return,* — **Al-Ghaashiya (88:25)**
+> 📖 *But [whether by night or by day,] remember thy Sustainer's name, and devote thyself unto Him with utter devotion.* — **Al-Muzzammil (73:8)**
 <!-- quran-verse-end -->
 
 ---
