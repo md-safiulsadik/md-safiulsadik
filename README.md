@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now as for [the tribe of] Ad, they walked arrogantly on earth, [offending] against all right, and saying, “Who could have a power greater than ours?” Why - were they, then, not aware that God, who created them, had a power greater than theirs? But they went on rejecting Our messages;* — **Fussilat (41:15)**
+> 📖 *Said [Pharaoh]: “Have you come to believe in him ere I have given you permission? Verily, he must be your master who has taught you magic! But in time you shall come to know [my revenge]: most certainly shall I cut off your hands and your feet in great numbers, because of [your] perverseness, and shall most certainly crucify you in great numbers, all together!”* — **Ash-Shu'araa (26:49)**
 <!-- quran-verse-end -->
 
 ---
