@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Therefore, [O believer,] endure all adversity with goodly patience:* — **Al-Ma'aarij (70:5)**
+> 📖 *together with his wife, that carrier of evil tales,* — **Al-Masad (111:4)**
 <!-- quran-verse-end -->
 
 ---
