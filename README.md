@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, he that hates thee has indeed been cut off [from all that is good]!* — **Al-Kawthar (108:3)**
+> 📖 *for, [O Muhammad,] thou hast never been able to recite any divine writ ere this one [was revealed], nor didst thou ever transcribe one with your own hand or else, they who try to disprove the truth [of thy revelation] might indeed have had cause to doubt [it].* — **Al-Ankaboot (29:48)**
 <!-- quran-verse-end -->
 
 ---
