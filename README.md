@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“And if you give [me] the lie - well, [other] communities have given the lie [to Gods prophets] before your time: but no more is an apostle bound to do than clearly deliver the message [entrusted to him].”* — **Al-Ankaboot (29:18)**
+> 📖 *Verily, he that hates thee has indeed been cut off [from all that is good]!* — **Al-Kawthar (108:3)**
 <!-- quran-verse-end -->
 
 ---
