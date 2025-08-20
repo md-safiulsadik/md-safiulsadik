@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or [do they think] that the hidden reality [of all that exists] is within their grasp, so that [in time] they can write it down?* — **Al-Qalam (68:47)**
+> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:25)**
 <!-- quran-verse-end -->
 
 ---
