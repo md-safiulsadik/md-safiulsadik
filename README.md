@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"He begets not, and neither is He begotten;* — **Al-Ikhlaas (112:3)**
+> 📖 *for what crime she had been slain,* — **At-Takwir (81:9)**
 <!-- quran-verse-end -->
 
 ---
