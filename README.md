@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND, INDEED, from on high have We bestowed upon you messages clearly showing the truth, and [many] a lesson from [the stories of] those who have passed away before you, and [many] an admonition to the God-conscious.* — **An-Noor (24:34)**
+> 📖 *Said she: "Oh, woe is me! Shall I bear a child, now that I am an old woman and this husband of mine is an old man? Verily, that would be a strange thing indeed!"* — **Hud (11:72)**
 <!-- quran-verse-end -->
 
 ---
