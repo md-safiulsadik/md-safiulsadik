@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said [Pharaoh]: “Have you come to believe in him ere I have given you permission? Verily, he must be your master who has taught you magic! But in time you shall come to know [my revenge]: most certainly shall I cut off your hands and your feet in great numbers, because of [your] perverseness, and shall most certainly crucify you in great numbers, all together!”* — **Ash-Shu'araa (26:49)**
+> 📖 *Or [do they think] that the hidden reality [of all that exists] is within their grasp, so that [in time] they can write it down?* — **Al-Qalam (68:47)**
 <!-- quran-verse-end -->
 
 ---
