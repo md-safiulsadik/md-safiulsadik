@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On the other hand, could one on whom [God’s] sentence of suffering has been passed [be rescued by man]? Couldst thou, perchance, save one who is [already, as it were,] in the fire?* — **Az-Zumar (39:19)**
+> 📖 *“And if you give [me] the lie - well, [other] communities have given the lie [to Gods prophets] before your time: but no more is an apostle bound to do than clearly deliver the message [entrusted to him].”* — **Al-Ankaboot (29:18)**
 <!-- quran-verse-end -->
 
 ---
