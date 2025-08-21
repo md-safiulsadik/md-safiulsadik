@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *until you go down to your graves.* — **At-Takaathur (102:2)**
+> 📖 *Your Sustainer is fully aware of what is in your hearts. If you are righteous, [He will forgive you your errors]: for, behold, He is much-forgiving to those who turn unto Him again and again.* — **Al-Israa (17:25)**
 <!-- quran-verse-end -->
 
 ---
