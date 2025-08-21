@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Have they, perchance, handed down this [way of thinking] as a legacy unto one another? Nay, they are people filled with overweening ar­rogance!* — **Adh-Dhaariyat (51:53)**
+> 📖 *Verily, thy Sustainer alone is fully aware as to who has strayed from His path, Just as He alone is fully aware of those who have found the right way.* — **Al-Qalam (68:7)**
 <!-- quran-verse-end -->
 
 ---
