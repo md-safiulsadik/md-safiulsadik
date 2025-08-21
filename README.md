@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And as for [the tribe of] Thamud, We offered them guidance, but they chose blindness in pre­ference to guidance: and so the thunderbolt of shame­ful suffering fell upon them as an outcome of all [the evil] that they had wrought;* — **Fussilat (41:17)**
+> 📖 *It is such as these whom God rejects, and whom He makes deaf [to the voice of truth], and whose eyes He blinds [to its sight]!* — **Muhammad (47:23)**
 <!-- quran-verse-end -->
 
 ---
