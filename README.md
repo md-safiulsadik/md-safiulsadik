@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Remain conscious of God; and let every human being look to what he sends ahead for the morrow! And [once again]: Remain conscious of God, for God is fully aware of all that you do;* — **Al-Hashr (59:18)**
+> 📖 *"the God of men,* — **An-Naas (114:3)**
 <!-- quran-verse-end -->
 
 ---
