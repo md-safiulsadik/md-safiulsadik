@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Your Sustainer is fully aware of what is in your hearts. If you are righteous, [He will forgive you your errors]: for, behold, He is much-forgiving to those who turn unto Him again and again.* — **Al-Israa (17:25)**
+> 📖 *All believers are but brethren. Hence, [when­ever they are at odds,] make peace between your two brethren, and remain conscious of God, so that you might be graced with His mercy.* — **Al-Hujuraat (49:10)**
 <!-- quran-verse-end -->
 
 ---
