@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is such as these whom God rejects, and whom He makes deaf [to the voice of truth], and whose eyes He blinds [to its sight]!* — **Muhammad (47:23)**
+> 📖 *Nay, but this [divine writ which they reject] is a discourse sublime,* — **Al-Burooj (85:21)**
 <!-- quran-verse-end -->
 
 ---
