@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for him shall We make easy the path towards hardship:* — **Al-Lail (92:10)**
+> 📖 *and [of] Him who witnesses [all], and [of] that unto which witness is borne [by Him]!* — **Al-Burooj (85:3)**
 <!-- quran-verse-end -->
 
 ---
