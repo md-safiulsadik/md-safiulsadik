@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"from the evil of the whispering, elusive tempter* — **An-Naas (114:4)**
+> 📖 *and a tongue, and a pair of lips,* — **Al-Balad (90:9)**
 <!-- quran-verse-end -->
 
 ---
