@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And once again: Verily, the blazing fire is their ultimate goal –* — **As-Saaffaat (37:68)**
+> 📖 *And as for [the tribe of] Thamud, We offered them guidance, but they chose blindness in pre­ference to guidance: and so the thunderbolt of shame­ful suffering fell upon them as an outcome of all [the evil] that they had wrought;* — **Fussilat (41:17)**
 <!-- quran-verse-end -->
 
 ---
