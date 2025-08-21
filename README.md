@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and a tongue, and a pair of lips,* — **Al-Balad (90:9)**
+> 📖 *And once again: Verily, the blazing fire is their ultimate goal –* — **As-Saaffaat (37:68)**
 <!-- quran-verse-end -->
 
 ---
