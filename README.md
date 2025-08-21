@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Did He not utterly confound their artful planning?* — **Al-Fil (105:2)**
+> 📖 *"from all [temptation to evil by] invisible forces as well as men,"* — **An-Naas (114:6)**
 <!-- quran-verse-end -->
 
 ---
