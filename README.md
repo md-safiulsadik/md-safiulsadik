@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"the God of men,* — **An-Naas (114:3)**
+> 📖 *Say: “Yea, indeed - and most abject will you then be!” –* — **As-Saaffaat (37:18)**
 <!-- quran-verse-end -->
 
 ---
