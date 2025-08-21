@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Yea, indeed - and most abject will you then be!” –* — **As-Saaffaat (37:18)**
+> 📖 *so as to make manifest that it is indeed [but] their Sustainer's messages that these [apostles] deliver: for it is He who encompasses [with His knowledge] all that they have [to say], just as He takes count, one by one, of everything [that exists].* — **Al-Jinn (72:28)**
 <!-- quran-verse-end -->
 
 ---
