@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, my advice will not benefit you -much as I desire to give you good advice - if it be God's will that you shall remain lost in grievous error. He is your Sustainer, and unto Him you must return."* — **Hud (11:34)**
+> 📖 *Say: "Shall we tell you who are the greatest losers in whatever they may do?* — **Al-Kahf (18:103)**
 <!-- quran-verse-end -->
 
 ---
