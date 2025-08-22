@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But if they incline to peace, incline thou to it as well, and place thy trust in God: verily, He alone is all-hearing, all-knowing!* — **Al-Anfaal (8:61)**
+> 📖 *But nay, [O men,] you prefer the life of this world,* — **Al-A'laa (87:16)**
 <!-- quran-verse-end -->
 
 ---
