@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND WHEN Our messengers came unto Lot, he was sorely grieved on their account, seeing that it was beyond his power to shield them; and he exclaimed: "This is a woeful day!"* — **Hud (11:77)**
+> 📖 *O MANKIND! There has now come unto you an admonition from your Sustainer, and a cure for all [the ill] that may be in men's hearts, and guidance and grace unto all who believe [in Him].* — **Yunus (10:57)**
 <!-- quran-verse-end -->
 
 ---
