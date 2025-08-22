@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas the invisible beings He has created out of a confusing flame of fire.* — **Ar-Rahmaan (55:15)**
+> 📖 *[And when he saw that the guests would not eat,] he became apprehensive of them; [but] they said, “Fear not” - and gave him the glad tiding of [the birth of] a son who would be endowed with deep knowledge.* — **Adh-Dhaariyat (51:28)**
 <!-- quran-verse-end -->
 
 ---
