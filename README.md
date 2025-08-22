@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *no headiness will be in it, and they will not get drunk thereon.* — **As-Saaffaat (37:47)**
+> 📖 *AND WHEN Our messengers came unto Lot, he was sorely grieved on their account, seeing that it was beyond his power to shield them; and he exclaimed: "This is a woeful day!"* — **Hud (11:77)**
 <!-- quran-verse-end -->
 
 ---
