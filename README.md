@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *no falsehood can ever attain to it openly, and neither in a stealthy manner, [since it is] bestowed from on high by One who is truly wise, ever to be praised.* — **Fussilat (41:42)**
+> 📖 *God only forbids you to turn in friendship towards such as fight against you because of [your] faith, and drive you forth from your homelands, or aid [others] in driving you forth: and as for those [from among you] who turn towards them in friendship; it is they, they who are truly wrongdoers!* — **Al-Mumtahana (60:9)**
 <!-- quran-verse-end -->
 
 ---
