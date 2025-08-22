@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And when he saw that the guests would not eat,] he became apprehensive of them; [but] they said, “Fear not” - and gave him the glad tiding of [the birth of] a son who would be endowed with deep knowledge.* — **Adh-Dhaariyat (51:28)**
+> 📖 *And, indeed, We bestowed aforetime [Our] guidance on Moses, and [thus] made the children of Israel heirs to the divine writ [revealed to him]* — **Ghafir (40:53)**
 <!-- quran-verse-end -->
 
 ---
