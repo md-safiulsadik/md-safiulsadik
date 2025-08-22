@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The judgment passed by Me shall not be altered; but never do I do the least wrong unto My creatures!”* — **Qaaf (50:29)**
+> 📖 *for, my advice will not benefit you -much as I desire to give you good advice - if it be God's will that you shall remain lost in grievous error. He is your Sustainer, and unto Him you must return."* — **Hud (11:34)**
 <!-- quran-verse-end -->
 
 ---
