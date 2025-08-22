@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O MANKIND! There has now come unto you an admonition from your Sustainer, and a cure for all [the ill] that may be in men's hearts, and guidance and grace unto all who believe [in Him].* — **Yunus (10:57)**
+> 📖 *But if they incline to peace, incline thou to it as well, and place thy trust in God: verily, He alone is all-hearing, all-knowing!* — **Al-Anfaal (8:61)**
 <!-- quran-verse-end -->
 
 ---
