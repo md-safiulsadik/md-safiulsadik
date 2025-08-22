@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, indeed, the life to come will be better for thee than this earlier part [of thy life]!* — **Ad-Dhuhaa (93:4)**
+> 📖 *And [thus it is:] they who are bent on denying the truth of God’s messages and of their [ultimate] meeting with Him - it is they who abandon all hope of My grace and mercy: and it is they whom grievous suffering awaits [in the life to come].* — **Al-Ankaboot (29:23)**
 <!-- quran-verse-end -->
 
 ---
