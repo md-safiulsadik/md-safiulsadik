@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "Shall we tell you who are the greatest losers in whatever they may do?* — **Al-Kahf (18:103)**
+> 📖 *obeying its Sustainer, as in truth it must -:* — **Al-Inshiqaaq (84:5)**
 <!-- quran-verse-end -->
 
 ---
