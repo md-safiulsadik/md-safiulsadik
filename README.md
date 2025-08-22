@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thus shall thy Sustainer’s word come true against all who are bent on denying the truth: they shall find themselves in the fire [of hell].* — **Ghafir (40:6)**
+> 📖 *[It was they] who transgressed all bounds of equity all over their lands,* — **Al-Fajr (89:11)**
 <!-- quran-verse-end -->
 
 ---
