@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But nay, [O men,] you prefer the life of this world,* — **Al-A'laa (87:16)**
+> 📖 *no falsehood can ever attain to it openly, and neither in a stealthy manner, [since it is] bestowed from on high by One who is truly wise, ever to be praised.* — **Fussilat (41:42)**
 <!-- quran-verse-end -->
 
 ---
