@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *that on that Day their Sustainer [will show that He] has always been fully aware of them?* — **Al-Aadiyaat (100:11)**
+> 📖 *endure it today as an outcome of your persistent denial of the truth!”* — **Yaseen (36:64)**
 <!-- quran-verse-end -->
 
 ---
