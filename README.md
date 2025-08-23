@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *does it make secure, until the rise of dawn.* — **Al-Qadr (97:5)**
+> 📖 *reclining upon them, facing one another [in love].* — **Al-Waaqia (56:16)**
 <!-- quran-verse-end -->
 
 ---
