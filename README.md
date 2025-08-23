@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, [in the life to come] the tree of deadly fruit* — **Ad-Dukhaan (44:43)**
+> 📖 *Nay, if you could but understand [it] with an understanding [born] of certainty,* — **At-Takaathur (102:5)**
 <!-- quran-verse-end -->
 
 ---
