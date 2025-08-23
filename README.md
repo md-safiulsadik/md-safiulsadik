@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But his people's only answer was this: "Expel them from your land! Verily, they are folk who make themselves out to be pure!”* — **Al-A'raaf (7:82)**
+> 📖 *Yet if God had so willed, they would not have ascribed divinity to aught beside Him; hence, We have not made thee their keeper, and neither art thou responsible for their conduct.* — **Al-An'aam (6:107)**
 <!-- quran-verse-end -->
 
 ---
