@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But never yet came a prophet to them without their deriding him –* — **Az-Zukhruf (43:7)**
+> 📖 *However, ere [We condemn them to] that supreme suffering, We shall most certainly let them taste of a suffering closer at hand, so that they might [repent and] mend their ways.* — **As-Sajda (32:21)**
 <!-- quran-verse-end -->
 
 ---
