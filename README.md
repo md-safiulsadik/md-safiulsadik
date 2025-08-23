@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *in which case We would indeed have made thee taste double [chastisement] in life and double [chastisement] after death, and thou wouldst have found none to succour thee against Us!* — **Al-Israa (17:75)**
+> 📖 *Thee alone do we worship; and unto Thee alone do we turn for aid.* — **Al-Faatiha (1:5)**
 <!-- quran-verse-end -->
 
 ---
