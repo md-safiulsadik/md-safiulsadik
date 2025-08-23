@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and fields, and [these] palm-trees with slender spathes? –* — **Ash-Shu'araa (26:148)**
+> 📖 *Verily, [in the life to come] the tree of deadly fruit* — **Ad-Dukhaan (44:43)**
 <!-- quran-verse-end -->
 
 ---
