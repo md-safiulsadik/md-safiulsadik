@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and made me blessed wherever I may be; and He has enjoined upon me prayer and charity as long as I live,* — **Maryam (19:31)**
+> 📖 *But his people's only answer was this: "Expel them from your land! Verily, they are folk who make themselves out to be pure!”* — **Al-A'raaf (7:82)**
 <!-- quran-verse-end -->
 
 ---
