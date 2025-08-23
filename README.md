@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *endure it today as an outcome of your persistent denial of the truth!”* — **Yaseen (36:64)**
+> 📖 *and made me blessed wherever I may be; and He has enjoined upon me prayer and charity as long as I live,* — **Maryam (19:31)**
 <!-- quran-verse-end -->
 
 ---
