@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, We create man in the best conformation;* — **At-Tin (95:4)**
+> 📖 *they fear their Sustainer high above them, and do whatever they are bidden to do.* — **An-Nahl (16:50)**
 <!-- quran-verse-end -->
 
 ---
