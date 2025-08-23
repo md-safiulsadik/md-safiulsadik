@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *obeying its Sustainer, as in truth it must -:* — **Al-Inshiqaaq (84:5)**
+> 📖 *and you devour the inheritance [of others] with devouring greed,* — **Al-Fajr (89:19)**
 <!-- quran-verse-end -->
 
 ---
