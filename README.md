@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet if God had so willed, they would not have ascribed divinity to aught beside Him; hence, We have not made thee their keeper, and neither art thou responsible for their conduct.* — **Al-An'aam (6:107)**
+> 📖 *and who accept as true the [coming of the] Day of Judgment;* — **Al-Ma'aarij (70:26)**
 <!-- quran-verse-end -->
 
 ---
