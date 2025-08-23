@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *However, ere [We condemn them to] that supreme suffering, We shall most certainly let them taste of a suffering closer at hand, so that they might [repent and] mend their ways.* — **As-Sajda (32:21)**
+> 📖 *The parable of what they spend on the life of this world is that of an icy wind which smites the tilth of people who have sinned against themselves, and destroys it: for, it is not God who does them wrong, but it is they who are wronging themselves.* — **Aal-i-Imraan (3:117)**
 <!-- quran-verse-end -->
 
 ---
