@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The parable of what they spend on the life of this world is that of an icy wind which smites the tilth of people who have sinned against themselves, and destroys it: for, it is not God who does them wrong, but it is they who are wronging themselves.* — **Aal-i-Imraan (3:117)**
+> 📖 *that on that Day their Sustainer [will show that He] has always been fully aware of them?* — **Al-Aadiyaat (100:11)**
 <!-- quran-verse-end -->
 
 ---
