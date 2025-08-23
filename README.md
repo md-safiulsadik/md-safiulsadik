@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *they fear their Sustainer high above them, and do whatever they are bidden to do.* — **An-Nahl (16:50)**
+> 📖 *and fields, and [these] palm-trees with slender spathes? –* — **Ash-Shu'araa (26:148)**
 <!-- quran-verse-end -->
 
 ---
