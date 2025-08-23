@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *reclining upon them, facing one another [in love].* — **Al-Waaqia (56:16)**
+> 📖 *in which case We would indeed have made thee taste double [chastisement] in life and double [chastisement] after death, and thou wouldst have found none to succour thee against Us!* — **Al-Israa (17:75)**
 <!-- quran-verse-end -->
 
 ---
