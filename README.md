@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thee alone do we worship; and unto Thee alone do we turn for aid.* — **Al-Faatiha (1:5)**
+> 📖 *Verily, We create man in the best conformation;* — **At-Tin (95:4)**
 <!-- quran-verse-end -->
 
 ---
