@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And how many a community of greater power than this thy community which has driven thee out, [O Muhammad,] have We destroyed, with none to succour them!* — **Muhammad (47:13)**
+> 📖 *until you go down to your graves.* — **At-Takaathur (102:2)**
 <!-- quran-verse-end -->
 
 ---
