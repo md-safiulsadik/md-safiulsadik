@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [know, O men, that] whether you keep your beliefs secret or state them openly, He has full knowledge indeed of all that is in [your] hearts.* — **Al-Mulk (67:13)**
+> 📖 *thereby raising clouds of dust,* — **Al-Aadiyaat (100:4)**
 <!-- quran-verse-end -->
 
 ---
