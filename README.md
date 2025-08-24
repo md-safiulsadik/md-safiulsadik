@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the stars are scattered,* — **Al-Infitaar (82:2)**
+> 📖 *and who turn away from all that is frivolous,* — **Al-Muminoon (23:3)**
 <!-- quran-verse-end -->
 
 ---
