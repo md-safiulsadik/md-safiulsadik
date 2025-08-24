@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *in return for what your own hands have wrought - for, never does God do the least wrong to His creatures!"* — **Al-Anfaal (8:51)**
+> 📖 *It is He who bestows from on high clear mes­sages unto [this] His servant, to lead you out of the deep darkness into the light: for, behold, God is most compassionate towards you, a dispenser of grace.* — **Al-Hadid (57:9)**
 <!-- quran-verse-end -->
 
 ---
