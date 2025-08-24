@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who turn away from all that is frivolous,* — **Al-Muminoon (23:3)**
+> 📖 *He will say, "Oh, would that I had. provided beforehand for my life [to come]!"* — **Al-Fajr (89:24)**
 <!-- quran-verse-end -->
 
 ---
