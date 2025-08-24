@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Turning towards the herald and his companions, the brothers asked: "What is it that you miss?"* — **Yusuf (12:71)**
+> 📖 *so that God might separate the bad from the good, and join the bad with one another, and link them all together [within His condemnation], and then place them in hell. They, they are the lost!* — **Al-Anfaal (8:37)**
 <!-- quran-verse-end -->
 
 ---
