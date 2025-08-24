@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AS FOR THOSE with whom thou hast made a covenant, and who thereupon break their covenant on every occasion, not being conscious of God-* — **Al-Anfaal (8:56)**
+> 📖 *in return for what your own hands have wrought - for, never does God do the least wrong to His creatures!"* — **Al-Anfaal (8:51)**
 <!-- quran-verse-end -->
 
 ---
