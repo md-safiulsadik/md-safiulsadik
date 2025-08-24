@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, he who shall have done an atom's weight of good, shall behold it;* — **Az-Zalzala (99:7)**
+> 📖 *and when the stars are scattered,* — **Al-Infitaar (82:2)**
 <!-- quran-verse-end -->
 
 ---
