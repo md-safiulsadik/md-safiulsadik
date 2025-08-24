@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He will say, "Oh, would that I had. provided beforehand for my life [to come]!"* — **Al-Fajr (89:24)**
+> 📖 *IT IS GOD who has made the sea subservient [to His laws, so that it be of use] to you so that ships might sail through it at His behest, and that you might seek to obtain [what you need] of His bounty, and that you might have cause to be grateful.* — **Al-Jaathiya (45:12)**
 <!-- quran-verse-end -->
 
 ---
