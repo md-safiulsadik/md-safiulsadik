@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Prophet has a higher claim on the believers than [they have on] their own selves, [seeing that he is as a father to them] and his wives are their mothers: and they who are [thus] closely related have, in accordance with God’s decree, a higher claim upon one another than [was even the case between] the believers [of Yathrib] and those who had migrated [there for the sake of God]. None the less, you are to act with utmost goodness towards your [other] close friends as well: this [too] is written down in God’s decree.* — **Al-Ahzaab (33:6)**
+> 📖 *Guide us the straight way.* — **Al-Faatiha (1:6)**
 <!-- quran-verse-end -->
 
 ---
