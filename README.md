@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Are they, then, not aware of how little of the sky and the earth lies open before them, and how much is hidden from them? [or that,] if We so willed, We could cause the earth to swallow them, or cause fragments of the sky to fall down upon them? In all this, behold, there is a message indeed for every servant [of God] who is wont to turn unto Him [in repentance].* — **Saba (34:9)**
+> 📖 *"'And [now we know] that the foolish among us were wont to say outrageous things about God,* — **Al-Jinn (72:4)**
 <!-- quran-verse-end -->
 
 ---
