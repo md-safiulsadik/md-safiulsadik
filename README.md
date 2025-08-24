@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Guide us the straight way.* — **Al-Faatiha (1:6)**
+> 📖 *And how many a community of greater power than this thy community which has driven thee out, [O Muhammad,] have We destroyed, with none to succour them!* — **Muhammad (47:13)**
 <!-- quran-verse-end -->
 
 ---
