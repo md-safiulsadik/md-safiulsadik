@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thereby raising clouds of dust,* — **Al-Aadiyaat (100:4)**
+> 📖 *[To both kinds of your enemies, O believers, is bound to happen] the like of [what happened to] those who, a short while before them, had to taste the evil that came from their own doings, with [yet more] grievous suffering awaiting them [in the life to come]:* — **Al-Hashr (59:15)**
 <!-- quran-verse-end -->
 
 ---
