@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, verily, those who have attained to faith [in this divine writ], as well as those who follow the Jewish faith, and the Sabians, and the Christians - all who believe in God and the Last Day and do righteous deeds - no fear need they have, and neither shall they grieve.* — **Al-Maaida (5:69)**
+> 📖 *Are they, then, not aware of how little of the sky and the earth lies open before them, and how much is hidden from them? [or that,] if We so willed, We could cause the earth to swallow them, or cause fragments of the sky to fall down upon them? In all this, behold, there is a message indeed for every servant [of God] who is wont to turn unto Him [in repentance].* — **Saba (34:9)**
 <!-- quran-verse-end -->
 
 ---
