@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But although they entered [Joseph's city] in the way their father had bidden them, this proved of no avail whatever to them against [the plan of] God [His request] had served only to satisfy Jacob's heartfelt desire [to protect them]: for, behold, thanks to what We had imparted unto him, he was indeed endowed with the knowledge [that God's will must always prevail]; but most people know it not.* — **Yusuf (12:68)**
+> 📖 *in a lofty paradise,* — **Al-Haaqqa (69:22)**
 <!-- quran-verse-end -->
 
 ---
