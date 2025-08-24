@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"'And [now we know] that the foolish among us were wont to say outrageous things about God,* — **Al-Jinn (72:4)**
+> 📖 *Turning towards the herald and his companions, the brothers asked: "What is it that you miss?"* — **Yusuf (12:71)**
 <!-- quran-verse-end -->
 
 ---
