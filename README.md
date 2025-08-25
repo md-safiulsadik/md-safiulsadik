@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *His is the dominion over the heavens and the earth; and all things go back unto God [as their source].* — **Al-Hadid (57:5)**
+> 📖 *He it is who has made the earth a cradle for you, and has provided for you ways [of livelihood] thereon, so that you might follow the right path.* — **Az-Zukhruf (43:10)**
 <!-- quran-verse-end -->
 
 ---
