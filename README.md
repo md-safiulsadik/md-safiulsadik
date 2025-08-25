@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, indeed, [O Muhammad, even] before thy time have [God’s] apostles been derided - but those who scoffed at them were [in the end] overwhelmed by the very thing which they had been wont to deride.* — **Al-Anbiyaa (21:41)**
+> 📖 *This Our record speaks of you in all truth: for, verily, We have caused to be recorded all that you ever did!”* — **Al-Jaathiya (45:29)**
 <!-- quran-verse-end -->
 
 ---
