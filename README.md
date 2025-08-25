@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Then, when he beheld the sun rising, he said, "This is my Sustainer! This one is the greatest [of all]!" - but when it [too] went down, he exclaimed: "O my people! Behold, far be it from me to ascribe divinity, as you do, to aught beside God!* — **Al-An'aam (6:78)**
+> 📖 *BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.* — **Al-Qadr (97:1)**
 <!-- quran-verse-end -->
 
 ---
