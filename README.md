@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but as for those who are bent on denying the truth, ill fortune awaits them, since He will let all their [good] deeds go to waste:* — **Muhammad (47:8)**
+> 📖 *[But,] verily, they who attain to faith and do righteous deeds shall [in the life to come] have gardens through which running waters flow - that triumph most great!* — **Al-Burooj (85:11)**
 <!-- quran-verse-end -->
 
 ---
