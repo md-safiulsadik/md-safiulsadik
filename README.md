@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O MEN! A parable is set forth [herewith]; hearken, then, to it! Behold, those beings whom you invoke instead of God cannot create [as much as] a fly, even were they to join all their forces to that end! And if a fly robs them of anything, they cannot [even] rescue it from him! Weak indeed is the seeker, and [weak] the sought!* — **Al-Hajj (22:73)**
+> 📖 *And, indeed, [O Muhammad, even] before thy time have [God’s] apostles been derided - but those who scoffed at them were [in the end] overwhelmed by the very thing which they had been wont to deride.* — **Al-Anbiyaa (21:41)**
 <!-- quran-verse-end -->
 
 ---
