@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.* — **Al-Qadr (97:1)**
+> 📖 *but as for those who are bent on denying the truth, ill fortune awaits them, since He will let all their [good] deeds go to waste:* — **Muhammad (47:8)**
 <!-- quran-verse-end -->
 
 ---
