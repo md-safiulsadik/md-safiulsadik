@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and on that Day you will most surely be called to account for [what you did with] the boon of life!* — **At-Takaathur (102:8)**
+> 📖 *Countless springs will flow therein,* — **Al-Ghaashiya (88:12)**
 <!-- quran-verse-end -->
 
 ---
