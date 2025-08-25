@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He it is who has made the earth a cradle for you, and has provided for you ways [of livelihood] thereon, so that you might follow the right path.* — **Az-Zukhruf (43:10)**
+> 📖 *and then, if it be His will, He shall raise him again to life,* — **Abasa (80:22)**
 <!-- quran-verse-end -->
 
 ---
