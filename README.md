@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, when you call to prayer, they mock at it and make a jest of it-simply because they are people who do not use their reason.* — **Al-Maaida (5:58)**
+> 📖 *and who, whenever they spend on others, are neither wasteful nor niggardly but [remember that] there is always a just mean between those [two extremes];* — **Al-Furqaan (25:67)**
 <!-- quran-verse-end -->
 
 ---
