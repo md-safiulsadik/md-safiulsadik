@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Countless springs will flow therein,* — **Al-Ghaashiya (88:12)**
+> 📖 *seeing that thy Sustainer is fully aware of [what is in the minds of] all beings that are in the heavens and on earth. But, indeed, We did endow some of the prophets more highly than others -just as We bestowed upon David a book of divine wisdom [in token of Our grace]* — **Al-Israa (17:55)**
 <!-- quran-verse-end -->
 
 ---
