@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the living and the dead?* — **Al-Mursalaat (77:26)**
+> 📖 *[for,] no community can ever forestall [the end of] its term - and neither can they delay [its coming].* — **Al-Muminoon (23:43)**
 <!-- quran-verse-end -->
 
 ---
