@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *This Our record speaks of you in all truth: for, verily, We have caused to be recorded all that you ever did!”* — **Al-Jaathiya (45:29)**
+> 📖 *as a discourse in the Arabic tongue, free of all devious­ness, so that they might become conscious of God.* — **Az-Zumar (39:28)**
 <!-- quran-verse-end -->
 
 ---
