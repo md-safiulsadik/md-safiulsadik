@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[for,] no community can ever forestall [the end of] its term - and neither can they delay [its coming].* — **Al-Muminoon (23:43)**
+> 📖 *Then, when he beheld the sun rising, he said, "This is my Sustainer! This one is the greatest [of all]!" - but when it [too] went down, he exclaimed: "O my people! Behold, far be it from me to ascribe divinity, as you do, to aught beside God!* — **Al-An'aam (6:78)**
 <!-- quran-verse-end -->
 
 ---
