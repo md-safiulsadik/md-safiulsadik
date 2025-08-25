@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *as a discourse in the Arabic tongue, free of all devious­ness, so that they might become conscious of God.* — **Az-Zumar (39:28)**
+> 📖 *His is the dominion over the heavens and the earth; and all things go back unto God [as their source].* — **Al-Hadid (57:5)**
 <!-- quran-verse-end -->
 
 ---
