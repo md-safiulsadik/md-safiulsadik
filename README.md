@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who, whenever they spend on others, are neither wasteful nor niggardly but [remember that] there is always a just mean between those [two extremes];* — **Al-Furqaan (25:67)**
+> 📖 *And say: “All praise is due to God! In time He will make you see [the truth of] His messages, and then you shall know them [for what they are].” And thy Sustainer is not unmindful of whatever you all may do.* — **An-Naml (27:93)**
 <!-- quran-verse-end -->
 
 ---
