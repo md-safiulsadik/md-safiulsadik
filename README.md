@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that God might separate the bad from the good, and join the bad with one another, and link them all together [within His condemnation], and then place them in hell. They, they are the lost!* — **Al-Anfaal (8:37)**
+> 📖 *the living and the dead?* — **Al-Mursalaat (77:26)**
 <!-- quran-verse-end -->
 
 ---
