@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
+> 📖 *and [partake of] whatever fruit they may desire;* — **Al-Mursalaat (77:42)**
 <!-- quran-verse-end -->
 
 ---
