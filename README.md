@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! If any iniquitous person comes to you with a [slanderous] tale, use your discernment, lest you hurt people unwittingly and afterwards be filled with remorse for what you have done.* — **Al-Hujuraat (49:6)**
+> 📖 *NO CALAMITY can ever befall [man] unless it be by God's leave: hence, whoever believes in God guides his [own] heart [towards this truth]; and God has full knowledge of everything.* — **At-Taghaabun (64:11)**
 <!-- quran-verse-end -->
 
 ---
