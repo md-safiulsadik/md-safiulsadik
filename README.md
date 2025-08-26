@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But now they would say, “Long has our Sus­tainer made the distance between our journey- stages!” - for they had sinned against themselves. And in the end We caused them to become [one of those] tales [of things long past], and scattered them in countless fragments. Herein, behold, there are messages indeed for all who are wholly patient in adversity and deeply grate­ful [to God].* — **Saba (34:19)**
+> 📖 *and caused them to become like a field of grain that has been eaten down to stubble* — **Al-Fil (105:5)**
 <!-- quran-verse-end -->
 
 ---
