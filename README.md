@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For the like of this, then, let them labour, those who labour [in God’s way]!* — **As-Saaffaat (37:61)**
+> 📖 *[And after a time, Noah] said: "O my Sustainer! Verily, I have been calling unto my people night and day* — **Nooh (71:5)**
 <!-- quran-verse-end -->
 
 ---
