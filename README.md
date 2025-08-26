@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then, if it be His will, He shall raise him again to life,* — **Abasa (80:22)**
+> 📖 *[who bears] around her neck a rope of twisted strands!* — **Al-Masad (111:5)**
 <!-- quran-verse-end -->
 
 ---
