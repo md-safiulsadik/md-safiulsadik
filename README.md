@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[who bears] around her neck a rope of twisted strands!* — **Al-Masad (111:5)**
+> 📖 *and of thy Sustainer's blessings shalt thou [ever] speak.* — **Ad-Dhuhaa (93:11)**
 <!-- quran-verse-end -->
 
 ---
