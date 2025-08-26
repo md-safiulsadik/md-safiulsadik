@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [withal, He will grant you] yet another thing that you dearly love: succour from God [in this world], and a victory soon to come: and [thereof, O Prophet,] give thou a glad tiding to all who believe.* — **As-Saff (61:13)**
+> 📖 *And now that We replace one message by another -since God is fully aware of what He bestows from on high, step by step - they [who deny the truth] are wont to say, "Thou but inventest it!" Nay, but most of them do not understand it!* — **An-Nahl (16:101)**
 <!-- quran-verse-end -->
 
 ---
