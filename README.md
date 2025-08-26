@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And now that We replace one message by another -since God is fully aware of what He bestows from on high, step by step - they [who deny the truth] are wont to say, "Thou but inventest it!" Nay, but most of them do not understand it!* — **An-Nahl (16:101)**
+> 📖 *[It will be] a Day when they will be sorely tried by the fire,* — **Adh-Dhaariyat (51:13)**
 <!-- quran-verse-end -->
 
 ---
