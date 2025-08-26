@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [partake of] whatever fruit they may desire;* — **Al-Mursalaat (77:42)**
+> 📖 *At that, a man came running from the farthest end of the city, [and] exclaimed: “O my people! Follow these message-bearers!* — **Yaseen (36:20)**
 <!-- quran-verse-end -->
 
 ---
