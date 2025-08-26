@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *A fire hotly burning!* — **Al-Qaari'a (101:11)**
+> 📖 *and indeed, We chose them knowingly above all other people,* — **Ad-Dukhaan (44:32)**
 <!-- quran-verse-end -->
 
 ---
