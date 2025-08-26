@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and indeed, We chose them knowingly above all other people,* — **Ad-Dukhaan (44:32)**
+> 📖 *For the like of this, then, let them labour, those who labour [in God’s way]!* — **As-Saaffaat (37:61)**
 <!-- quran-verse-end -->
 
 ---
