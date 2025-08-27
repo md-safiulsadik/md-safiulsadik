@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *save what God may will [thee to forget] - for, verily, He [alone] knows all that is open to [man's] perception as well as all that is hidden [from it]* — **Al-A'laa (87:7)**
+> 📖 *even though a short while ago, [just] before it was sent down upon them, they had abandoned all hope!* — **Ar-Room (30:49)**
 <!-- quran-verse-end -->
 
 ---
