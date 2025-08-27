@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, too, gave the lie to the truth [many of] those who lived before them; and although those [earlier people] had not attained to even a tenth of [the evidence of the truth] which We have vouch­safed unto these [late successors of theirs], yet when they gave the lie to My apostles, how awesome was My rejection!* — **Saba (34:45)**
+> 📖 *But as for those who were bent on denying the truth, [they will be told:] “Were not My messages conveyed to you? And withal, you gloried in your arrogance, and so you became people lost in sin:* — **Al-Jaathiya (45:31)**
 <!-- quran-verse-end -->
 
 ---
