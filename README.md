@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *even though a short while ago, [just] before it was sent down upon them, they had abandoned all hope!* — **Ar-Room (30:49)**
+> 📖 *And His alone is all majesty in the heavens and on earth; and He alone is almighty, truly wise!* — **Al-Jaathiya (45:37)**
 <!-- quran-verse-end -->
 
 ---
