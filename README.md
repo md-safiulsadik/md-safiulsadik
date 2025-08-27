@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And they who [in life] had possessed this faculty of discernment will call out to those whom they recognize by their marks [as sinners], saying: "What has your amassing [of wealth] availed you, and all the false pride of your past?* — **Al-A'raaf (7:48)**
+> 📖 *Verily, [O Prophet,] as for those who call thee from without thy private apartments - most of them do not use their reason:* — **Al-Hujuraat (49:4)**
 <!-- quran-verse-end -->
 
 ---
