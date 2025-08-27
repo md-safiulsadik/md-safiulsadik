@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what would they have to fear if they would but believe in God and the Last Day, and spend [in His way] out of what God has granted them as sustenance - since God has indeed full knowledge of them?* — **An-Nisaa (4:39)**
+> 📖 *O you who have attained to faith! Do not take the deniers of the truth for your allies in preference to the believers! Do you want to place before God a manifest proof of your guilt?* — **An-Nisaa (4:144)**
 <!-- quran-verse-end -->
 
 ---
