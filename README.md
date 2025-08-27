@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And His alone is all majesty in the heavens and on earth; and He alone is almighty, truly wise!* — **Al-Jaathiya (45:37)**
+> 📖 *as though they were terrified asses* — **Al-Muddaththir (74:50)**
 <!-- quran-verse-end -->
 
 ---
