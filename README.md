@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or do they [think that they] own the treasures of thy Sustainer’s grace - [the grace] of the Almighty, the Giver of Gifts?* — **Saad (38:9)**
+> 📖 *and in awe [of God]* — **Abasa (80:9)**
 <!-- quran-verse-end -->
 
 ---
