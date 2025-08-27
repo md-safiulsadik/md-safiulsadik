@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
+> 📖 *Or do they [think that they] own the treasures of thy Sustainer’s grace - [the grace] of the Almighty, the Giver of Gifts?* — **Saad (38:9)**
 <!-- quran-verse-end -->
 
 ---
