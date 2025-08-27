@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *no sound thereof will they hear; and they will abide in all that their souls have ever desired.* — **Al-Anbiyaa (21:102)**
+> 📖 *BEHOLD, We have bestowed upon thee good in abundance:* — **Al-Kawthar (108:1)**
 <!-- quran-verse-end -->
 
 ---
