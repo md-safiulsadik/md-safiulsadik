@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for those who were bent on denying the truth, [they will be told:] “Were not My messages conveyed to you? And withal, you gloried in your arrogance, and so you became people lost in sin:* — **Al-Jaathiya (45:31)**
+> 📖 *no sound thereof will they hear; and they will abide in all that their souls have ever desired.* — **Al-Anbiyaa (21:102)**
 <!-- quran-verse-end -->
 
 ---
