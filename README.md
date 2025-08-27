@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thus offering an insight and a reminder unto every human being who willingly turns unto God.* — **Qaaf (50:8)**
+> 📖 *And they who [in life] had possessed this faculty of discernment will call out to those whom they recognize by their marks [as sinners], saying: "What has your amassing [of wealth] availed you, and all the false pride of your past?* — **Al-A'raaf (7:48)**
 <!-- quran-verse-end -->
 
 ---
