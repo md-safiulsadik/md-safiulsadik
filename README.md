@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *as though they were terrified asses* — **Al-Muddaththir (74:50)**
+> 📖 *And what would they have to fear if they would but believe in God and the Last Day, and spend [in His way] out of what God has granted them as sustenance - since God has indeed full knowledge of them?* — **An-Nisaa (4:39)**
 <!-- quran-verse-end -->
 
 ---
