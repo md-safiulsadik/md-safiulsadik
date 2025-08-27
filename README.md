@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“Behold, I found there a woman ruling over them; and she has been given [abundance] of all [good] things, and hers is a mighty throne,* — **An-Naml (27:23)**
+> 📖 *Thus, too, gave the lie to the truth [many of] those who lived before them; and although those [earlier people] had not attained to even a tenth of [the evidence of the truth] which We have vouch­safed unto these [late successors of theirs], yet when they gave the lie to My apostles, how awesome was My rejection!* — **Saba (34:45)**
 <!-- quran-verse-end -->
 
 ---
