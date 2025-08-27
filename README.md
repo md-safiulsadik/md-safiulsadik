@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, God loves [only] those who fight in His cause in [solid] ranks, as though they were a building firm and compact.* — **As-Saff (61:4)**
+> 📖 *thus offering an insight and a reminder unto every human being who willingly turns unto God.* — **Qaaf (50:8)**
 <!-- quran-verse-end -->
 
 ---
