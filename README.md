@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, [O Prophet,] as for those who call thee from without thy private apartments - most of them do not use their reason:* — **Al-Hujuraat (49:4)**
+> 📖 *GOD - there is no deity save Him, the Ever-Living, the Self-Subsistent Fount of All Being!* — **Aal-i-Imraan (3:2)**
 <!-- quran-verse-end -->
 
 ---
