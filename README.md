@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and said, "I am your Lord All-Highest!"* — **An-Naazi'aat (79:24)**
+> 📖 *who has created thee, and formed thee in accordance with what thou art meant' to be, and shaped thy nature in just proportions,* — **Al-Infitaar (82:7)**
 <!-- quran-verse-end -->
 
 ---
