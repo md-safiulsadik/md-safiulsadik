@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, He let loose upon them great swarms of flying creatures* — **Al-Fil (105:3)**
+> 📖 *And for this their belief God will reward them with gardens through which running waters flow, therein to abide: for such is the requital of the doers of good;* — **Al-Maaida (5:85)**
 <!-- quran-verse-end -->
 
 ---
