@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now surely, unto Pharaoh’s folk [too] came such warnings;* — **Al-Qamar (54:41)**
+> 📖 *HALLOWED be He in whose hand all dominion rests, since He has the power to will anything:* — **Al-Mulk (67:1)**
 <!-- quran-verse-end -->
 
 ---
