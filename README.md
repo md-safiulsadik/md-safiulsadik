@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HALLOWED be He in whose hand all dominion rests, since He has the power to will anything:* — **Al-Mulk (67:1)**
+> 📖 *Verily, [in the life to come] the tree of deadly fruit* — **Ad-Dukhaan (44:43)**
 <!-- quran-verse-end -->
 
 ---
