@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *knowing all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind - the Almighty, the Wise!* — **At-Taghaabun (64:18)**
+> 📖 *Indeed, he led me astray from the remembrance [of God] after it had come unto me!” For [thus it is:] Satan is ever a betrayer of man.* — **Al-Furqaan (25:29)**
 <!-- quran-verse-end -->
 
 ---
