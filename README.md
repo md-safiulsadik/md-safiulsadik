@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said he: "O my Sustainer! Prison is more desirable to me than [compliance with] what these women invite me to: for, unless Thou turn away their guile from me, I might yet yield to their allure and become one of those who are unaware [of right and wrong]."* — **Yusuf (12:33)**
+> 📖 *Lo! God will say: "O Jesus, son of Mary! Remember the blessings which I bestowed upon thee and thy mother-how I strengthened thee with holy inspiration, so that thou couldst speak unto men in thy cradle, and as a grown man; and how I imparted unto thee revelation and wisdom, including the Torah and the Gospel; and how by My leave thou didst create out of clay, as it were, the shape of [thy followers'] destiny, and then didst breathe into it, so that it might become, by My leave, [their] destiny; and how thou didst heal the blind and the leper by My leave, and how thou didst raise the dead by My leave; and how I prevented the children of Israel from harming thee when thou camest unto them with all evidence of the truth, and [when] those of them who were bent on denying the truth were saying, `This is clearly nothing but deception!"'* — **Al-Maaida (5:110)**
 <!-- quran-verse-end -->
 
 ---
