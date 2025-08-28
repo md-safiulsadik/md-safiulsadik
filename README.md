@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He it is who has sent unto the unlettered people an apostle from among themselves, to convey unto them His messages, and to cause them to grow in purity, and to impart unto them the divine writ as well as wisdom - whereas before that they were indeed, most obviously, lost in error* — **Al-Jumu'a (62:2)**
+> 📖 *Just as [we do not know how it happens] that some from among us are righteous, while some of us are [far] below that: we have always followed widely divergent paths.* — **Al-Jinn (72:11)**
 <!-- quran-verse-end -->
 
 ---
