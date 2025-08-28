@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He has created the heavens and the earth in accordance with [an inner] truth, and has formed you - and formed you so well; and with Him is your journey's end.* — **At-Taghaabun (64:3)**
+> 📖 *Behold, it is this [kind of man] that thrusts the orphan away,* — **Al-Maa'un (107:2)**
 <!-- quran-verse-end -->
 
 ---
