@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
+> 📖 *NO CALAMITY can ever befall [man] unless it be by God's leave: hence, whoever believes in God guides his [own] heart [towards this truth]; and God has full knowledge of everything.* — **At-Taghaabun (64:11)**
 <!-- quran-verse-end -->
 
 ---
