@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, [in the life to come] the tree of deadly fruit* — **Ad-Dukhaan (44:43)**
+> 📖 *appearing in the horizon’s loftiest part,* — **An-Najm (53:7)**
 <!-- quran-verse-end -->
 
 ---
