@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who has created thee, and formed thee in accordance with what thou art meant' to be, and shaped thy nature in just proportions,* — **Al-Infitaar (82:7)**
+> 📖 *Said he: "O my Sustainer! Prison is more desirable to me than [compliance with] what these women invite me to: for, unless Thou turn away their guile from me, I might yet yield to their allure and become one of those who are unaware [of right and wrong]."* — **Yusuf (12:33)**
 <!-- quran-verse-end -->
 
 ---
