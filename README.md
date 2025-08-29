@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And his people argued with him. He said: "Do you argue with me about God, when it is He who has guided me? But I do not fear anything to which you ascribe divinity side by side with Him, [for no evil can befall me] unless my Sustainer so wills. All things does my Sustainer embrace within His knowledge; will you not, then, keep this in mind?* — **Al-An'aam (6:80)**
+> 📖 *Now as for those who will not believe in God and His Apostle - verily, We have readied a blazing flame for all [such] deniers of the truth!* — **Al-Fath (48:13)**
 <!-- quran-verse-end -->
 
 ---
