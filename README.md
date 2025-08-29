@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hast thou considered whether he may [not] be giving the lie to the truth and turning his back [upon it]?* — **Al-Alaq (96:13)**
+> 📖 *Nay, but [man] has never yet fulfilled what He has enjoined upon him!* — **Abasa (80:23)**
 <!-- quran-verse-end -->
 
 ---
