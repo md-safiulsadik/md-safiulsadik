@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But then as soon as he was about to lay violent hands on the man who was their [common] enemy, the latter exclaimed: “O Moses, dost thou intend to slay me as thou didst slay another man yesterday? Thy sole aim is to become a tyrant in this land, for thou dost not care to be of those who would set things to rights!”* — **Al-Qasas (28:19)**
+> 📖 *And his people argued with him. He said: "Do you argue with me about God, when it is He who has guided me? But I do not fear anything to which you ascribe divinity side by side with Him, [for no evil can befall me] unless my Sustainer so wills. All things does my Sustainer embrace within His knowledge; will you not, then, keep this in mind?* — **Al-An'aam (6:80)**
 <!-- quran-verse-end -->
 
 ---
