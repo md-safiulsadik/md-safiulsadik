@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *not even a word can he utter but there is a watcher with him, ever-present.* — **Qaaf (50:18)**
+> 📖 *and all that is [hidden] in men's hearts is bared* — **Al-Aadiyaat (100:10)**
 <!-- quran-verse-end -->
 
 ---
