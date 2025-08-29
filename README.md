@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *gardens of perpetual bliss, with gates wide-open to them,* — **Saad (38:50)**
+> 📖 *NAY, VERILY - the record of the truly virtuous is [set down] in a mode most lofty!* — **Al-Mutaffifin (83:18)**
 <!-- quran-verse-end -->
 
 ---
