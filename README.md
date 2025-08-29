@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now as for those who will not believe in God and His Apostle - verily, We have readied a blazing flame for all [such] deniers of the truth!* — **Al-Fath (48:13)**
+> 📖 *And, henceforth, all who turn away [from this pledge] - it is they, they who are truly iniquitous!"* — **Aal-i-Imraan (3:82)**
 <!-- quran-verse-end -->
 
 ---
