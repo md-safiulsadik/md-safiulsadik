@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and all that is [hidden] in men's hearts is bared* — **Al-Aadiyaat (100:10)**
+> 📖 *But then as soon as he was about to lay violent hands on the man who was their [common] enemy, the latter exclaimed: “O Moses, dost thou intend to slay me as thou didst slay another man yesterday? Thy sole aim is to become a tyrant in this land, for thou dost not care to be of those who would set things to rights!”* — **Al-Qasas (28:19)**
 <!-- quran-verse-end -->
 
 ---
