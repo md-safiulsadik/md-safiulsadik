@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NO CALAMITY can ever befall [man] unless it be by God's leave: hence, whoever believes in God guides his [own] heart [towards this truth]; and God has full knowledge of everything.* — **At-Taghaabun (64:11)**
+> 📖 *not even a word can he utter but there is a watcher with him, ever-present.* — **Qaaf (50:18)**
 <!-- quran-verse-end -->
 
 ---
