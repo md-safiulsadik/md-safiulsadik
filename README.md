@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but [man] has never yet fulfilled what He has enjoined upon him!* — **Abasa (80:23)**
+> 📖 *Ha. Mim.* — **Al-Ahqaf (46:1)**
 <!-- quran-verse-end -->
 
 ---
