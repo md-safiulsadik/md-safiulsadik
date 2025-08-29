@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, [bethink yourselves of the Last Hour,] when the trumpet [of judgment] shall be sounded with a single blast,* — **Al-Haaqqa (69:13)**
+> 📖 *And so, that which must come to pass will on that day have come to pass;* — **Al-Haaqqa (69:15)**
 <!-- quran-verse-end -->
 
 ---
