@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for every human being will be repaid in full for whatever [good or evil] he has done: and He is fully aware of all that they do.* — **Az-Zumar (39:70)**
+> 📖 *HAS IT ever come within thy ken, the story of the [sinful] hosts* — **Al-Burooj (85:17)**
 <!-- quran-verse-end -->
 
 ---
