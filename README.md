@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the night when it grows still and dark.* — **Ad-Dhuhaa (93:2)**
+> 📖 *Hence, [bethink yourselves of the Last Hour,] when the trumpet [of judgment] shall be sounded with a single blast,* — **Al-Haaqqa (69:13)**
 <!-- quran-verse-end -->
 
 ---
