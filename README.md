@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NAY, VERILY - the record of the truly virtuous is [set down] in a mode most lofty!* — **Al-Mutaffifin (83:18)**
+> 📖 *Hast thou considered whether he may [not] be giving the lie to the truth and turning his back [upon it]?* — **Al-Alaq (96:13)**
 <!-- quran-verse-end -->
 
 ---
