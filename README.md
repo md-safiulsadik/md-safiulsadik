@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Ha. Mim.* — **Al-Ahqaf (46:1)**
+> 📖 *and the night when it grows still and dark.* — **Ad-Dhuhaa (93:2)**
 <!-- quran-verse-end -->
 
 ---
