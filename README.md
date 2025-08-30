@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Most Gracious, the Dispenser of Grace,* — **Al-Faatiha (1:3)**
+> 📖 *And as for those who henceforth come to believe, and who forsake the domain of evil and strive hard [in God's cause] together with you - these [too] shall belong to you; and they who are [thus] closely related have the highest claim on one another in [accordance with] God's decree. Verily, God has full knowledge of everything.* — **Al-Anfaal (8:75)**
 <!-- quran-verse-end -->
 
 ---
