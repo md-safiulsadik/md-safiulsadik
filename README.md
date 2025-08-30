@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
+> 📖 *And as for him whose record shall be placed in his right hand,* — **Al-Inshiqaaq (84:7)**
 <!-- quran-verse-end -->
 
 ---
