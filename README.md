@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WOE unto every slanderer, fault-finder!* — **Al-Humaza (104:1)**
+> 📖 *GO ON towards that [resurrection] which you were wont to call a lie!* — **Al-Mursalaat (77:29)**
 <!-- quran-verse-end -->
 
 ---
