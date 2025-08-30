@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and will be told:] “Taste this your trial! It is this that you were so hastily asking for!”* — **Adh-Dhaariyat (51:14)**
+> 📖 *[On the Day of Judgment,] every human being will be held in pledge for whatever [evil] he has wrought –* — **Al-Muddaththir (74:38)**
 <!-- quran-verse-end -->
 
 ---
