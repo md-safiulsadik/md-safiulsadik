@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *GO ON towards that [resurrection] which you were wont to call a lie!* — **Al-Mursalaat (77:29)**
+> 📖 *The Most Gracious, the Dispenser of Grace,* — **Al-Faatiha (1:3)**
 <!-- quran-verse-end -->
 
 ---
