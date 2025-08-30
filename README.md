@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HENCE, do not think that God will fail to fulfil the promise which He gave to His apostles: verily, God is almighty, an avenger of evil!* — **Ibrahim (14:47)**
+> 📖 *No knowledge whatever have they of Him, and neither had their forefathers: dreadful -is this saying that comes out of their mouths, [and] nothing but falsehood do they utter!* — **Al-Kahf (18:5)**
 <!-- quran-verse-end -->
 
 ---
