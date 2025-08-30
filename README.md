@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *near unto the garden of promise.* — **An-Najm (53:15)**
+> 📖 *"who whispers in the hearts of men* — **An-Naas (114:5)**
 <!-- quran-verse-end -->
 
 ---
