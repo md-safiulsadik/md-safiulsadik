@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, We have bestowed upon thee good in abundance:* — **Al-Kawthar (108:1)**
+> 📖 *AND HOW MANY a generation have We destroyed before those [who now deny the truth] people of greater might than theirs; but [when Our chastise­ment befell them,] they became wanderers on the face of the earth, seeking no more than a place of refuge* — **Qaaf (50:36)**
 <!-- quran-verse-end -->
 
 ---
