@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "O followers of the Gospel! Do not overstep the bounds [of truth] in your religious beliefs; and do not follow the errant views of people who have gone astray aforetime, and have led many [others] astray, and are still straying from the right path."* — **Al-Maaida (5:77)**
+> 📖 *[and will be told:] “Taste this your trial! It is this that you were so hastily asking for!”* — **Adh-Dhaariyat (51:14)**
 <!-- quran-verse-end -->
 
 ---
