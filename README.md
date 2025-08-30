@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And as for those who henceforth come to believe, and who forsake the domain of evil and strive hard [in God's cause] together with you - these [too] shall belong to you; and they who are [thus] closely related have the highest claim on one another in [accordance with] God's decree. Verily, God has full knowledge of everything.* — **Al-Anfaal (8:75)**
+> 📖 *HENCE, do not think that God will fail to fulfil the promise which He gave to His apostles: verily, God is almighty, an avenger of evil!* — **Ibrahim (14:47)**
 <!-- quran-verse-end -->
 
 ---
