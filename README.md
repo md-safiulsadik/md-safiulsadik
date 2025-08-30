@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen* — **Al-Qadr (97:4)**
+> 📖 *Behold, they [who are unmindful of God] love this fleeting life, and leave behind them [all thought of] a grief-laden Day.* — **Al-Insaan (76:27)**
 <!-- quran-verse-end -->
 
 ---
