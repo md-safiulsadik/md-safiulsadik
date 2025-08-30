@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *No knowledge whatever have they of Him, and neither had their forefathers: dreadful -is this saying that comes out of their mouths, [and] nothing but falsehood do they utter!* — **Al-Kahf (18:5)**
+> 📖 *THUS DO WE relate unto thee some of the stories of what happened in the past; and [thus] have We vouchsafed unto thee, out of Our grace, a reminder.* — **Taa-Haa (20:99)**
 <!-- quran-verse-end -->
 
 ---
