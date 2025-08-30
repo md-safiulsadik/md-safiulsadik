@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and from the evil of all human beings bent on occult endeavours,* — **Al-Falaq (113:4)**
+> 📖 *[and] there will be thrones [of happiness] raised high,* — **Al-Ghaashiya (88:13)**
 <!-- quran-verse-end -->
 
 ---
