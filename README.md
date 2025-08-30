@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And withal, they were not enjoined aught but that they should worship God, sincere in their faith in Him alone, turning away from all that is false; and that they should be constant in prayer; and that they should spend in charity: for this is a moral law endowed with ever-true soundness and clarity.* — **Al-Bayyina (98:5)**
+> 📖 *Say: "O followers of the Gospel! Do not overstep the bounds [of truth] in your religious beliefs; and do not follow the errant views of people who have gone astray aforetime, and have led many [others] astray, and are still straying from the right path."* — **Al-Maaida (5:77)**
 <!-- quran-verse-end -->
 
 ---
