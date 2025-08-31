@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"the God of men,* — **An-Naas (114:3)**
+> 📖 *verily, with every hardship comes ease!* — **Ash-Sharh (94:6)**
 <!-- quran-verse-end -->
 
 ---
