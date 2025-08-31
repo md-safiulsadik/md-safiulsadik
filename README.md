@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BUT FOR THOSE who of their Sustainer’s Presence stand in fear, two gardens [of paradise are readied] -* — **Ar-Rahmaan (55:46)**
+> 📖 *gardens of perpetual bliss, with gates wide-open to them,* — **Saad (38:50)**
 <!-- quran-verse-end -->
 
 ---
