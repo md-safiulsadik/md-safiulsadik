@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thereupon God sent forth a raven which scratched the earth, to show him how he might conceal the nakedness of his brother's body. [And Cain] cried out: "Oh, woe is me! Am I then too weak to do what this raven did, and to conceal the nakedness of my brother's body?" - and was thereupon smitten with remorse.* — **Al-Maaida (5:31)**
+> 📖 *"the God of men,* — **An-Naas (114:3)**
 <!-- quran-verse-end -->
 
 ---
