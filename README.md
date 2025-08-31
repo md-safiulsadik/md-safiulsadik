@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *verily, with every hardship comes ease!* — **Ash-Sharh (94:6)**
+> 📖 *BUT FOR THOSE who of their Sustainer’s Presence stand in fear, two gardens [of paradise are readied] -* — **Ar-Rahmaan (55:46)**
 <!-- quran-verse-end -->
 
 ---
