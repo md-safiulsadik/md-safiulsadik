@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, it is a truly noble discourse,* — **Al-Waaqia (56:77)**
+> 📖 *and to establish them securely on earth, and to let Pharaoh and Haman and their hosts experience through those [children of Israel] the very thing against which they sought to protect themselves.* — **Al-Qasas (28:6)**
 <!-- quran-verse-end -->
 
 ---
