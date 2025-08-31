@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But [bear in mind that] neither your kinsfolk nor [even] your own children will be of any benefit to you on Resurrection Day, [for then] He will decide between you [on your merit alone]: and God sees all that you do.* — **Al-Mumtahana (60:3)**
+> 📖 *Thereupon God sent forth a raven which scratched the earth, to show him how he might conceal the nakedness of his brother's body. [And Cain] cried out: "Oh, woe is me! Am I then too weak to do what this raven did, and to conceal the nakedness of my brother's body?" - and was thereupon smitten with remorse.* — **Al-Maaida (5:31)**
 <!-- quran-verse-end -->
 
 ---
