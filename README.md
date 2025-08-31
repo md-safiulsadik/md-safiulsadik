@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and feels no urge to feed the needy.* — **Al-Maa'un (107:3)**
+> 📖 *HAS THE STORY of Moses ever come within thy ken.* — **An-Naazi'aat (79:15)**
 <!-- quran-verse-end -->
 
 ---
