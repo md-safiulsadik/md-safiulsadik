@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and so We made them a thing of the past, and an example to those who would come after them.* — **Az-Zukhruf (43:56)**
+> 📖 *And the divorced women shall undergo, without remarrying, a waiting-period of three monthly courses: for it is not lawful for them to conceal what God may have created in their wombs, if they believe in God and the Last Day. And during this period their husbands are fully entitled to take them back, if they desire reconciliation; but, in accordance with justice, the rights of the wives [with regard to their husbands] are equal to the [husbands'] rights with regard to them, although men have precedence over them [in this respect]. And God is almighty, wise.* — **Al-Baqara (2:228)**
 <!-- quran-verse-end -->
 
 ---
