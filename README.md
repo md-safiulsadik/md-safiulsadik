@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[For,] were it Our will, We could indeed turn it into chaff, and you would be left to wonder [and to lament],* — **Al-Waaqia (56:65)**
+> 📖 *Now had We so willed, We could indeed have exalted him by means of those [messages]: but he always clung to the earth and followed but his own desires. Thus, his parable is that of an [excited] dog: if thou approach him threateningly, he will pant with his tongue lolling; and. if thou leave him alone, he will pant with his tongue lolling. Such is the parable of those who are bent on giving the lie to Our messages. Tell [them], then, this story, so that they might take thought.* — **Al-A'raaf (7:176)**
 <!-- quran-verse-end -->
 
 ---
