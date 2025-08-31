@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAS THE STORY of Moses ever come within thy ken.* — **An-Naazi'aat (79:15)**
+> 📖 *Lo! [With glee do] they contemplate that [fire],* — **Al-Burooj (85:6)**
 <!-- quran-verse-end -->
 
 ---
