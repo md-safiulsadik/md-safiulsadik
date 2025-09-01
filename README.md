@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And on that Day hell will be brought [within sight]; on that Day man will remember [all that he did and failed to do]: but what will that remembrance avail him?* — **Al-Fajr (89:23)**
+> 📖 *AND [thus it is:] he whom God lets go astray has henceforth no protector whatever: and so thou wilt see such evildoers [on Judgment Day, and wilt hear how] they exclaim as soon as they behold the suffering [that awaits them], “Is there any way of return?”* — **Ash-Shura (42:44)**
 <!-- quran-verse-end -->
 
 ---
