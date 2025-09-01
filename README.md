@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HALLOWED be thy Sustainer’s name, full of majesty and glory!* — **Ar-Rahmaan (55:78)**
+> 📖 *and all that is [hidden] in men's hearts is bared* — **Al-Aadiyaat (100:10)**
 <!-- quran-verse-end -->
 
 ---
