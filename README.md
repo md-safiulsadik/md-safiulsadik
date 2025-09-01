@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and, behold, Ours is [the dominion over] the life to come as well as [over] this earlier part [of your life]:* — **Al-Lail (92:13)**
+> 📖 *Say: "Shall we tell you who are the greatest losers in whatever they may do?* — **Al-Kahf (18:103)**
 <!-- quran-verse-end -->
 
 ---
