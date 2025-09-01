@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "Shall we tell you who are the greatest losers in whatever they may do?* — **Al-Kahf (18:103)**
+> 📖 *And [as for all such believers,] no human being can imagine what blissful delights, as yet hidden, await them [in the life to come] as a reward for all that they did.* — **As-Sajda (32:17)**
 <!-- quran-verse-end -->
 
 ---
