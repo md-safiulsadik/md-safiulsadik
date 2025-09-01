@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *that you should worship God [alone] and be conscious of Him. "Now do pay heed unto me,* — **Nooh (71:3)**
+> 📖 *"[And now,] O my companions in imprisonment, [I shall tell you the meaning of your dreams:] as for one of you two, he will [again] give his lord [the King] wine to drink; but as for the other, he will be crucified, and birds will eat off his head. [But whatever be your future,] the matter on which you have asked me to enlighten you has been decided [by God]."* — **Yusuf (12:41)**
 <!-- quran-verse-end -->
 
 ---
