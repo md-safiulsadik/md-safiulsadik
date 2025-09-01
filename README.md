@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and all that is [hidden] in men's hearts is bared* — **Al-Aadiyaat (100:10)**
+> 📖 *AND, INDEED, We have set up in the heavens great constellations, and endowed them with beauty for all to behold;* — **Al-Hijr (15:16)**
 <!-- quran-verse-end -->
 
 ---
