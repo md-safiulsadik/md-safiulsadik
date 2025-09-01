@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but only out of a longing for the countenance of his Sustainer, the All-Highest:* — **Al-Lail (92:20)**
+> 📖 *Say: “Do you, perchance, [want to] inform God of [the nature of] your faith although God knows all that is in the heavens and all that is on earth? Indeed, God has full knowledge of every­thing!”* — **Al-Hujuraat (49:16)**
 <!-- quran-verse-end -->
 
 ---
