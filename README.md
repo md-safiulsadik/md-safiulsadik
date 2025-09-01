@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or can you ever feel secure that He who is in heaven will not let loose against you a deadly stormwind, whereupon you would come to know how [true] My warning was?* — **Al-Mulk (67:17)**
+> 📖 *[All other kinds of] secret confabulations are but of Satan’s doing, so that he might cause grief to those who have attained to faith; yet he cannot harm them in the least, unless it be by God’s leave: in God, then, let the believers place their trust!* — **Al-Mujaadila (58:10)**
 <!-- quran-verse-end -->
 
 ---
