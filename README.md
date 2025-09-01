@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *when that most hapless wretch from among them rushed forward [to commit his evil deed],* — **Ash-Shams (91:12)**
+> 📖 *SAY: “[Thus speaks God:] ‘O you servants of Mine who have transgressed against your own selves! Despair not of God’s mercy: behold, God forgives all sins - for, verily, He alone is much-forgiving, a dis­penser of grace!’”* — **Az-Zumar (39:53)**
 <!-- quran-verse-end -->
 
 ---
