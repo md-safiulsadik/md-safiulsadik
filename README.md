@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [thus] spoke to his father and his people: “What is it that you worship?* — **As-Saaffaat (37:85)**
+> 📖 *Or can you ever feel secure that He who is in heaven will not let loose against you a deadly stormwind, whereupon you would come to know how [true] My warning was?* — **Al-Mulk (67:17)**
 <!-- quran-verse-end -->
 
 ---
