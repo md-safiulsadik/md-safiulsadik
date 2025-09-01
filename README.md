@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: “[Thus speaks God:] ‘O you servants of Mine who have transgressed against your own selves! Despair not of God’s mercy: behold, God forgives all sins - for, verily, He alone is much-forgiving, a dis­penser of grace!’”* — **Az-Zumar (39:53)**
+> 📖 *[And] some faces will on that Day shine with bliss,* — **Al-Ghaashiya (88:8)**
 <!-- quran-verse-end -->
 
 ---
