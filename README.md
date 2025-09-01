@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] some faces will on that Day shine with bliss,* — **Al-Ghaashiya (88:8)**
+> 📖 *and [thus] spoke to his father and his people: “What is it that you worship?* — **As-Saaffaat (37:85)**
 <!-- quran-verse-end -->
 
 ---
