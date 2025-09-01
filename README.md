@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [thus it is:] he whom God lets go astray has henceforth no protector whatever: and so thou wilt see such evildoers [on Judgment Day, and wilt hear how] they exclaim as soon as they behold the suffering [that awaits them], “Is there any way of return?”* — **Ash-Shura (42:44)**
+> 📖 *And spend on others out of what We have provided for you as sustenance, ere there come a time when death approaches any of you, and he then says, "O my Sustainer! If only Thou wouldst grant me a delay for a short while, so that I could give in charity and be among the righteous!"* — **Al-Munaafiqoon (63:10)**
 <!-- quran-verse-end -->
 
 ---
