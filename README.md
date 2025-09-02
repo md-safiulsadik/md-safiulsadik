@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And once again: Nay, in time you will come to understand!* — **At-Takaathur (102:4)**
+> 📖 *A record [indelibly] inscribed,* — **Al-Mutaffifin (83:20)**
 <!-- quran-verse-end -->
 
 ---
