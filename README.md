@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet most certainly will they have to bear their own burdens, and other burdens besides their own; and most certainly will they be called to account on Resurrection Day for all their false assertions!* — **Al-Ankaboot (29:13)**
+> 📖 *For those who are bent on denying the truth God has propounded a parable in [the stories of] Noah's wife and Lot's wife: they were wedded to two of Our righteous servants, and each one betrayed her husband; and neither of the two [husbands] will be of any avail to these two women when they are told [on Judgment Day], "Enter the fire with all those [other sinners] who enter it!"* — **At-Tahrim (66:10)**
 <!-- quran-verse-end -->
 
 ---
