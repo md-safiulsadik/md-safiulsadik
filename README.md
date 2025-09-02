@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hast thou considered whether he is on the right way,* — **Al-Alaq (96:11)**
+> 📖 *And once again: Nay, in time you will come to understand!* — **At-Takaathur (102:4)**
 <!-- quran-verse-end -->
 
 ---
