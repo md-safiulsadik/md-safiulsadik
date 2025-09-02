@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He causes the angels to descend with this divine inspiration, [bestowed] at His behest upon whomever He wills of His servants: "Warn [all human beings] that there is no deity save Me: be, therefore, conscious of Me!"* — **An-Nahl (16:2)**
+> 📖 *Nay, verily, from [the grace of] their Sustainer shall they on that Day be debarred;* — **Al-Mutaffifin (83:15)**
 <!-- quran-verse-end -->
 
 ---
