@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, verily, from [the grace of] their Sustainer shall they on that Day be debarred;* — **Al-Mutaffifin (83:15)**
+> 📖 *Say: “God’s alone is [the power to bestow the right of] intercession: His [alone] is the dominion over the heavens and the earth; and, in the end, Unto Him you will all be brought back.”* — **Az-Zumar (39:44)**
 <!-- quran-verse-end -->
 
 ---
