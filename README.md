@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[KNOW,] THEN, that if they [who have heard Our call] keep firmly to the [right] path, We shall certainly shower them with blessings abundant,* — **Al-Jinn (72:16)**
+> 📖 *Yet most certainly will they have to bear their own burdens, and other burdens besides their own; and most certainly will they be called to account on Resurrection Day for all their false assertions!* — **Al-Ankaboot (29:13)**
 <!-- quran-verse-end -->
 
 ---
