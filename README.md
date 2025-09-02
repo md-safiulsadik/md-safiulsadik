@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On the Day when they shall be dragged into the fire on their faces, [they will be told:] “Taste now the touch of hell-fire!”* — **Al-Qamar (54:48)**
+> 📖 *But Pharaoh said: “O Haman! Build me a lofty tower, that haply I may attain to the [right] means* — **Ghafir (40:36)**
 <!-- quran-verse-end -->
 
 ---
