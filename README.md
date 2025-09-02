@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Excepted, however, shall be they who repent and attain to faith and do righteous deeds: for it is they whose [erstwhile] bad deeds God will transform into good ones - seeing that God is indeed much-forgiving, a dispenser of grace,* — **Al-Furqaan (25:70)**
+> 📖 *O YOU who have attained to faith! Whenever believing women come unto you, forsaking the domain of evil, examine them, [although only] God is fully aware of their faith; and if you have thus ascertained that they are believers, do not send them back to the deniers of the truth, [since] they are [no longer] lawful to their erstwhile husbands, and these are [no longer] lawful to them. None the less, you shall return to them whatever they have spent [on their wives by way of dower]; and [then, O believers,] you will be committing no sin if you marry them after giving them their dowers. On the other hand, hold not to the marriage-tie with women who [continue to] deny the truth, and ask but for [the return of] whatever you have spent [by way of dower] -just as they [whose wives have gone over to you] have the right to demand [the return of] whatever they have spent. Such is God's judgment: He judges between you [in equity] - for God is all-knowing, wise.* — **Al-Mumtahana (60:10)**
 <!-- quran-verse-end -->
 
 ---
