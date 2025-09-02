@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But Pharaoh said: “O Haman! Build me a lofty tower, that haply I may attain to the [right] means* — **Ghafir (40:36)**
+> 📖 *and cushions ranged,* — **Al-Ghaashiya (88:15)**
 <!-- quran-verse-end -->
 
 ---
