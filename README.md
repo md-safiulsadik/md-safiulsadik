@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thereupon he [went to Pharaoh and] made him aware of the great wonder [of God's grace].* — **An-Naazi'aat (79:20)**
+> 📖 *Hast thou considered whether he is on the right way,* — **Al-Alaq (96:11)**
 <!-- quran-verse-end -->
 
 ---
