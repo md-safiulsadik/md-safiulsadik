@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THE BEDOUIN say, “We have attained to faith.” Say [unto them, O Muhammad]: “You have not [yet] attained to faith; you should [rather] say, ‘We have [outwardly] surrendered’ - for [true] faith has not yet entered your hearts. But if you [truly] pay heed unto God and His Apostle, He will not let the least of your deeds go to waste: for, behold, God is much-forgiving, a dispenser of grace.”* — **Al-Hujuraat (49:14)**
+> 📖 *and [man] will have neither strength nor helper!* — **At-Taariq (86:10)**
 <!-- quran-verse-end -->
 
 ---
