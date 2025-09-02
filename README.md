@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “God’s alone is [the power to bestow the right of] intercession: His [alone] is the dominion over the heavens and the earth; and, in the end, Unto Him you will all be brought back.”* — **Az-Zumar (39:44)**
+> 📖 *How, then, if you refuse to acknowledge the truth, will you protect yourselves on that Day which shall turn the hair of children grey,* — **Al-Muzzammil (73:17)**
 <!-- quran-verse-end -->
 
 ---
