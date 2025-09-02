@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [know that] women advanced in years, who no longer feel any sexual desire, incur no sin if they discard their [outer] garments, provided they do not aim at a showy display of [their] charms. But [even so,] it is better for them to abstain [from this]: and God is all-hearing, all-knowing.* — **An-Noor (24:60)**
+> 📖 *He causes the angels to descend with this divine inspiration, [bestowed] at His behest upon whomever He wills of His servants: "Warn [all human beings] that there is no deity save Me: be, therefore, conscious of Me!"* — **An-Nahl (16:2)**
 <!-- quran-verse-end -->
 
 ---
