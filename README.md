@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"He begets not, and neither is He begotten;* — **Al-Ikhlaas (112:3)**
+> 📖 *Now those who have been vouchsafed revelation aforetime did break up their unity [of faith] after such an evidence of the truth had come to them.* — **Al-Bayyina (98:4)**
 <!-- quran-verse-end -->
 
 ---
