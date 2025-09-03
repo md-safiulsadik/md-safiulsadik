@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is they who follow the guidance [that comes to them] from their Sustainer; and it is they, they who shall attain to a happy state!* — **Luqman (31:5)**
+> 📖 *and to this, behold, he [himself] bears witness indeed:* — **Al-Aadiyaat (100:7)**
 <!-- quran-verse-end -->
 
 ---
