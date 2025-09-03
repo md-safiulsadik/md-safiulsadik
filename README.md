@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, unto Him who brought into being the heavens and the earth have I turned my face, having turned away from all that is false; and I am not of those who ascribe divinity to aught beside Him."* — **Al-An'aam (6:79)**
+> 📖 *Consider the long-enduring house [of worship]!* — **At-Tur (52:4)**
 <!-- quran-verse-end -->
 
 ---
