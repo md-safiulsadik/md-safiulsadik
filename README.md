@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and how it is imbued with moral failings as well as with consciousness of God!* — **Ash-Shams (91:8)**
+> 📖 *and he who shall have done an atom's weight of evil, shall behold it.* — **Az-Zalzala (99:8)**
 <!-- quran-verse-end -->
 
 ---
