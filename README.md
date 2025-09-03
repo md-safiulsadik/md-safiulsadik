@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Neither their worldly possessions nor their offspring will be of the least avail to them against God: it is they who are destined for the fire, therein to abide!* — **Al-Mujaadila (58:17)**
+> 📖 *and then drew near, and came close,* — **An-Najm (53:8)**
 <!-- quran-verse-end -->
 
 ---
