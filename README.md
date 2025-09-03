@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[If you do so,] He will forgive you your sins, and [in the life to come] will admit you into gardens through which running waters flow, and into goodly mansions in [those] gardens of perpetual bliss: that [will be] the triumph supreme!* — **As-Saff (61:12)**
+> 📖 *It is they who follow the guidance [that comes to them] from their Sustainer; and it is they, they who shall attain to a happy state!* — **Luqman (31:5)**
 <!-- quran-verse-end -->
 
 ---
