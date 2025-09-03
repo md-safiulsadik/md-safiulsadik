@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and he who shall have done an atom's weight of evil, shall behold it.* — **Az-Zalzala (99:8)**
+> 📖 *those who are patient in adversity and in their Sustainer place their trust!* — **Al-Ankaboot (29:59)**
 <!-- quran-verse-end -->
 
 ---
