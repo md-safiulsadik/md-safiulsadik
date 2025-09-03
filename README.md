@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Hence,] O you who have attained to faith, do not be false to God and the Apostle, and do not knowingly be false to the trust that has been reposed in you;* — **Al-Anfaal (8:27)**
+> 📖 *but I shall bring all their scheming to nought.* — **At-Taariq (86:16)**
 <!-- quran-verse-end -->
 
 ---
