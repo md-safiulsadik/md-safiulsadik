@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now those who have been vouchsafed revelation aforetime did break up their unity [of faith] after such an evidence of the truth had come to them.* — **Al-Bayyina (98:4)**
+> 📖 *[Hence,] O you who have attained to faith, do not be false to God and the Apostle, and do not knowingly be false to the trust that has been reposed in you;* — **Al-Anfaal (8:27)**
 <!-- quran-verse-end -->
 
 ---
