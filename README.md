@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [as for all such believers,] no human being can imagine what blissful delights, as yet hidden, await them [in the life to come] as a reward for all that they did.* — **As-Sajda (32:17)**
+> 📖 *HALLOWED be He in whose hand all dominion rests, since He has the power to will anything:* — **Al-Mulk (67:1)**
 <!-- quran-verse-end -->
 
 ---
