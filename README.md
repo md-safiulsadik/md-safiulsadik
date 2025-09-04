@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that you [O men] might believe in God and His Apostle, and might honour Him, and revere Him, and extol His limitless glory from morn to evening.* — **Al-Fath (48:9)**
+> 📖 *And, behold, with every hardship comes ease:* — **Ash-Sharh (94:5)**
 <!-- quran-verse-end -->
 
 ---
