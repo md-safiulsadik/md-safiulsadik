@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *These it is who in the gardens [of paradise] shall be honoured!* — **Al-Ma'aarij (70:35)**
+> 📖 *[Thereupon the angels called out unto him: "O Zachariah! We bring thee the glad tiding of [the birth of] a son whose name shall be John. [And God says,] `Never have We given this name to anyone before him."* — **Maryam (19:7)**
 <!-- quran-verse-end -->
 
 ---
