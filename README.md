@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *it swept the people away as though they were palm-trunks uprooted:* — **Al-Qamar (54:20)**
+> 📖 *He it is who has sent forth His Apostle with [the task of] spreading guidance and the religion of truth, to the end that He make it prevail over all [false] religion, however hateful this may be to those who ascribe divinity to aught but God.* — **As-Saff (61:9)**
 <!-- quran-verse-end -->
 
 ---
