@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, leave them alone until they face that [Judgment] Day of theirs, when they will be stricken with terror:* — **At-Tur (52:45)**
+> 📖 *Let them, therefore, worship the Sustainer of this Temple;* — **Quraish (106:3)**
 <!-- quran-verse-end -->
 
 ---
