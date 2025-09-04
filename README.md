@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *just as thou canst not lead the blind [of heart] out of their error: none canst thou make hear [thy call] save such as [are willing to] believe in Our messages, and thus surrender them­selves unto Us.* — **Ar-Room (30:53)**
+> 📖 *it swept the people away as though they were palm-trunks uprooted:* — **Al-Qamar (54:20)**
 <!-- quran-verse-end -->
 
 ---
