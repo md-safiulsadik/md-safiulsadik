@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but they who give the lie to Our messages and scorn them in their pride-these are destined for the fire, therein to abide.* — **Al-A'raaf (7:36)**
+> 📖 *And if you doubt any part of what We have, bestowed from on high, step by step, upon Our servant [Muhammad], then produce a surah of similar merit, and call upon any other than God to bear witness for you -if what you say is true!* — **Al-Baqara (2:23)**
 <!-- quran-verse-end -->
 
 ---
