@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Thereupon the angels called out unto him: "O Zachariah! We bring thee the glad tiding of [the birth of] a son whose name shall be John. [And God says,] `Never have We given this name to anyone before him."* — **Maryam (19:7)**
+> 📖 *although He is God in the heavens and on earth, knowing all that you keep secret as well as all that you do openly, and knowing what you deserve.* — **Al-An'aam (6:3)**
 <!-- quran-verse-end -->
 
 ---
