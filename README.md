@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the means of approach to the heavens - and that [thus] I may have a look at the god of Moses: for, behold, I am indeed certain that he is a liar!” And thus, goodly seemed unto Pharaoh the evil of his own doings, and so he was barred from the path [of truth]: and Pharaoh’s guile did not lead to aught but ruin.* — **Ghafir (40:37)**
+> 📖 *whereas those who strive against Our messages, seeking to defeat their purpose - they are destined for the blazing fire.* — **Al-Hajj (22:51)**
 <!-- quran-verse-end -->
 
 ---
