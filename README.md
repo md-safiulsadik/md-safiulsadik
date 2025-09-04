@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, behold, with every hardship comes ease:* — **Ash-Sharh (94:5)**
+> 📖 *AND [remember:] it is God who sends forth the winds, so that they raise a cloud, whereupon We drive it towards dead land and thereby give life to the earth after it had been lifeless: even thus shall resur­rection be!* — **Faatir (35:9)**
 <!-- quran-verse-end -->
 
 ---
