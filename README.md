@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [remember:] it is God who sends forth the winds, so that they raise a cloud, whereupon We drive it towards dead land and thereby give life to the earth after it had been lifeless: even thus shall resur­rection be!* — **Faatir (35:9)**
+> 📖 *And [as for all such believers,] no human being can imagine what blissful delights, as yet hidden, await them [in the life to come] as a reward for all that they did.* — **As-Sajda (32:17)**
 <!-- quran-verse-end -->
 
 ---
