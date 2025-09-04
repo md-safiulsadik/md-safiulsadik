@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but I shall bring all their scheming to nought.* — **At-Taariq (86:16)**
+> 📖 *but they who give the lie to Our messages and scorn them in their pride-these are destined for the fire, therein to abide.* — **Al-A'raaf (7:36)**
 <!-- quran-verse-end -->
 
 ---
