@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] think not that those who are bent on denying the truth can elude [their final reckoning even if they remain unscathed] on earth: the fire is their goal [in the life to come] - and vile indeed is such a journey’s end!* — **An-Noor (24:57)**
+> 📖 *so that you [O men] might believe in God and His Apostle, and might honour Him, and revere Him, and extol His limitless glory from morn to evening.* — **Al-Fath (48:9)**
 <!-- quran-verse-end -->
 
 ---
