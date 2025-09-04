@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"God the Eternal, the Uncaused Cause of All Being.* — **Al-Ikhlaas (112:2)**
+> 📖 *but he will enter the blazing flame.* — **Al-Inshiqaaq (84:12)**
 <!-- quran-verse-end -->
 
 ---
