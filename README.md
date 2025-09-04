@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And if you doubt any part of what We have, bestowed from on high, step by step, upon Our servant [Muhammad], then produce a surah of similar merit, and call upon any other than God to bear witness for you -if what you say is true!* — **Al-Baqara (2:23)**
+> 📖 *just as thou canst not lead the blind [of heart] out of their error: none canst thou make hear [thy call] save such as [are willing to] believe in Our messages, and thus surrender them­selves unto Us.* — **Ar-Room (30:53)**
 <!-- quran-verse-end -->
 
 ---
