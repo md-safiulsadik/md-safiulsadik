@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but he will enter the blazing flame.* — **Al-Inshiqaaq (84:12)**
+> 📖 *Hence, leave them alone until they face that [Judgment] Day of theirs, when they will be stricken with terror:* — **At-Tur (52:45)**
 <!-- quran-verse-end -->
 
 ---
