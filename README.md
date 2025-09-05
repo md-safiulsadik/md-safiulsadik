@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *well-pleased with [the fruit of] their striving,* — **Al-Ghaashiya (88:9)**
+> 📖 *But he would not try to ascend the steep uphill road...* — **Al-Balad (90:11)**
 <!-- quran-verse-end -->
 
 ---
