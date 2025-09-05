@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *To him who desires a harvest in the life to come, We shall grant an increase in his harvest; whereas to him who desires [but] a harvest in this world, We [may] give something thereof - but he will have no share in [the blessings of] the life to come.* — **Ash-Shura (42:20)**
+> 📖 *Excepted, however, shall be they who repent and attain to faith and do righteous deeds: for it is they whose [erstwhile] bad deeds God will transform into good ones - seeing that God is indeed much-forgiving, a dispenser of grace,* — **Al-Furqaan (25:70)**
 <!-- quran-verse-end -->
 
 ---
