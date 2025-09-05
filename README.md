@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thus [We had made them, and thus he left them; and We did encompass with Our knowledge all that he had in mind* — **Al-Kahf (18:91)**
+> 📖 *On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.* — **Az-Zalzala (99:6)**
 <!-- quran-verse-end -->
 
 ---
