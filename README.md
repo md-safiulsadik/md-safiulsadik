@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But if those [who are bent on denying the truth] turn away, say: "God is enough for me! There is no- deity save Him. In Him have I placed my trust, for He is the Sustainer, in awesome almightiness enthroned."* — **At-Tawba (9:129)**
+> 📖 *HAVE THE STORIES of those who, in earlier times, refused to acknowledge the truth never yet come within your ken? [They denied it -] and so they had to taste the evil outcome of their own doings, with [more] grievous suffering awaiting them [in the life to come]:* — **At-Taghaabun (64:5)**
 <!-- quran-verse-end -->
 
 ---
