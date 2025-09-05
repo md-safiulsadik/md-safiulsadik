@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, We have created man into [a life of] pain, toil and trial.* — **Al-Balad (90:4)**
+> 📖 *thus [We had made them, and thus he left them; and We did encompass with Our knowledge all that he had in mind* — **Al-Kahf (18:91)**
 <!-- quran-verse-end -->
 
 ---
