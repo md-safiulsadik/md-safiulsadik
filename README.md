@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Excepted, however, shall be they who repent and attain to faith and do righteous deeds: for it is they whose [erstwhile] bad deeds God will transform into good ones - seeing that God is indeed much-forgiving, a dispenser of grace,* — **Al-Furqaan (25:70)**
+> 📖 *whereas for those who strive against Our messages, seeking to defeat their purpose, there is grievous suffering in store as an outcome of [their] vileness.* — **Saba (34:5)**
 <!-- quran-verse-end -->
 
 ---
