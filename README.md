@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.* — **Az-Zalzala (99:6)**
+> 📖 *INDEED, there has come unto you [O mankind] an Apostle from among yourselves: heavily weighs -upon him [the thought] that you might suffer [in the life to come]; full of concern for you [is he, and] full of compassion and mercy towards the believers.* — **At-Tawba (9:128)**
 <!-- quran-verse-end -->
 
 ---
