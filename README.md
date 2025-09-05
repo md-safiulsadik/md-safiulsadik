@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas for those who strive against Our messages, seeking to defeat their purpose, there is grievous suffering in store as an outcome of [their] vileness.* — **Saba (34:5)**
+> 📖 *But if those [who are bent on denying the truth] turn away, say: "God is enough for me! There is no- deity save Him. In Him have I placed my trust, for He is the Sustainer, in awesome almightiness enthroned."* — **At-Tawba (9:129)**
 <!-- quran-verse-end -->
 
 ---
