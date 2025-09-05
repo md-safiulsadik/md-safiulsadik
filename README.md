@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the multiple and the One!* — **Al-Fajr (89:3)**
+> 📖 *And neither did he bid you to take the angels and the prophets for your lords: [for] would he bid you to deny the truth after you have surrendered yourselves unto God?* — **Aal-i-Imraan (3:80)**
 <!-- quran-verse-end -->
 
 ---
