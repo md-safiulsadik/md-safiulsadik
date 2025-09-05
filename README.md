@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Why, can the people of any community ever feel secure that Our punishment will not come upon them in broad daylight, while they are engaged in (worldly] play?* — **Al-A'raaf (7:98)**
+> 📖 *Verily, We have created man into [a life of] pain, toil and trial.* — **Al-Balad (90:4)**
 <!-- quran-verse-end -->
 
 ---
