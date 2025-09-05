@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BUT IF they turn away [from thee, O Prophet, know that] We have not sent thee to be their keeper: thou art not bound to do more than deliver the message [entrusted to thee]. And, behold, [such as turn away from Our mes­sages are but impelled by the weakness and incon­stancy of human nature: thus,] when We give man a taste of Our grace, he is prone to exult in it; but if misfortune befalls [any of] them in result of what their own hands have sent forth, then, behold, man shows how bereft he is of all gratitude!* — **Ash-Shura (42:48)**
+> 📖 *Why, can the people of any community ever feel secure that Our punishment will not come upon them in broad daylight, while they are engaged in (worldly] play?* — **Al-A'raaf (7:98)**
 <!-- quran-verse-end -->
 
 ---
