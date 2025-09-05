@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And neither did he bid you to take the angels and the prophets for your lords: [for] would he bid you to deny the truth after you have surrendered yourselves unto God?* — **Aal-i-Imraan (3:80)**
+> 📖 *Verily, we did invoke Him [alone] ere this: [and now He has shown us] that He alone is truly benign, a true dispenser of grace!”* — **At-Tur (52:28)**
 <!-- quran-verse-end -->
 
 ---
