@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But he would not try to ascend the steep uphill road...* — **Al-Balad (90:11)**
+> 📖 *[the fire] which none shall have to endure but that most hapless wretch* — **Al-Lail (92:15)**
 <!-- quran-verse-end -->
 
 ---
