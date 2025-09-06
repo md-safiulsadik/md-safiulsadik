@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *although God's apostle had told them, "It is a she-camel belonging to God, so let her drink [and do her no harm]!"* — **Ash-Shams (91:13)**
+> 📖 *[This, then, is] the parable of those who are bent on denying their Sustainer: all their works are as ashes which the wind blows about fiercely on a stormy day: [in the life to come,] they cannot achieve any benefit whatever from all [the good] that they may have wrought: for this [denial of God] is indeed the farthest one can go astray.* — **Ibrahim (14:18)**
 <!-- quran-verse-end -->
 
 ---
