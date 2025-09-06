@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And the parable of a corrupt word is that of a corrupt tree, torn up [from its roots] onto the face of the earth, wholly unable to endure.* — **Ibrahim (14:26)**
+> 📖 *Art thou not aware of thy Sustainer [through His works]? - how He causes the shadow to lengthen [towards the night] when, had He so willed, He could indeed have made it stand still: but then, We have made the sun its guide;* — **Al-Furqaan (25:45)**
 <!-- quran-verse-end -->
 
 ---
