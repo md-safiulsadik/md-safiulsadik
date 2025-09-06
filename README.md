@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, henceforth, all who turn away [from this pledge] - it is they, they who are truly iniquitous!"* — **Aal-i-Imraan (3:82)**
+> 📖 *And the parable of a corrupt word is that of a corrupt tree, torn up [from its roots] onto the face of the earth, wholly unable to endure.* — **Ibrahim (14:26)**
 <!-- quran-verse-end -->
 
 ---
