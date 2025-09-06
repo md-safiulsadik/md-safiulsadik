@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And as for thee,] O Prophet - behold, We have sent thee as a witness [to the truth], and as a herald of glad tidings and a warner,* — **Al-Ahzaab (33:45)**
+> 📖 *And, henceforth, all who turn away [from this pledge] - it is they, they who are truly iniquitous!"* — **Aal-i-Imraan (3:82)**
 <!-- quran-verse-end -->
 
 ---
