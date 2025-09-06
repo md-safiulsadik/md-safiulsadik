@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Art thou not aware of thy Sustainer [through His works]? - how He causes the shadow to lengthen [towards the night] when, had He so willed, He could indeed have made it stand still: but then, We have made the sun its guide;* — **Al-Furqaan (25:45)**
+> 📖 *The way of those upon whom Thou hast bestowed Thy blessings, not of those who have been condemned [by Thee], nor of those who go astray!* — **Al-Faatiha (1:7)**
 <!-- quran-verse-end -->
 
 ---
