@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD. We sent Noah unto his people. [saying:] "Warn thy people ere grievous suffering befall them!* — **Nooh (71:1)**
+> 📖 *Nor is this [message] the word of any satanic force accursed.* — **At-Takwir (81:25)**
 <!-- quran-verse-end -->
 
 ---
