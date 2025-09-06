@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But [there is many a one] who says to his parents [whenever they try to imbue him with faith in God]: “Fie upon both of you! Do you promise me that I shall be brought forth [from the dead], although [so many] generations have passed away before me?” And [while] they both pray for God’s help [and say], “Alas for thee! For, behold, God’s promise always comes true!” - he but answers, “All this is nothing but fables of ancient times!”* — **Al-Ahqaf (46:17)**
+> 📖 *And there are among them such as [seem to] listen to thee [O Prophet]: but over their hearts We have laid veils which prevent them from grasping the truth, and into their ears, deafness. And were they to see every sign [of the truth], they would still not believe in it-so much so that when they come unto thee to contend with thee, those who are bent on denying the truth say, "This is nothing but fables of ancient times!"* — **Al-An'aam (6:25)**
 <!-- quran-verse-end -->
 
 ---
