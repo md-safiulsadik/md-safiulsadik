@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then We cause him to remain as a drop of sperm in [the wombs] firm keeping,* — **Al-Muminoon (23:13)**
+> 📖 *SAY: "[God is] He who has brought you [all] into being, and has endowed you with hearing, and sight, and hearts: [yet] how seldom are you grateful!"* — **Al-Mulk (67:23)**
 <!-- quran-verse-end -->
 
 ---
