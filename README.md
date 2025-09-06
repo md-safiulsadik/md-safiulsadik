@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "[God is] He who has brought you [all] into being, and has endowed you with hearing, and sight, and hearts: [yet] how seldom are you grateful!"* — **Al-Mulk (67:23)**
+> 📖 *Lo! God showed them to thee in a dream as few: for, had He shown them to you as many, you would surely have lost heart, and would surely have disagreed with one another about what to do. But God saved [you from this]: verily, He has full knowledge of what is the hearts [of men].* — **Al-Anfaal (8:43)**
 <!-- quran-verse-end -->
 
 ---
