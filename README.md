@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *There is no deity save Him: He grants life and deals death: He is your Sustainer as well as the Sustainer of your forebears of old.* — **Ad-Dukhaan (44:8)**
+> 📖 *for, behold, he never thought that he would have to return [to God].* — **Al-Inshiqaaq (84:14)**
 <!-- quran-verse-end -->
 
 ---
