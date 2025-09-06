@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[the Day] on which the skies shall be rent asunder, [and] His promise [of resurrection] fulfilled?* — **Al-Muzzammil (73:18)**
+> 📖 *although God's apostle had told them, "It is a she-camel belonging to God, so let her drink [and do her no harm]!"* — **Ash-Shams (91:13)**
 <!-- quran-verse-end -->
 
 ---
