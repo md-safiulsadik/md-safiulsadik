@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"who whispers in the hearts of men* — **An-Naas (114:5)**
+> 📖 *a goal for all who are wont to transgress the bounds of what is right!* — **An-Naba (78:22)**
 <!-- quran-verse-end -->
 
 ---
