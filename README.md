@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Enjoy, then, all that is lawful and good among the things which you have gained in war, and remain conscious of God: verily, God is much-forgiving, a dispenser of grace.* — **Al-Anfaal (8:69)**
+> 📖 *But excepted shall be -from among those who ascribe divinity to aught beside God - [people] with whom you [O believers] have made a covenant and who thereafter have in no wise failed to fulfil their obligations towards you, and neither have aided anyone against you: observe, then, your covenant with them until the end of the term agreed with them. Verily, God loves those who are conscious of Him.* — **At-Tawba (9:4)**
 <!-- quran-verse-end -->
 
 ---
