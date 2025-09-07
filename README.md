@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And they will be waited upon with vessels of silver and goblets that will [seem to] be crystal –* — **Al-Insaan (76:15)**
+> 📖 *for a term pre-ordained?* — **Al-Mursalaat (77:22)**
 <!-- quran-verse-end -->
 
 ---
