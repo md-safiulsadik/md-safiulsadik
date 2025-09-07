@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for a term pre-ordained?* — **Al-Mursalaat (77:22)**
+> 📖 *and thou seest people enter God's religion in hosts,* — **An-Nasr (110:2)**
 <!-- quran-verse-end -->
 
 ---
