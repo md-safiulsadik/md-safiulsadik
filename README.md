@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[the Day] on which the skies shall be rent asunder, [and] His promise [of resurrection] fulfilled?* — **Al-Muzzammil (73:18)**
+> 📖 *for [we know] that sublimely exalted is our Sustainer's majesty: no consort has He ever taken unto Himself, nor a son!* — **Al-Jinn (72:3)**
 <!-- quran-verse-end -->
 
 ---
