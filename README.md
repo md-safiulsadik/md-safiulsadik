@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But excepted shall be -from among those who ascribe divinity to aught beside God - [people] with whom you [O believers] have made a covenant and who thereafter have in no wise failed to fulfil their obligations towards you, and neither have aided anyone against you: observe, then, your covenant with them until the end of the term agreed with them. Verily, God loves those who are conscious of Him.* — **At-Tawba (9:4)**
+> 📖 *SAY [O Prophet]: “No reward whatever do I ask of you for this [message]; and I am not one of those who claim to be what they are not.* — **Saad (38:86)**
 <!-- quran-verse-end -->
 
 ---
