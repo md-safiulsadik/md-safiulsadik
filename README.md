@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And at nightfall they came to their father, weeping,* — **Yusuf (12:16)**
+> 📖 *[the Day] on which the skies shall be rent asunder, [and] His promise [of resurrection] fulfilled?* — **Al-Muzzammil (73:18)**
 <!-- quran-verse-end -->
 
 ---
