@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *unless it be such [of them] as [repent, and] attain to faith, and do good works: for theirs shall be a reward unending!.* — **Al-Inshiqaaq (84:25)**
+> 📖 *does it make secure, until the rise of dawn.* — **Al-Qadr (97:5)**
 <!-- quran-verse-end -->
 
 ---
