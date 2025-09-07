@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who stand in awe of their Sustainer although He is beyond the reach of human perception, and who tremble at the thought of the Last Hour.* — **Al-Anbiyaa (21:49)**
+> 📖 *"who whispers in the hearts of men* — **An-Naas (114:5)**
 <!-- quran-verse-end -->
 
 ---
