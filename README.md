@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[who bears] around her neck a rope of twisted strands!* — **Al-Masad (111:5)**
+> 📖 *And they will be waited upon with vessels of silver and goblets that will [seem to] be crystal –* — **Al-Insaan (76:15)**
 <!-- quran-verse-end -->
 
 ---
