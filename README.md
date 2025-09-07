@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and with Pharaoh of the [many] tent-poles?* — **Al-Fajr (89:10)**
+> 📖 *[who bears] around her neck a rope of twisted strands!* — **Al-Masad (111:5)**
 <!-- quran-verse-end -->
 
 ---
