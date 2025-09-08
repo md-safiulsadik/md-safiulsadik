@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [once again]: Why do you not say, whenever you hear such [a rumour], “It does not behove us to speak of this, O Thou who art limitless in Thy glory: this is an awesome calumny”?* — **An-Noor (24:16)**
+> 📖 *[bestowed upon thee] so that thou mayest warn people whose forefathers had not been warned, and who therefore are unaware [of the meaning of right and wrong].* — **Yaseen (36:6)**
 <!-- quran-verse-end -->
 
 ---
