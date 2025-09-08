@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[the fire] which none shall have to endure but that most hapless wretch* — **Al-Lail (92:15)**
+> 📖 *[But] then the others came towards him hur­riedly [and accused him of his deed].* — **As-Saaffaat (37:94)**
 <!-- quran-verse-end -->
 
 ---
