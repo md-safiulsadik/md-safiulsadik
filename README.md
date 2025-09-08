@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *rushing to assault at morn,* — **Al-Aadiyaat (100:3)**
+> 📖 *if thou find them at war [with you], make of them a fearsome example for those who follow them, so that they might take it to heart;* — **Al-Anfaal (8:57)**
 <!-- quran-verse-end -->
 
 ---
