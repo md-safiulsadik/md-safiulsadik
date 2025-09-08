@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *if thou find them at war [with you], make of them a fearsome example for those who follow them, so that they might take it to heart;* — **Al-Anfaal (8:57)**
+> 📖 *[And] those who were wont to glory in their arrogance will say unto those who had been weak: “Why - did we keep you [forcibly] from following the right path after it had become obvious to you? Nay, it was but you [yourselves] who were guilty!”* — **Saba (34:32)**
 <!-- quran-verse-end -->
 
 ---
