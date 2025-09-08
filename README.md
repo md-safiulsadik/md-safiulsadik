@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *although God's apostle had told them, "It is a she-camel belonging to God, so let her drink [and do her no harm]!"* — **Ash-Shams (91:13)**
+> 📖 *Verily, We shall indeed bring the dead back to life; and We shall record whatever [deeds] they have sent ahead, and the traces [of good and evil] which they have left behind: for of all things do We take account in a record clear.* — **Yaseen (36:12)**
 <!-- quran-verse-end -->
 
 ---
