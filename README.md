@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They will reply: "Yea, a warner did indeed come unto us, but we gave him the lie and said, 'Never has God sent down anything [by way of revelation]! You [self-styled warners] are but lost in a great delusion!"'* — **Al-Mulk (67:9)**
+> 📖 *"All praise is due to God, who has bestowed upon me, in my old age, Ishmael and Isaac! Behold, my Sustainer hears indeed all prayer:* — **Ibrahim (14:39)**
 <!-- quran-verse-end -->
 
 ---
