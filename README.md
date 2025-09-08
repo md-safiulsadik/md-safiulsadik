@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the Day of Judgment we were wont to call a lie –* — **Al-Muddaththir (74:46)**
+> 📖 *Thus, indeed, did We destroy people like you [in the past]: who, then, is willing to take it to heart?* — **Al-Qamar (54:51)**
 <!-- quran-verse-end -->
 
 ---
