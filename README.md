@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAS THERE [not] been an endless span of time before man [appeared - a time] when he was not yet a thing to be thought of?* — **Al-Insaan (76:1)**
+> 📖 *and the Day of Judgment we were wont to call a lie –* — **Al-Muddaththir (74:46)**
 <!-- quran-verse-end -->
 
 ---
