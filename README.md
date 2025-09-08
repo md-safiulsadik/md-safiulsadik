@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, indeed, did We destroy people like you [in the past]: who, then, is willing to take it to heart?* — **Al-Qamar (54:51)**
+> 📖 *[the fire] which none shall have to endure but that most hapless wretch* — **Al-Lail (92:15)**
 <!-- quran-verse-end -->
 
 ---
