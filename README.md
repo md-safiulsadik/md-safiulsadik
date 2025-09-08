@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and so God has graced us with His favour, and has warded off from us all suffering through the scorching winds [of frustration].* — **At-Tur (52:27)**
+> 📖 *and who, whenever tyranny afflicts them, defend themselves.* — **Ash-Shura (42:39)**
 <!-- quran-verse-end -->
 
 ---
