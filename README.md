@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, those who are bent on denying the truth and on evildoing - God will indeed not forgive them, nor will He guide them onto any road* — **An-Nisaa (4:168)**
+> 📖 *AND CALL to mind Our servants Abraham and Isaac and Jacob, [all of them] endowed with inner strength and vision:* — **Saad (38:45)**
 <!-- quran-verse-end -->
 
 ---
