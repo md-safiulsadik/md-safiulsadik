@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] those who were wont to glory in their arrogance will say unto those who had been weak: “Why - did we keep you [forcibly] from following the right path after it had become obvious to you? Nay, it was but you [yourselves] who were guilty!”* — **Saba (34:32)**
+> 📖 *And [once again]: Why do you not say, whenever you hear such [a rumour], “It does not behove us to speak of this, O Thou who art limitless in Thy glory: this is an awesome calumny”?* — **An-Noor (24:16)**
 <!-- quran-verse-end -->
 
 ---
