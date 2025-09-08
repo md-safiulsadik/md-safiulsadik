@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware of those who have preferred a denial of the truth to God's blessings, and [thereby] invited their people to alight in that abode of utter desolation* — **Ibrahim (14:28)**
+> 📖 *Such is God's bounty: He grants it to anyone who is willing [to receive it]: for God is limitless in His great bounty.* — **Al-Jumu'a (62:4)**
 <!-- quran-verse-end -->
 
 ---
