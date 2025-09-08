@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, We shall indeed bring the dead back to life; and We shall record whatever [deeds] they have sent ahead, and the traces [of good and evil] which they have left behind: for of all things do We take account in a record clear.* — **Yaseen (36:12)**
+> 📖 *and made me blessed wherever I may be; and He has enjoined upon me prayer and charity as long as I live,* — **Maryam (19:31)**
 <!-- quran-verse-end -->
 
 ---
