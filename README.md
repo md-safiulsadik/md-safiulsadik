@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *does it make secure, until the rise of dawn.* — **Al-Qadr (97:5)**
+> 📖 *Woe, then, unto those praying ones* — **Al-Maa'un (107:4)**
 <!-- quran-verse-end -->
 
 ---
