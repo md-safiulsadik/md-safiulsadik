@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and made me blessed wherever I may be; and He has enjoined upon me prayer and charity as long as I live,* — **Maryam (19:31)**
+> 📖 *Behold, those who are bent on denying the truth and on evildoing - God will indeed not forgive them, nor will He guide them onto any road* — **An-Nisaa (4:168)**
 <!-- quran-verse-end -->
 
 ---
