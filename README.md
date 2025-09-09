@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, on that Day their excuse will be of no avail to those who were bent on evildoing, nor will they be allowed to make amends.* — **Ar-Room (30:57)**
+> 📖 *Say: "He is the Most Gracious: we have attained to faith in Him, and in Him have we placed our trust; and in time you will come to know which of us was lost in manifest error."* — **Al-Mulk (67:29)**
 <!-- quran-verse-end -->
 
 ---
