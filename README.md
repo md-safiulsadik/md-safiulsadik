@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [remember the time] when We saved you from Pharaoh's people, who afflicted you with cruel suffering, slaughtering your sons and sparing [only] your women - which was an awesome trial from your Sustainer;* — **Al-Baqara (2:49)**
+> 📖 *until you go down to your graves.* — **At-Takaathur (102:2)**
 <!-- quran-verse-end -->
 
 ---
