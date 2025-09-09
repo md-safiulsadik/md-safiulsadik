@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But leave them alone, lost in their ignorance, until a [future] time.* — **Al-Muminoon (23:54)**
+> 📖 *No weariness shall ever touch them in this [state of bliss], and never shall they have to forgo it.* — **Al-Hijr (15:48)**
 <!-- quran-verse-end -->
 
 ---
