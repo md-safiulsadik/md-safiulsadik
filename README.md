@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND IT IS not conceivable that a prophet should deceive - since he who deceives shall be faced with his deceit on the Day of Resurrection, when every human being shall be repaid in full for whatever he has done, and none shall be wronged.* — **Aal-i-Imraan (3:161)**
+> 📖 *And spend on others out of what We have provided for you as sustenance, ere there come a time when death approaches any of you, and he then says, "O my Sustainer! If only Thou wouldst grant me a delay for a short while, so that I could give in charity and be among the righteous!"* — **Al-Munaafiqoon (63:10)**
 <!-- quran-verse-end -->
 
 ---
