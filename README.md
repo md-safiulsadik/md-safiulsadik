@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [of] Him who witnesses [all], and [of] that unto which witness is borne [by Him]!* — **Al-Burooj (85:3)**
+> 📖 *in endless columns!* — **Al-Humaza (104:9)**
 <!-- quran-verse-end -->
 
 ---
