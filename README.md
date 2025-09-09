@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But unto him who shall have stood in fear of his Sustainer's Presence, and held back his inner self from base desires,* — **An-Naazi'aat (79:40)**
+> 📖 *And so, on that Day their excuse will be of no avail to those who were bent on evildoing, nor will they be allowed to make amends.* — **Ar-Room (30:57)**
 <!-- quran-verse-end -->
 
 ---
