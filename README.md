@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, do not covet the bounties which God has bestowed more abundantly on some of you than on others. Men shall have a benefit from what they earn, and women shall have a benefit from what they earn. Ask, therefore, God [to give you] out of His bounty: behold, God has indeed full knowledge of everything.* — **An-Nisaa (4:32)**
+> 📖 *AND IT IS not conceivable that a prophet should deceive - since he who deceives shall be faced with his deceit on the Day of Resurrection, when every human being shall be repaid in full for whatever he has done, and none shall be wronged.* — **Aal-i-Imraan (3:161)**
 <!-- quran-verse-end -->
 
 ---
