@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *that [bounty] whereof God gives the glad tiding to such of His servants as attain to faith and do righteous deeds. Say [O Prophet]: “No reward do I ask of you for this [message] other than [that you should] love your fellow-men.” For, if anyone gains [the merit of] a good deed, We shall grant him through it an increase of good: and, verily, God is much-forgiving, ever responsive to gratitude.* — **Ash-Shura (42:23)**
+> 📖 *But if they are resolved on divorce -behold, God is all-hearing, all-knowing.* — **Al-Baqara (2:227)**
 <!-- quran-verse-end -->
 
 ---
