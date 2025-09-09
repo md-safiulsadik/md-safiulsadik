@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But if they are resolved on divorce -behold, God is all-hearing, all-knowing.* — **Al-Baqara (2:227)**
+> 📖 *But unto him who shall have stood in fear of his Sustainer's Presence, and held back his inner self from base desires,* — **An-Naazi'aat (79:40)**
 <!-- quran-verse-end -->
 
 ---
