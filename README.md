@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND CALL to mind Our servants Abraham and Isaac and Jacob, [all of them] endowed with inner strength and vision:* — **Saad (38:45)**
+> 📖 *Say: “God’s alone is [the power to bestow the right of] intercession: His [alone] is the dominion over the heavens and the earth; and, in the end, Unto Him you will all be brought back.”* — **Az-Zumar (39:44)**
 <!-- quran-verse-end -->
 
 ---
