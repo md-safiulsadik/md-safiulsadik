@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *this, verily, shall be Our provision [for you], with no end to it!* — **Saad (38:54)**
+> 📖 *But leave them alone, lost in their ignorance, until a [future] time.* — **Al-Muminoon (23:54)**
 <!-- quran-verse-end -->
 
 ---
