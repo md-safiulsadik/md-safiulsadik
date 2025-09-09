@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *No weariness shall ever touch them in this [state of bliss], and never shall they have to forgo it.* — **Al-Hijr (15:48)**
+> 📖 *and [of] Him who witnesses [all], and [of] that unto which witness is borne [by Him]!* — **Al-Burooj (85:3)**
 <!-- quran-verse-end -->
 
 ---
