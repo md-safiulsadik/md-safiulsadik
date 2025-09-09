@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *until you go down to your graves.* — **At-Takaathur (102:2)**
+> 📖 *Unto God you all must return: and He has the power to will anything."* — **Hud (11:4)**
 <!-- quran-verse-end -->
 
 ---
