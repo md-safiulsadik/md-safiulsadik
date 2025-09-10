@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, it is this [kind of man] that thrusts the orphan away,* — **Al-Maa'un (107:2)**
+> 📖 *But nay, nay, [O men, consider all that you do and fail to do:] you are not generous towards the orphan,* — **Al-Fajr (89:17)**
 <!-- quran-verse-end -->
 
 ---
