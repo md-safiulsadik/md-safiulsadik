@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And God] said: “This, then, is the truth! And this truth do I state:* — **Saad (38:84)**
+> 📖 *Thus have We destroyed many a [sinful] community living round about you; and yet, [before destroying them,] We had given many facets to [Our warning] messages, so that they might turn back [from their evil ways].* — **Al-Ahqaf (46:27)**
 <!-- quran-verse-end -->
 
 ---
