@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
+> 📖 *[For, thou art the bearer of a divine writ] such as We have bestowed from on high upon those who [afterwards] broke it up into parts,* — **Al-Hijr (15:90)**
 <!-- quran-verse-end -->
 
 ---
