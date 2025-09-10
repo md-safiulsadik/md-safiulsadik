@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And on that Day hell will be brought [within sight]; on that Day man will remember [all that he did and failed to do]: but what will that remembrance avail him?* — **Al-Fajr (89:23)**
+> 📖 *Behold, it is this [kind of man] that thrusts the orphan away,* — **Al-Maa'un (107:2)**
 <!-- quran-verse-end -->
 
 ---
