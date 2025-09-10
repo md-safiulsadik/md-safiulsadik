@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whenever he believes himself to be self-sufficient:* — **Al-Alaq (96:7)**
+> 📖 *AND [likewise], indeed, We sent unto [the tribe of] Thamud their brother Salih [with this message]: “Worship God alone!” and, behold, they were [split into] two factions contending with one another.* — **An-Naml (27:45)**
 <!-- quran-verse-end -->
 
 ---
