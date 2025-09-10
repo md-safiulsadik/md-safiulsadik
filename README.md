@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, indeed, We destroyed before your time [whole] generations when they [persistently] did evil although the apostles sent unto them brought them all evidence of the truth; for they refused to believe [them]. Thus do We requite people who are lost in sin.* — **Yunus (10:13)**
+> 📖 *whenever he believes himself to be self-sufficient:* — **Al-Alaq (96:7)**
 <!-- quran-verse-end -->
 
 ---
