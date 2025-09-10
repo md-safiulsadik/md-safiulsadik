@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so much so that they came to think, as you [once] thought, that God would never [again] send forth anyone [as His apostle].* — **Al-Jinn (72:7)**
+> 📖 *And what could make thee conceive what that crushing torment will be?* — **Al-Humaza (104:5)**
 <!-- quran-verse-end -->
 
 ---
