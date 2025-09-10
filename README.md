@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [thus, too, did We save] Lot, when he said unto his people: “Would you commit this abomination with your eyes open (to its being against all nature)?* — **An-Naml (27:54)**
+> 📖 *And on that Day hell will be brought [within sight]; on that Day man will remember [all that he did and failed to do]: but what will that remembrance avail him?* — **Al-Fajr (89:23)**
 <!-- quran-verse-end -->
 
 ---
