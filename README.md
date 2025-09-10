@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thus they had to taste the evil outcome of their own doing: for, [in this world,] the end of their doings was ruin,* — **At-Talaaq (65:9)**
+> 📖 *Did He not utterly confound their artful planning?* — **Al-Fil (105:2)**
 <!-- quran-verse-end -->
 
 ---
