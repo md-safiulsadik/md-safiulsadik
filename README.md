@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and in time she conceived him, and then she withdrew with him to a far-off place.* — **Maryam (19:22)**
+> 📖 *AND [thus, too, did We save] Lot, when he said unto his people: “Would you commit this abomination with your eyes open (to its being against all nature)?* — **An-Naml (27:54)**
 <!-- quran-verse-end -->
 
 ---
