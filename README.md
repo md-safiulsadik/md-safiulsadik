@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *OH, the sudden calamity!* — **Al-Qaari'a (101:1)**
+> 📖 *[And God] said: “This, then, is the truth! And this truth do I state:* — **Saad (38:84)**
 <!-- quran-verse-end -->
 
 ---
