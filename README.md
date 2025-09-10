@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[For, thou art the bearer of a divine writ] such as We have bestowed from on high upon those who [afterwards] broke it up into parts,* — **Al-Hijr (15:90)**
+> 📖 *HAST THOU ever considered [the kind of man] who gives the lie to all moral law?* — **Al-Maa'un (107:1)**
 <!-- quran-verse-end -->
 
 ---
