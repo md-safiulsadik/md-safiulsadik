@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *in endless columns!* — **Al-Humaza (104:9)**
+> 📖 *And, indeed, We destroyed before your time [whole] generations when they [persistently] did evil although the apostles sent unto them brought them all evidence of the truth; for they refused to believe [them]. Thus do We requite people who are lost in sin.* — **Yunus (10:13)**
 <!-- quran-verse-end -->
 
 ---
