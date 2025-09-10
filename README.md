@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But nay, nay, [O men, consider all that you do and fail to do:] you are not generous towards the orphan,* — **Al-Fajr (89:17)**
+> 📖 *[for] thus do We deal with such as are lost in sin.* — **Al-Mursalaat (77:18)**
 <!-- quran-verse-end -->
 
 ---
