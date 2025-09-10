@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[for] thus do We deal with such as are lost in sin.* — **Al-Mursalaat (77:18)**
+> 📖 *so much so that they came to think, as you [once] thought, that God would never [again] send forth anyone [as His apostle].* — **Al-Jinn (72:7)**
 <!-- quran-verse-end -->
 
 ---
