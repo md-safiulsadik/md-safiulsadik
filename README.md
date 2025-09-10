@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [likewise], indeed, We sent unto [the tribe of] Thamud their brother Salih [with this message]: “Worship God alone!” and, behold, they were [split into] two factions contending with one another.* — **An-Naml (27:45)**
+> 📖 *A DIVINE WRIT has been bestowed from on high upon thee -and let there be no doubt about this in thy heart-in order that thou mayest warn [the erring] thereby, and [thus] admonish the believers:* — **Al-A'raaf (7:2)**
 <!-- quran-verse-end -->
 
 ---
