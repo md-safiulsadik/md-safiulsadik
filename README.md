@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Did He not utterly confound their artful planning?* — **Al-Fil (105:2)**
+> 📖 *and in time she conceived him, and then she withdrew with him to a far-off place.* — **Maryam (19:22)**
 <!-- quran-verse-end -->
 
 ---
