@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *with its fruits within easy reach.* — **Al-Haaqqa (69:23)**
+> 📖 *and food that chokes, and grievous suffering* — **Al-Muzzammil (73:13)**
 <!-- quran-verse-end -->
 
 ---
