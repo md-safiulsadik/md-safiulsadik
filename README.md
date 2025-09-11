@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, this is indeed the truth of truths!* — **Al-Waaqia (56:95)**
+> 📖 *And they will cry: “O thou [angel] who rulest [over hell]! Let thy Sustainer put an end to us!” - whereupon] he will reply: “Verily, you must live on [in this state]* — **Az-Zukhruf (43:77)**
 <!-- quran-verse-end -->
 
 ---
