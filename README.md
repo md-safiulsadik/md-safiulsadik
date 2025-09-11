@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, indeed, We made this Qur’an easy to bear in mind: who, then, is willing to take it to heart?* — **Al-Qamar (54:17)**
+> 📖 *and the sky will be rent asunder - for, frail will it have become on that Day -;* — **Al-Haaqqa (69:16)**
 <!-- quran-verse-end -->
 
 ---
