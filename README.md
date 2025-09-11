@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And once again: Nay, in time you will come to understand!* — **At-Takaathur (102:4)**
+> 📖 *"the Sovereign of men,* — **An-Naas (114:2)**
 <!-- quran-verse-end -->
 
 ---
