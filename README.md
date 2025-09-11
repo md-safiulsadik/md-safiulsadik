@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and is no idle tale.* — **At-Taariq (86:14)**
+> 📖 *with its fruits within easy reach.* — **Al-Haaqqa (69:23)**
 <!-- quran-verse-end -->
 
 ---
