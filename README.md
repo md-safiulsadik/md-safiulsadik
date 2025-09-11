@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [thus] shall We make easy for thee the path towards [ultimate] ease.* — **Al-A'laa (87:8)**
+> 📖 *Thus it was. And [then] We made another people heirs [to what they had left],* — **Ad-Dukhaan (44:28)**
 <!-- quran-verse-end -->
 
 ---
