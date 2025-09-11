@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"the Sovereign of men,* — **An-Naas (114:2)**
+> 📖 *But does he not know that [on the Last Day,] when all that is in the graves is raised and brought out,* — **Al-Aadiyaat (100:9)**
 <!-- quran-verse-end -->
 
 ---
