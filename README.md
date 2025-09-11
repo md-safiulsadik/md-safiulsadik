@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And they will cry: “O thou [angel] who rulest [over hell]! Let thy Sustainer put an end to us!” - whereupon] he will reply: “Verily, you must live on [in this state]* — **Az-Zukhruf (43:77)**
+> 📖 *and [thus] shall We make easy for thee the path towards [ultimate] ease.* — **Al-A'laa (87:8)**
 <!-- quran-verse-end -->
 
 ---
