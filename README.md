@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither did we feed the needy;* — **Al-Muddaththir (74:44)**
+> 📖 *and is no idle tale.* — **At-Taariq (86:14)**
 <!-- quran-verse-end -->
 
 ---
