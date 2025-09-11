@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But does he not know that [on the Last Day,] when all that is in the graves is raised and brought out,* — **Al-Aadiyaat (100:9)**
+> 📖 *Consider this Qur’an full of wisdom:* — **Yaseen (36:2)**
 <!-- quran-verse-end -->
 
 ---
