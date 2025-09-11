@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the sky will be rent asunder - for, frail will it have become on that Day -;* — **Al-Haaqqa (69:16)**
+> 📖 *In the end you will indeed, most surely, behold it with the eye of certainty:* — **At-Takaathur (102:7)**
 <!-- quran-verse-end -->
 
 ---
