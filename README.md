@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[for] no human being has ever been left unguarded.* — **At-Taariq (86:4)**
+> 📖 *And if indeed you are slain or die in God's cause, then surely forgiveness from God and His grace are better than all that one could amass [in this world]:* — **Aal-i-Imraan (3:157)**
 <!-- quran-verse-end -->
 
 ---
