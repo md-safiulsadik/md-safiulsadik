@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And if indeed you are slain or die in God's cause, then surely forgiveness from God and His grace are better than all that one could amass [in this world]:* — **Aal-i-Imraan (3:157)**
+> 📖 *secure in their winter and summer journeys,* — **Quraish (106:2)**
 <!-- quran-verse-end -->
 
 ---
