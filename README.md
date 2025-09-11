@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and float [through space] with floating serene,* — **An-Naazi'aat (79:3)**
+> 📖 *Verily, this is indeed the truth of truths!* — **Al-Waaqia (56:95)**
 <!-- quran-verse-end -->
 
 ---
