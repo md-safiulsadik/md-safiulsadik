@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus it was. And [then] We made another people heirs [to what they had left],* — **Ad-Dukhaan (44:28)**
+> 📖 *Yet [it does happen that] when people become aware of [an occasion for] worldly gain or a passing delight, they rush headlong towards it, and leave thee standing [and preaching]. Say: "That which is with God is far better than all passing delight and all gain! And God is the best of providers!"* — **Al-Jumu'a (62:11)**
 <!-- quran-verse-end -->
 
 ---
