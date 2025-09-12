@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas by day a long chain of doings is thy portion.* — **Al-Muzzammil (73:7)**
+> 📖 *And, O my people, who would shield me from God were I to repulse them? Will you not, then, keep this in mind?* — **Hud (11:30)**
 <!-- quran-verse-end -->
 
 ---
