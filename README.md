@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BUT AS FOR those who have persevered in evil - what of those who have persevered in evil?* — **Al-Waaqia (56:41)**
+> 📖 *for, behold, If Thou dost leave them, they will [always try to] lead astray those who worship Thee, and will give birth to nothing but wickedness and stubborn ingratitude.* — **Nooh (71:27)**
 <!-- quran-verse-end -->
 
 ---
