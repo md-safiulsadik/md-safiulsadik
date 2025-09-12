@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It does not behove the people of the [Prophet's] City and the bedouin [who live] around them to hold back from following God's Apostle, or to care for their own selves more than for him -for, whenever they suffer from thirst or weariness or hunger in God's cause, and whenever they take any step which confounds those who deny the truth, and whenever there comes to them from the enemy whatever may be destined for them -[whenever anything thereof comes to pass,,] a good deed is recorded in their favour. Verily, God does not fail to requite the doers of good!* — **At-Tawba (9:120)**
+> 📖 *Say: “Go all over the earth, and behold what happened in the end to those [sinners] who lived before [you]: most of them were wont to ascribe divine qualities to things or beings other than God.”* — **Ar-Room (30:42)**
 <!-- quran-verse-end -->
 
 ---
