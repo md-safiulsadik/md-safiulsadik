@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, If Thou dost leave them, they will [always try to] lead astray those who worship Thee, and will give birth to nothing but wickedness and stubborn ingratitude.* — **Nooh (71:27)**
+> 📖 *But he who brings the truth, and he who wholeheartedly accepts it as true - it is they, they, who are [truly] conscious of Him!* — **Az-Zumar (39:33)**
 <!-- quran-verse-end -->
 
 ---
