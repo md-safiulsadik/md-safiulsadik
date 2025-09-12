@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But he who brings the truth, and he who wholeheartedly accepts it as true - it is they, they, who are [truly] conscious of Him!* — **Az-Zumar (39:33)**
+> 📖 *AND IF any of you die and leave wives behind, they bequeath thereby to their widows [the right to] one year's maintenance without their being obliged to leave [the dead husband's home]. If, however, they leave [of their own accord], there shall be no sin in whatever they may do with themselves in a lawful manner. And God is almighty, wise.* — **Al-Baqara (2:240)**
 <!-- quran-verse-end -->
 
 ---
