@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and from the evil of the black darkness whenever it descends,* — **Al-Falaq (113:3)**
+> 📖 *Can such, then, expect anything else [to befall them] but the like of the days of [calamity which befell] those [deniers of the truth] who passed away before them? Say: "Wait, then, [for what will happen) verily, I shall wait with you!"* — **Yunus (10:102)**
 <!-- quran-verse-end -->
 
 ---
