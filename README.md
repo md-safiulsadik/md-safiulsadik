@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And having [thus] sinned against himself, he entered his garden, saying, "I do not think that this will ever perish!* — **Al-Kahf (18:35)**
+> 📖 *BEAR THEN with patience thy Sustainer's will and be not like him of the great fish, who cried out [in distress] after having given in to anger.* — **Al-Qalam (68:48)**
 <!-- quran-verse-end -->
 
 ---
