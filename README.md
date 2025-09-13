@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *LET MAN, then, observe out of what he has been created:* — **At-Taariq (86:5)**
+> 📖 *and thereafter We reduce him to the lowest of low* — **At-Tin (95:5)**
 <!-- quran-verse-end -->
 
 ---
