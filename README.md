@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:55)**
+> 📖 *Said He: "Throw it down, O Moses!"* — **Taa-Haa (20:19)**
 <!-- quran-verse-end -->
 
 ---
