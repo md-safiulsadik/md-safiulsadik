@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and is no idle tale.* — **At-Taariq (86:14)**
+> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:55)**
 <!-- quran-verse-end -->
 
 ---
