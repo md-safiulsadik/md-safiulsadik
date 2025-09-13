@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Ha. Mim.* — **Az-Zukhruf (43:1)**
+> 📖 *Their requital shall be rejection by God, and by the angels, and by all [righteous] men.* — **Aal-i-Imraan (3:87)**
 <!-- quran-verse-end -->
 
 ---
