@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Their requital shall be rejection by God, and by the angels, and by all [righteous] men.* — **Aal-i-Imraan (3:87)**
+> 📖 *Said Moses: "Do you speak thus of the truth after it has been brought to you? Can this be sorcery? But sorcerers can never come to a happy end!"* — **Yunus (10:77)**
 <!-- quran-verse-end -->
 
 ---
