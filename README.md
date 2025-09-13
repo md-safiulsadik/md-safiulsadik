@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Hence,] O you who have attained to faith, pay heed unto God and His Apostle, and do not turn away from Him now that you hear [His message];* — **Al-Anfaal (8:20)**
+> 📖 *This, because God is the Protector of all who have attained to faith, whereas they who deny the truth have no protector.* — **Muhammad (47:11)**
 <!-- quran-verse-end -->
 
 ---
