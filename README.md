@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what it is, that Night of Destiny?* — **Al-Qadr (97:2)**
+> 📖 *"And as for those who are bent on denying the truth, I shall cause them to suffer a suffering severe in this world and in the life to come, and they shall have none to succour them;* — **Aal-i-Imraan (3:56)**
 <!-- quran-verse-end -->
 
 ---
