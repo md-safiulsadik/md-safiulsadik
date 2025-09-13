@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but as for him who came unto thee full of eagerness* — **Abasa (80:8)**
+> 📖 *and is no idle tale.* — **At-Taariq (86:14)**
 <!-- quran-verse-end -->
 
 ---
