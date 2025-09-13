@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said Moses: "Do you speak thus of the truth after it has been brought to you? Can this be sorcery? But sorcerers can never come to a happy end!"* — **Yunus (10:77)**
+> 📖 *LET MAN, then, observe out of what he has been created:* — **At-Taariq (86:5)**
 <!-- quran-verse-end -->
 
 ---
