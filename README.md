@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for him who is bent on denying the truth - let not his denial grieve thee: unto Us they must return, and then We shall make them [truly] understand all that they were doing [in life]: for, verily, God has full knowledge of what is in the hearts [of men].* — **Luqman (31:23)**
+> 📖 *Do you, perchance, fear lest [you may be sinning if] you cannot offer up anything in charity on the occasion of your consultation [with the Apostle]? But if you fail to do it [for lack of opportunity], and God turns unto you in His mercy, remain but con­stant in prayer and render [no more than] the purify­ing dues, and [thus] pay heed unto God and His Apostle: for God is fully aware of all that you do.* — **Al-Mujaadila (58:13)**
 <!-- quran-verse-end -->
 
 ---
