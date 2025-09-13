@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And We send down water from the skies in accordance with a measure [set by Us], and then We cause it to lodge in the earth: but, behold, We are most certainly able to withdraw this [blessing]!* — **Al-Muminoon (23:18)**
+> 📖 *but as for him who came unto thee full of eagerness* — **Abasa (80:8)**
 <!-- quran-verse-end -->
 
 ---
