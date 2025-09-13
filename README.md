@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHEN GOD'S SUCCOUR comes, and victory,* — **An-Nasr (110:1)**
+> 📖 *and none can bind with bonds like His.* — **Al-Fajr (89:26)**
 <!-- quran-verse-end -->
 
 ---
