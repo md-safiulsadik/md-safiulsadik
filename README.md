@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"And as for those who are bent on denying the truth, I shall cause them to suffer a suffering severe in this world and in the life to come, and they shall have none to succour them;* — **Aal-i-Imraan (3:56)**
+> 📖 *On that Day shall the hypocrites, both men and women, speak [thus] unto those who have attained to faith: “Wait for us! Let us have a [ray of] light from your light!” [But] they will be told: “Turn back, and seek a light [of your own]!” And thereupon a wall will be raised between them [and the believers], with a gate in it: within it will be grace and mercy, and against the outside thereof, suffering.* — **Al-Hadid (57:13)**
 <!-- quran-verse-end -->
 
 ---
