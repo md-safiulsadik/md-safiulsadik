@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereafter We reduce him to the lowest of low* — **At-Tin (95:5)**
+> 📖 *And We send down water from the skies in accordance with a measure [set by Us], and then We cause it to lodge in the earth: but, behold, We are most certainly able to withdraw this [blessing]!* — **Al-Muminoon (23:18)**
 <!-- quran-verse-end -->
 
 ---
