@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and none can bind with bonds like His.* — **Al-Fajr (89:26)**
+> 📖 *And withal, there has come unto them many a tiding that should have restrained [their arrogance]:* — **Al-Qamar (54:4)**
 <!-- quran-verse-end -->
 
 ---
