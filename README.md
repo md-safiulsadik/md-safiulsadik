@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *This, because God is the Protector of all who have attained to faith, whereas they who deny the truth have no protector.* — **Muhammad (47:11)**
+> 📖 *or is concerned with God-consciousness?* — **Al-Alaq (96:12)**
 <!-- quran-verse-end -->
 
 ---
