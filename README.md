@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But they who denied the truth spoke [thus] unto their apostles: "We shall most certainly expel you from our land, unless you return forthwith to our ways. Whereupon their Sustainer revealed this to His apostles: "Most certainly shall We destroy these evildoers,* — **Ibrahim (14:13)**
+> 📖 *Lord of the Day of Judgment!* — **Al-Faatiha (1:4)**
 <!-- quran-verse-end -->
 
 ---
