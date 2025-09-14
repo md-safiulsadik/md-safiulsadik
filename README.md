@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Limitless, then, in His glory is He in whose hand rests the mighty dominion over all things; and unto Him you all will be brought back!* — **Yaseen (36:83)**
+> 📖 *But as for those who are bent on denying the truth and on giving the lie to Our messages - they are destined for the fire, therein to abide: and how vile a journey’s end!* — **At-Taghaabun (64:10)**
 <!-- quran-verse-end -->
 
 ---
