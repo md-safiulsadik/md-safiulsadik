@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *because Pharaoh had led his people astray and had not guided [them] aright.* — **Taa-Haa (20:79)**
+> 📖 *AND IN [the story of Pharaoh and] Moses, too, [We left the same message: for] when We sent him unto Pharaoh with [Our] manifest authority,* — **Adh-Dhaariyat (51:38)**
 <!-- quran-verse-end -->
 
 ---
