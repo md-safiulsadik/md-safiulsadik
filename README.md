@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for those who are bent on denying the truth and on giving the lie to Our messages - they are destined for the fire, therein to abide: and how vile a journey’s end!* — **At-Taghaabun (64:10)**
+> 📖 *because Pharaoh had led his people astray and had not guided [them] aright.* — **Taa-Haa (20:79)**
 <!-- quran-verse-end -->
 
 ---
