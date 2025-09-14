@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [yet,] when they are told, “Beware of [God’s insight into] all that lies open before you and all that is hidden from you, so that you might be graced with His mercy,” [most men choose to remain deaf;]* — **Yaseen (36:45)**
+> 📖 *Believe in that which I have [now] bestowed from on high, confirming the truth already in your possession, and be not foremost among those who deny its truth; and do not barter away My messages for a trifling gain; and of Me, of Me be conscious* — **Al-Baqara (2:41)**
 <!-- quran-verse-end -->
 
 ---
