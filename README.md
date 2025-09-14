@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He admits unto His grace everyone who wills [to be admitted]; but as for the evildoers - for them has He readied grievous suffering [in the life to come].* — **Al-Insaan (76:31)**
+> 📖 *And [warn all men that] when the trumpet-call [of resurrection] is sounded,* — **Al-Muddaththir (74:8)**
 <!-- quran-verse-end -->
 
 ---
