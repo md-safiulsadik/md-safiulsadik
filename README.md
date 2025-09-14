@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *or is concerned with God-consciousness?* — **Al-Alaq (96:12)**
+> 📖 *Limitless, then, in His glory is He in whose hand rests the mighty dominion over all things; and unto Him you all will be brought back!* — **Yaseen (36:83)**
 <!-- quran-verse-end -->
 
 ---
