@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the heavens, ever-revolving,* — **At-Taariq (86:11)**
+> 📖 *And it is He who has spread the earth wide and placed on it firm mountains and running waters, and created thereon two sexes of every [kind of] plant; [and it is He who] causes the night to cover the day. Verily, in all this there are messages indeed for people who think!* — **Ar-Ra'd (13:3)**
 <!-- quran-verse-end -->
 
 ---
