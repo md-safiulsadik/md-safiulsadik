@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for they were [willing to be] guided towards the best of all tenets, and so they were guided onto the way that leads to the One unto whom all praise is due.* — **Al-Hajj (22:24)**
+> 📖 *But they who denied the truth spoke [thus] unto their apostles: "We shall most certainly expel you from our land, unless you return forthwith to our ways. Whereupon their Sustainer revealed this to His apostles: "Most certainly shall We destroy these evildoers,* — **Ibrahim (14:13)**
 <!-- quran-verse-end -->
 
 ---
