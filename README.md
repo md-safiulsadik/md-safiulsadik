@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Believe in that which I have [now] bestowed from on high, confirming the truth already in your possession, and be not foremost among those who deny its truth; and do not barter away My messages for a trifling gain; and of Me, of Me be conscious* — **Al-Baqara (2:41)**
+> 📖 *whereas he whose weight is light in the balance* — **Al-Qaari'a (101:8)**
 <!-- quran-verse-end -->
 
 ---
