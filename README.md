@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Not so, however, those who consciously turn towards God in prayer.* — **Al-Ma'aarij (70:22)**
+> 📖 *Consider the human self, and how it is formed in accordance with what it is meant to be,* — **Ash-Shams (91:7)**
 <!-- quran-verse-end -->
 
 ---
