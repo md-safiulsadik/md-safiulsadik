@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, verily, those who have attained to faith [in this divine writ], as well as those who follow the Jewish faith, and the Sabians, and the Christians - all who believe in God and the Last Day and do righteous deeds - no fear need they have, and neither shall they grieve.* — **Al-Maaida (5:69)**
+> 📖 *Not so, however, those who consciously turn towards God in prayer.* — **Al-Ma'aarij (70:22)**
 <!-- quran-verse-end -->
 
 ---
