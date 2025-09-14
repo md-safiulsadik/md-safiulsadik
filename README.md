@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [warn all men that] when the trumpet-call [of resurrection] is sounded,* — **Al-Muddaththir (74:8)**
+> 📖 *Consider the heavens, ever-revolving,* — **At-Taariq (86:11)**
 <!-- quran-verse-end -->
 
 ---
