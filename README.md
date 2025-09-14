@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
+> 📖 *Verily, We have shown him the way: [and it rests with him to prove himself] either grateful or ungrateful.* — **Al-Insaan (76:3)**
 <!-- quran-verse-end -->
 
 ---
