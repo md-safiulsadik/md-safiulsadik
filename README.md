@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the human self, and how it is formed in accordance with what it is meant to be,* — **Ash-Shams (91:7)**
+> 📖 *CONSIDER the heavens and that which comes in the night!* — **At-Taariq (86:1)**
 <!-- quran-verse-end -->
 
 ---
