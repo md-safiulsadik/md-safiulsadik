@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And it is He who has spread the earth wide and placed on it firm mountains and running waters, and created thereon two sexes of every [kind of] plant; [and it is He who] causes the night to cover the day. Verily, in all this there are messages indeed for people who think!* — **Ar-Ra'd (13:3)**
+> 📖 *for, verily, those who have attained to faith [in this divine writ], as well as those who follow the Jewish faith, and the Sabians, and the Christians - all who believe in God and the Last Day and do righteous deeds - no fear need they have, and neither shall they grieve.* — **Al-Maaida (5:69)**
 <!-- quran-verse-end -->
 
 ---
