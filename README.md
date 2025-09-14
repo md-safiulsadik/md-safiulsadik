@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, We have shown him the way: [and it rests with him to prove himself] either grateful or ungrateful.* — **Al-Insaan (76:3)**
+> 📖 *He admits unto His grace everyone who wills [to be admitted]; but as for the evildoers - for them has He readied grievous suffering [in the life to come].* — **Al-Insaan (76:31)**
 <!-- quran-verse-end -->
 
 ---
