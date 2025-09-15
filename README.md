@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and that it is He alone who frees from want and causes to possess;* — **An-Najm (53:48)**
+> 📖 *[Remember the time] when you fled, paying no heed to anyone, while at your rear the Apostle was calling out to you - wherefore He requited you with woe in return for [the Apostle's] woe, so that you should not grieve [merely] over what had escaped you, nor over what had befallen you: for God is aware of all that you do.* — **Aal-i-Imraan (3:153)**
 <!-- quran-verse-end -->
 
 ---
