@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which will rise over the [guilty] hearts:* — **Al-Humaza (104:7)**
+> 📖 *[but] these can never inflict more than a passing hurt on you; and if they fight against you, they will turn their backs upon you [in flight], and will not be succoured.* — **Aal-i-Imraan (3:111)**
 <!-- quran-verse-end -->
 
 ---
