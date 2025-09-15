@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *they are unable to succour their devotees, even though to them they may [appear to] be hosts drawn up [for succour].* — **Yaseen (36:75)**
+> 📖 *in a lofty paradise,* — **Al-Haaqqa (69:22)**
 <!-- quran-verse-end -->
 
 ---
