@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:40)**
+> 📖 *and unto God belongs all that is in the heavens and all that is on earth. AND, INDEED, We have enjoined upon those who were granted revelation before your time, as well as upon yourselves, to remain conscious of God. And if you deny Him - behold, unto God belongs all that is in the heavens and all that is on earth, and God is indeed self-sufficient, ever to be praised.* — **An-Nisaa (4:131)**
 <!-- quran-verse-end -->
 
 ---
