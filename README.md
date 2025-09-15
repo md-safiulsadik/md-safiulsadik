@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *as though they were terrified asses* — **Al-Muddaththir (74:50)**
+> 📖 *which will rise over the [guilty] hearts:* — **Al-Humaza (104:7)**
 <!-- quran-verse-end -->
 
 ---
