@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[resting on couches, they will look up [to God]:* — **Al-Mutaffifin (83:23)**
+> 📖 *they are unable to succour their devotees, even though to them they may [appear to] be hosts drawn up [for succour].* — **Yaseen (36:75)**
 <!-- quran-verse-end -->
 
 ---
