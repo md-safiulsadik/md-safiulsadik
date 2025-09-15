@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the mountains are scattered like dust,* — **Al-Mursalaat (77:10)**
+> 📖 *and that it is He alone who frees from want and causes to possess;* — **An-Najm (53:48)**
 <!-- quran-verse-end -->
 
 ---
