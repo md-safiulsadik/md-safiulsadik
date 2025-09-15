@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "Shall we tell you who are the greatest losers in whatever they may do?* — **Al-Kahf (18:103)**
+> 📖 *Hence, let not anyone who does not believe in its coming and follows [but] his own desires divert thee from [belief in] it, lest thou perish!* — **Taa-Haa (20:16)**
 <!-- quran-verse-end -->
 
 ---
