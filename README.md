@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Remember the time] when you fled, paying no heed to anyone, while at your rear the Apostle was calling out to you - wherefore He requited you with woe in return for [the Apostle's] woe, so that you should not grieve [merely] over what had escaped you, nor over what had befallen you: for God is aware of all that you do.* — **Aal-i-Imraan (3:153)**
+> 📖 *[resting on couches, they will look up [to God]:* — **Al-Mutaffifin (83:23)**
 <!-- quran-verse-end -->
 
 ---
