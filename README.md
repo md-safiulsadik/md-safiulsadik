@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which smote them with stone-hard blows of chastisement pre-ordained,* — **Al-Fil (105:4)**
+> 📖 *Say: "Shall we tell you who are the greatest losers in whatever they may do?* — **Al-Kahf (18:103)**
 <!-- quran-verse-end -->
 
 ---
