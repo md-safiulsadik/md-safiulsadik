@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware how God sets forth the parable of a good word? [It is] like a good tree, firmly rooted, [reaching out] with its branches towards the sky,* — **Ibrahim (14:24)**
+> 📖 *SAY [O Prophet]: "O mankind! If you are in doubt as to what my faith is, then [know that] I do not worship those beings whom you worship beside God, but [that] I worship God alone, who shall cause you [all] to die: for I have been bidden to be among those who believe [in Him alone]."* — **Yunus (10:104)**
 <!-- quran-verse-end -->
 
 ---
