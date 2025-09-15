@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[If so,] I will punish him most severely or will kill him unless he bring me a convincing excuse!”* — **An-Naml (27:21)**
+> 📖 *Even as We have sent unto you an apostle from among yourselves to convey unto you Our messages, and to cause you to grow in purity, and to impart unto you revelation and wisdom, and to teach you that which you knew not:* — **Al-Baqara (2:151)**
 <!-- quran-verse-end -->
 
 ---
