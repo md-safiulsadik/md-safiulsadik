@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *to abide therein in accordance with God’s true promise: for He alone is almighty, truly wise.* — **Luqman (31:9)**
+> 📖 *And We have created you in pairs;* — **An-Naba (78:8)**
 <!-- quran-verse-end -->
 
 ---
