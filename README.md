@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But when Our light-giving messages came unto them, they said, “This is clearly [but] spellbinding deception!”* — **An-Naml (27:13)**
+> 📖 *And follow [but] that which comes unto thee through revelation from thy Sustainer: for God is truly aware of all that you do, [O men].* — **Al-Ahzaab (33:2)**
 <!-- quran-verse-end -->
 
 ---
