@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, man is born with a restless disposition.* — **Al-Ma'aarij (70:19)**
+> 📖 *to abide therein in accordance with God’s true promise: for He alone is almighty, truly wise.* — **Luqman (31:9)**
 <!-- quran-verse-end -->
 
 ---
