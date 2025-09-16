@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Utterly remote, in His glory, is the Sustainer of the heavens and the earth - the Sustainer, in almigh­tiness enthroned from all that they may attribute to Him by way of definition!* — **Az-Zukhruf (43:82)**
+> 📖 *and who pray “O our Sustainer! Grant that our spouses and our offspring be a joy to our eyes, and cause us to be foremost among those who are conscious of Thee!”* — **Al-Furqaan (25:74)**
 <!-- quran-verse-end -->
 
 ---
