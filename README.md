@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But God will reply:] “Yea, indeed! My mes­sages did come unto thee; but thou gavest them the lie, and wert filled with false pride, and wert among those who deny the truth!”* — **Az-Zumar (39:59)**
+> 📖 *And what could make thee conceive what that crushing torment will be?* — **Al-Humaza (104:5)**
 <!-- quran-verse-end -->
 
 ---
