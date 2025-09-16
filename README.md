@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what that crushing torment will be?* — **Al-Humaza (104:5)**
+> 📖 *God deprives usurious gains of all blessing, whereas He blesses charitable deeds with manifold increase. And God does not love anyone who is stubbornly ingrate and persists in sinful ways.* — **Al-Baqara (2:276)**
 <!-- quran-verse-end -->
 
 ---
