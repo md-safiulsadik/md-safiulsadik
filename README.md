@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and at the same time they seemed to hear a scornful voice]: “Do not try to flee, but return to all that [once] gave you pleasure and corrupted your whole being. and [return] to your homes, so that you might be called to account [for what you have done]!”* — **Al-Anbiyaa (21:13)**
+> 📖 *but my call has only caused them to flee farther and farther away [from Thee].* — **Nooh (71:6)**
 <!-- quran-verse-end -->
 
 ---
