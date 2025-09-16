@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[All this will be] a reward from thy Sustainer, a gift in accordance with [His Own] reckoning –* — **An-Naba (78:36)**
+> 📖 *and a tongue, and a pair of lips,* — **Al-Balad (90:9)**
 <!-- quran-verse-end -->
 
 ---
