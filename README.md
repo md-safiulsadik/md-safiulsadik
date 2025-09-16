@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, let not anyone who does not believe in its coming and follows [but] his own desires divert thee from [belief in] it, lest thou perish!* — **Taa-Haa (20:16)**
+> 📖 *and food that chokes, and grievous suffering* — **Al-Muzzammil (73:13)**
 <!-- quran-verse-end -->
 
 ---
