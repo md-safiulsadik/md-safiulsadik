@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Remain con­scious of God, and believe in His Apostle, [and] He will grant you doubly of His grace, and will light for you a light wherein you shall walk, and will forgive you [your past sins]: for God is much-forgiving, a dispenser of grace.* — **Al-Hadid (57:28)**
+> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
 <!-- quran-verse-end -->
 
 ---
