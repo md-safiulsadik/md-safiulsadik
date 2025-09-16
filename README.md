@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
+> 📖 *And [thus], indeed, have We sent forth Moses with Our messages [and this Our command]: "Lead thy people out of the depths of darkness into the light, and remind them of the Days of God!" Verily, in this [reminder] there are messages indeed for all who are wholly patient in adversity and deeply grateful [to God].* — **Ibrahim (14:5)**
 <!-- quran-verse-end -->
 
 ---
