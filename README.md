@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and a tongue, and a pair of lips,* — **Al-Balad (90:9)**
+> 📖 *Utterly remote, in His glory, is the Sustainer of the heavens and the earth - the Sustainer, in almigh­tiness enthroned from all that they may attribute to Him by way of definition!* — **Az-Zukhruf (43:82)**
 <!-- quran-verse-end -->
 
 ---
