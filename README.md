@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And We have created you in pairs;* — **An-Naba (78:8)**
+> 📖 *But when Our light-giving messages came unto them, they said, “This is clearly [but] spellbinding deception!”* — **An-Naml (27:13)**
 <!-- quran-verse-end -->
 
 ---
