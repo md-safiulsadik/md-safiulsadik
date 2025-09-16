@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which smote them with stone-hard blows of chastisement pre-ordained,* — **Al-Fil (105:4)**
+> 📖 *VERILY, man is born with a restless disposition.* — **Al-Ma'aarij (70:19)**
 <!-- quran-verse-end -->
 
 ---
