@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but my call has only caused them to flee farther and farther away [from Thee].* — **Nooh (71:6)**
+> 📖 *Should I take to worship­ping [other] deities beside Him? [But then,] if the Most Gracious should will that harm befall me, their intercession could not in the least avail me, nor could they save me:* — **Yaseen (36:23)**
 <!-- quran-verse-end -->
 
 ---
