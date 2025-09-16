@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, it is neither your riches nor your children that can bring you nearer to Us: only he who attains to faith and does what is right and just [comes near unto Us]; and it is [such as] these whom multiple recompense awaits for all that they have done; and it is they who shall dwell secure in the mansions [of paradise] –* — **Saba (34:37)**
+> 📖 *[and at the same time they seemed to hear a scornful voice]: “Do not try to flee, but return to all that [once] gave you pleasure and corrupted your whole being. and [return] to your homes, so that you might be called to account [for what you have done]!”* — **Al-Anbiyaa (21:13)**
 <!-- quran-verse-end -->
 
 ---
