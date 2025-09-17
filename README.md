@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *of an orphan near of kin,* — **Al-Balad (90:15)**
+> 📖 *[and so,] whenever Our messages are conveyed to them, they but say, "Fables of ancient times!"* — **Al-Mutaffifin (83:13)**
 <!-- quran-verse-end -->
 
 ---
