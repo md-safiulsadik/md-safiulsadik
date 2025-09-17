@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *be, then, conscious of God, and pay heed unto me!* — **Ash-Shu'araa (26:144)**
+> 📖 *and then makes it easy for him to go through life;* — **Abasa (80:20)**
 <!-- quran-verse-end -->
 
 ---
