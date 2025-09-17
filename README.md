@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and endowed their hearts with strength, so that they stood up and said [to one another]: "Our Sustainer is the Sustainer of the heavens and the earth. Never shall we invoke any deity other than Him: [if we did,] we should indeed have uttered an enormity!* — **Al-Kahf (18:14)**
+> 📖 *However, as for him who turns away, being bent on denying the truth,* — **Al-Ghaashiya (88:23)**
 <!-- quran-verse-end -->
 
 ---
