@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who pray “O our Sustainer! Grant that our spouses and our offspring be a joy to our eyes, and cause us to be foremost among those who are conscious of Thee!”* — **Al-Furqaan (25:74)**
+> 📖 *CONSIDER the night as it veils [the earth] in darkness,* — **Al-Lail (92:1)**
 <!-- quran-verse-end -->
 
 ---
