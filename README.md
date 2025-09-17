@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And so they perished: and] how many gardens did they leave behind, and water-runnels,* — **Ad-Dukhaan (44:25)**
+> 📖 *and endowed their hearts with strength, so that they stood up and said [to one another]: "Our Sustainer is the Sustainer of the heavens and the earth. Never shall we invoke any deity other than Him: [if we did,] we should indeed have uttered an enormity!* — **Al-Kahf (18:14)**
 <!-- quran-verse-end -->
 
 ---
