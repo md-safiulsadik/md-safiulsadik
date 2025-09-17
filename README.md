@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *What will his wealth avail him, and all that he has gained?* — **Al-Masad (111:2)**
+> 📖 *of an orphan near of kin,* — **Al-Balad (90:15)**
 <!-- quran-verse-end -->
 
 ---
