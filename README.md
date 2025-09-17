@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and said, "I am your Lord All-Highest!"* — **An-Naazi'aat (79:24)**
+> 📖 *[And so they perished: and] how many gardens did they leave behind, and water-runnels,* — **Ad-Dukhaan (44:25)**
 <!-- quran-verse-end -->
 
 ---
