@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then makes it easy for him to go through life;* — **Abasa (80:20)**
+> 📖 *and so we desired that their Sustainer grant them in his stead [a child] of greater purity than him, and closer [to them] in loving tenderness.* — **Al-Kahf (18:81)**
 <!-- quran-verse-end -->
 
 ---
