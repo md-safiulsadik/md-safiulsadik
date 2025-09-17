@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and,] verily, the hours of night the mind most strongly and speak with the clearest voice,* — **Al-Muzzammil (73:6)**
+> 📖 *for, none gives the lie to it but such as are wont to transgress against all that is [and are] immersed in sin:* — **Al-Mutaffifin (83:12)**
 <!-- quran-verse-end -->
 
 ---
