@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *At the same time, the hypocrites and those in whose hearts was disease were saying, "Their faith has deluded these [believers]!" But he who places his trust in God [knows that], verily, God is almighty, wise.* — **Al-Anfaal (8:49)**
+> 📖 *He it is who has sent unto the unlettered people an apostle from among themselves, to convey unto them His messages, and to cause them to grow in purity, and to impart unto them the divine writ as well as wisdom - whereas before that they were indeed, most obviously, lost in error* — **Al-Jumu'a (62:2)**
 <!-- quran-verse-end -->
 
 ---
