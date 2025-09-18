@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and feels no urge to feed the needy.* — **Al-Maa'un (107:3)**
+> 📖 *Nay, but [in the life to come such as] he shall indeed be abandoned to crushing torment!* — **Al-Humaza (104:4)**
 <!-- quran-verse-end -->
 
 ---
