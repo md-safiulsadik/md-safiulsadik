@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but [in the life to come such as] he shall indeed be abandoned to crushing torment!* — **Al-Humaza (104:4)**
+> 📖 *asking [derisively], "When is that Resurrection Day to be?"* — **Al-Qiyaama (75:6)**
 <!-- quran-verse-end -->
 
 ---
