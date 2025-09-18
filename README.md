@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and this land secure!* — **At-Tin (95:3)**
+> 📖 *Are they, then, not aware that it is for them that We have created, among all the things which Our hands have wrought, the domestic animals of which they are [now] masters? –* — **Yaseen (36:71)**
 <!-- quran-verse-end -->
 
 ---
