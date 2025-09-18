@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And once again: Nay, in time you will come to understand!* — **At-Takaathur (102:4)**
+> 📖 *[And] they [who had been seduced] will exclaim: “Nay, but it is you! No welcome to you! It is you who have prepared this for us: and how vile a state to abide in!”* — **Saad (38:60)**
 <!-- quran-verse-end -->
 
 ---
