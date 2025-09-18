@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And when the son was born and grew up, he was told,] "O John! Hold fast unto the divine writ with [all thy] strength!" - for We granted him wisdom "while he was yet a little boy,* — **Maryam (19:12)**
+> 📖 *But nay, [O men,] you prefer the life of this world,* — **Al-A'laa (87:16)**
 <!-- quran-verse-end -->
 
 ---
