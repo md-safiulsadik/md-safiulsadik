@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *asking [derisively], "When is that Resurrection Day to be?"* — **Al-Qiyaama (75:6)**
+> 📖 *And once again: Nay, in time you will come to understand!* — **At-Takaathur (102:4)**
 <!-- quran-verse-end -->
 
 ---
