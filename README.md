@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He it is who has sent unto the unlettered people an apostle from among themselves, to convey unto them His messages, and to cause them to grow in purity, and to impart unto them the divine writ as well as wisdom - whereas before that they were indeed, most obviously, lost in error* — **Al-Jumu'a (62:2)**
+> 📖 *And [yet,] those who are bent on denying the truth do say, “We shall never believe in this Qur’an, and neither in whatever there still remains of earlier revelations!” But if thou couldst only see [how it will be on Judgment Day,] when these evildoers shall be made to stand before their Sustainer, hurling reproaches back and forth at one another! Those [of them] who had been weak [on earth] will say unto those who had gloried in their arrogance: “Had it not been for you, we would certainly have been believers!”* — **Saba (34:31)**
 <!-- quran-verse-end -->
 
 ---
