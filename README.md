@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *gardens of perpetual bliss, with gates wide-open to them,* — **Saad (38:50)**
+> 📖 *And [have We not] raised thee high in dignity?* — **Ash-Sharh (94:4)**
 <!-- quran-verse-end -->
 
 ---
