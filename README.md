@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Are they, then, not aware that it is for them that We have created, among all the things which Our hands have wrought, the domestic animals of which they are [now] masters? –* — **Yaseen (36:71)**
+> 📖 *and that it is He alone who causes [you] to laugh and to weep;* — **An-Najm (53:43)**
 <!-- quran-verse-end -->
 
 ---
