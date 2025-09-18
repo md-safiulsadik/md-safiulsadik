@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and that it is He alone who causes [you] to laugh and to weep;* — **An-Najm (53:43)**
+> 📖 *in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen* — **Al-Qadr (97:4)**
 <!-- quran-verse-end -->
 
 ---
