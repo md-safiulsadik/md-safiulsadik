@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But nay, [O men,] you prefer the life of this world,* — **Al-A'laa (87:16)**
+> 📖 *and this land secure!* — **At-Tin (95:3)**
 <!-- quran-verse-end -->
 
 ---
