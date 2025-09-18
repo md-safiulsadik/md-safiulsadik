@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and has set up within them the moon as a light [reflected] and set up the sun as a [radiant] lamp?* — **Nooh (71:16)**
+> 📖 *and feels no urge to feed the needy.* — **Al-Maa'un (107:3)**
 <!-- quran-verse-end -->
 
 ---
