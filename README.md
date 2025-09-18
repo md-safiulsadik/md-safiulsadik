@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and so we desired that their Sustainer grant them in his stead [a child] of greater purity than him, and closer [to them] in loving tenderness.* — **Al-Kahf (18:81)**
+> 📖 *At the same time, the hypocrites and those in whose hearts was disease were saying, "Their faith has deluded these [believers]!" But he who places his trust in God [knows that], verily, God is almighty, wise.* — **Al-Anfaal (8:49)**
 <!-- quran-verse-end -->
 
 ---
