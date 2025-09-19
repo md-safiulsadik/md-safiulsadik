@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for him whose record shall be given to him behind his back;* — **Al-Inshiqaaq (84:10)**
+> 📖 *AND HOW MANY a generation have We destroyed before those [who now deny the truth] people of greater might than theirs; but [when Our chastise­ment befell them,] they became wanderers on the face of the earth, seeking no more than a place of refuge* — **Qaaf (50:36)**
 <!-- quran-verse-end -->
 
 ---
