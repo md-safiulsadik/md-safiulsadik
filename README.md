@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [remember that] when We told the angels, "Prostrate yourselves before Adam," they all prostrated themselves, save Iblis: he [too] was one of those invisible beings, but then he turned away from his Sustainer's command. Will you, then, take him and his cohorts for (your], masters instead of Me, although they are your foe? How vile an exchange on the evildoers' part!* — **Al-Kahf (18:50)**
+> 📖 *But as for him whose record shall be given to him behind his back;* — **Al-Inshiqaaq (84:10)**
 <!-- quran-verse-end -->
 
 ---
