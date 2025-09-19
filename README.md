@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thereupon exclaimed he who had attained to faith: “O my people! Verily, I fear for you the like of what one day befell those others who were leagued together [against God’s truth] –* — **Ghafir (40:30)**
+> 📖 *He knows all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind -the Great One, the One far above anything that is or could ever be!* — **Ar-Ra'd (13:9)**
 <!-- quran-verse-end -->
 
 ---
