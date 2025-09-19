@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And they will be waited upon with vessels of silver and goblets that will [seem to] be crystal –* — **Al-Insaan (76:15)**
+> 📖 *If you have been praying for victory, [O believers] - victory has now indeed come unto you. And if you abstain [from sinning], it will be for your own good; but if you revert to it, We shall revoke [Our promise of aid] - and never will your community be of any avail to you, however great its numbers: for, behold, God is [only] with those who believe!* — **Al-Anfaal (8:19)**
 <!-- quran-verse-end -->
 
 ---
