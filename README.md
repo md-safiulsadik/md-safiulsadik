@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Do not put yourselves forward in the presence of [what] God and His Apostle [may have ordained], but remain conscious of God: for, verily, God is all-hearing, all-knowing!* — **Al-Hujuraat (49:1)**
+> 📖 *Said [the brothers]: "By God! Well do you know that we have not come to commit deeds of corruption in this land, and that we have not been thieving!"* — **Yusuf (12:73)**
 <!-- quran-verse-end -->
 
 ---
