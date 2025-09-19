@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and (as) there are in men, and in crawling beasts, and in cattle, too, many hues? Of all His servants, only such as are endowed with [innate] knowledge stand [truly] in awe of God: [for they alone comprehend that,] verily, God is almighty, much-forgiving.* — **Faatir (35:28)**
+> 📖 *And they will be waited upon with vessels of silver and goblets that will [seem to] be crystal –* — **Al-Insaan (76:15)**
 <!-- quran-verse-end -->
 
 ---
