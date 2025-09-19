@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *an apostle from God, conveying [unto them] revelations blest with purity,* — **Al-Bayyina (98:2)**
+> 📖 *and (as) there are in men, and in crawling beasts, and in cattle, too, many hues? Of all His servants, only such as are endowed with [innate] knowledge stand [truly] in awe of God: [for they alone comprehend that,] verily, God is almighty, much-forgiving.* — **Faatir (35:28)**
 <!-- quran-verse-end -->
 
 ---
