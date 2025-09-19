@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said [the brothers]: "By God! Well do you know that we have not come to commit deeds of corruption in this land, and that we have not been thieving!"* — **Yusuf (12:73)**
+> 📖 *together with his wife, that carrier of evil tales,* — **Al-Masad (111:4)**
 <!-- quran-verse-end -->
 
 ---
