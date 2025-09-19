@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *All this [happens] because God alone is the Ultimate Truth, and because He alone brings the dead to life, and because He has the power to will anything.* — **Al-Hajj (22:6)**
+> 📖 *AND [remember that] when We told the angels, "Prostrate yourselves before Adam," they all prostrated themselves, save Iblis: he [too] was one of those invisible beings, but then he turned away from his Sustainer's command. Will you, then, take him and his cohorts for (your], masters instead of Me, although they are your foe? How vile an exchange on the evildoers' part!* — **Al-Kahf (18:50)**
 <!-- quran-verse-end -->
 
 ---
