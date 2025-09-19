@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He knows all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind -the Great One, the One far above anything that is or could ever be!* — **Ar-Ra'd (13:9)**
+> 📖 *IT IS GOD who has made the night for you, so that you might rest therein, and the day, to make [you] see. Behold, God is indeed limitless in His bounty unto man - but most men are ungrateful.* — **Ghafir (40:61)**
 <!-- quran-verse-end -->
 
 ---
