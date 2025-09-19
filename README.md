@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *together with his wife, that carrier of evil tales,* — **Al-Masad (111:4)**
+> 📖 *like giant fiery ropes!* — **Al-Mursalaat (77:33)**
 <!-- quran-verse-end -->
 
 ---
