@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *IT IS GOD who has made the night for you, so that you might rest therein, and the day, to make [you] see. Behold, God is indeed limitless in His bounty unto man - but most men are ungrateful.* — **Ghafir (40:61)**
+> 📖 *Excepted, however, shall be they who repent and attain to faith and do righteous deeds: for it is they whose [erstwhile] bad deeds God will transform into good ones - seeing that God is indeed much-forgiving, a dispenser of grace,* — **Al-Furqaan (25:70)**
 <!-- quran-verse-end -->
 
 ---
