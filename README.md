@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *upon an imperishable tablet [inscribed].* — **Al-Burooj (85:22)**
+> 📖 *Thereupon exclaimed he who had attained to faith: “O my people! Verily, I fear for you the like of what one day befell those others who were leagued together [against God’s truth] –* — **Ghafir (40:30)**
 <!-- quran-verse-end -->
 
 ---
