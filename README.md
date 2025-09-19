@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THE BESTOWAL from on high of this divine writ I issues from God, the Almighty, the Wise.* — **Al-Ahqaf (46:2)**
+> 📖 *All this [happens] because God alone is the Ultimate Truth, and because He alone brings the dead to life, and because He has the power to will anything.* — **Al-Hajj (22:6)**
 <!-- quran-verse-end -->
 
 ---
