@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *like giant fiery ropes!* — **Al-Mursalaat (77:33)**
+> 📖 *Thy Sustainer has not forsaken thee, nor does He scorn thee:* — **Ad-Dhuhaa (93:3)**
 <!-- quran-verse-end -->
 
 ---
