@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But whenever Our messages are conveyed to them in all their clarity, they who are bent on denying the truth speak thus of the truth as soon as it is brought to them: “This is clearly nothing but spell­binding eloquence!”* — **Al-Ahqaf (46:7)**
+> 📖 *Not equal are those who are destined for the fire and those who are destined for paradise: those who are destined for paradise - it is they, they [alone] who shall triumph [on Judgment Day]!* — **Al-Hashr (59:20)**
 <!-- quran-verse-end -->
 
 ---
