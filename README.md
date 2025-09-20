@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In [each of] these two will two kinds of every fruit be [found].* — **Ar-Rahmaan (55:52)**
+> 📖 *I did not make them witnesses of the creation of the heavens and the earth, nor of the creation of their own selves; and neither do I [have any need to] take as My helpers those [beings] that lead [men] astray.* — **Al-Kahf (18:51)**
 <!-- quran-verse-end -->
 
 ---
