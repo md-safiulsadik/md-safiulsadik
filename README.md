@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, in time you will come to understand!* — **At-Takaathur (102:3)**
+> 📖 *But whenever Our messages are conveyed to them in all their clarity, they who are bent on denying the truth speak thus of the truth as soon as it is brought to them: “This is clearly nothing but spell­binding eloquence!”* — **Al-Ahqaf (46:7)**
 <!-- quran-verse-end -->
 
 ---
