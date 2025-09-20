@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thy Sustainer has not forsaken thee, nor does He scorn thee:* — **Ad-Dhuhaa (93:3)**
+> 📖 *Say: "Everyone is hopefully waiting [for what the future may bring]: wait, then, [for the Day of Judgment] for then you will come to know as to who has followed the even path, and who has found guidance!"* — **Taa-Haa (20:135)**
 <!-- quran-verse-end -->
 
 ---
