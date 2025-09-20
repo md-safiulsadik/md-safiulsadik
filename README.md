@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let them, therefore, worship the Sustainer of this Temple;* — **Quraish (106:3)**
+> 📖 *In [each of] these two will two kinds of every fruit be [found].* — **Ar-Rahmaan (55:52)**
 <!-- quran-verse-end -->
 
 ---
