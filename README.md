@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, in time you will come to understand!* — **At-Takaathur (102:3)**
+> 📖 *[He will resurrect them] to the end that He might make clear unto them all whereon they [now] hold divergent views, and that they who are bent on denying the truth [of resurrection] might come to know that they were liars.* — **An-Nahl (16:39)**
 <!-- quran-verse-end -->
 
 ---
