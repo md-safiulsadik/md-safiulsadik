@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And then, when they [clearly] beheld Our punishment, they said: “We have come to believe in the One God, and we have renounced all belief in that to which we were wont to ascribe a share in His divinity!”* — **Ghafir (40:84)**
+> 📖 *EXTOL the limitless glory of thy Sustainer's name: [the glory of] the Al-Highest,* — **Al-A'laa (87:1)**
 <!-- quran-verse-end -->
 
 ---
