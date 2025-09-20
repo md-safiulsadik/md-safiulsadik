@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "Everyone is hopefully waiting [for what the future may bring]: wait, then, [for the Day of Judgment] for then you will come to know as to who has followed the even path, and who has found guidance!"* — **Taa-Haa (20:135)**
+> 📖 *[And] he prayed: O my Sustainer! Verily, I have sinned against myself! Grant me, then, Thy forgiveness!” And He forgave him - for, verily, He alone is truly forgiving, a dispenser of grace.* — **Al-Qasas (28:16)**
 <!-- quran-verse-end -->
 
 ---
