@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who has taught [man] the use of the pen –* — **Al-Alaq (96:4)**
+> 📖 *issuing from between the loins [of man] and the pelvic arch [of woman].* — **At-Taariq (86:7)**
 <!-- quran-verse-end -->
 
 ---
