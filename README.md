@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *EXTOL the limitless glory of thy Sustainer's name: [the glory of] the Al-Highest,* — **Al-A'laa (87:1)**
+> 📖 *in mind will keep it he who stands in awe [of God],* — **Al-A'laa (87:10)**
 <!-- quran-verse-end -->
 
 ---
