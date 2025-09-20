@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"And I will not worship ~hat which you have [ever] worshipped,* — **Al-Kaafiroon (109:4)**
+> 📖 *[all] save such of them as are truly Thy servants!”* — **Saad (38:83)**
 <!-- quran-verse-end -->
 
 ---
