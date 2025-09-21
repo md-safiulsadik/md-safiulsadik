@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND NOW ask them to enlighten thee: Has thy Sustainer daughters, whereas they would have [only] sons?* — **As-Saaffaat (37:149)**
+> 📖 *[for, resting in paradise] on couches, they will look on [and say to themselves]:* — **Al-Mutaffifin (83:35)**
 <!-- quran-verse-end -->
 
 ---
