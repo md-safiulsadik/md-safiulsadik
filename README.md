@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *no headiness will be in it, and they will not get drunk thereon.* — **As-Saaffaat (37:47)**
+> 📖 *AND NOW ask them to enlighten thee: Has thy Sustainer daughters, whereas they would have [only] sons?* — **As-Saaffaat (37:149)**
 <!-- quran-verse-end -->
 
 ---
