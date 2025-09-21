@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and man cries out, "What has happened to her?" -* — **Az-Zalzala (99:3)**
+> 📖 *But nay, [O men,] you prefer the life of this world,* — **Al-A'laa (87:16)**
 <!-- quran-verse-end -->
 
 ---
