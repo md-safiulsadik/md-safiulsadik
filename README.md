@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But God's messengers replied:] "O Abraham! Desist from this [pleading]! Behold, thy Sustainer's judgment has already gone forth: and, verily, there shall fall upon them a chastisement which none can avert!"* — **Hud (11:76)**
+> 📖 *SAY: "[God is] He who has brought you [all] into being, and has endowed you with hearing, and sight, and hearts: [yet] how seldom are you grateful!"* — **Al-Mulk (67:23)**
 <!-- quran-verse-end -->
 
 ---
