@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *he prayed: “O my Sustainer! Forgive me my sins, and bestow upon me the gift of a kingdom which may not suit anyone after me: verily, Thou alone art a giver of gifts!”* — **Saad (38:35)**
+> 📖 *and when the earth is leveled,* — **Al-Inshiqaaq (84:3)**
 <!-- quran-verse-end -->
 
 ---
