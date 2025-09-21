@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *GOD'S JUDGMENT is [bound to] come: do not, therefore, call for its speedy advent! Limitless is He in His glory and sublimely exalted above anything to which men may ascribe a share in His divinity!* — **An-Nahl (16:1)**
+> 📖 *[But God's messengers replied:] "O Abraham! Desist from this [pleading]! Behold, thy Sustainer's judgment has already gone forth: and, verily, there shall fall upon them a chastisement which none can avert!"* — **Hud (11:76)**
 <!-- quran-verse-end -->
 
 ---
