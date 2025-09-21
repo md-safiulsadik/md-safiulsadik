@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "[God is] He who has brought you [all] into being, and has endowed you with hearing, and sight, and hearts: [yet] how seldom are you grateful!"* — **Al-Mulk (67:23)**
+> 📖 *he prayed: “O my Sustainer! Forgive me my sins, and bestow upon me the gift of a kingdom which may not suit anyone after me: verily, Thou alone art a giver of gifts!”* — **Saad (38:35)**
 <!-- quran-verse-end -->
 
 ---
