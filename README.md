@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[for, resting in paradise] on couches, they will look on [and say to themselves]:* — **Al-Mutaffifin (83:35)**
+> 📖 *And [have We not] raised thee high in dignity?* — **Ash-Sharh (94:4)**
 <!-- quran-verse-end -->
 
 ---
