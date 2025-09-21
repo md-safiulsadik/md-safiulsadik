@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[for] all this is God's commandment, which He has bestowed upon you from on high. And unto everyone who is conscious of God will He pardon [some of] his bad deeds, and will grant him a vast reward.* — **At-Talaaq (65:5)**
+> 📖 *AND [on that Day] the Apostle will say: “O my Sustainer! Behold, [some of] my people have come to regard this Qur’an as something [that ought to be] discarded!”* — **Al-Furqaan (25:30)**
 <!-- quran-verse-end -->
 
 ---
