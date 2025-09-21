@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [on that Day] the Apostle will say: “O my Sustainer! Behold, [some of] my people have come to regard this Qur’an as something [that ought to be] discarded!”* — **Al-Furqaan (25:30)**
+> 📖 *and [has endowed me with] piety towards my mother; and He has not made me haughty or bereft of grace.* — **Maryam (19:32)**
 <!-- quran-verse-end -->
 
 ---
