@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In this [story], behold, there are messages indeed [for those who think]: for, verily, We always put [man] to a test.* — **Al-Muminoon (23:30)**
+> 📖 *Hence, give them the tiding of grievous suffering [in the life to come] –* — **Al-Inshiqaaq (84:24)**
 <!-- quran-verse-end -->
 
 ---
