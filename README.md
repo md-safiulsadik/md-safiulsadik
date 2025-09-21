@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *until you go down to your graves.* — **At-Takaathur (102:2)**
+> 📖 *and man cries out, "What has happened to her?" -* — **Az-Zalzala (99:3)**
 <!-- quran-verse-end -->
 
 ---
