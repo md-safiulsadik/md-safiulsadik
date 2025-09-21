@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [have We not] raised thee high in dignity?* — **Ash-Sharh (94:4)**
+> 📖 *Whereas they who are bent on denying the truth harboured a stubborn disdain in their hearts - the stubborn disdain [born] of ignorance God bestowed from on high His [gift of] inner peace upon His Apostle and the believers, and bound them to the spirit of God-consciousness: for they were most worthy of this [divine gift], and deserved it well. And God has full knowledge of all things.* — **Al-Fath (48:26)**
 <!-- quran-verse-end -->
 
 ---
