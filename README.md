@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [when] the earth yields up her burdens,* — **Az-Zalzala (99:2)**
+> 📖 *and [since] they have no knowledge whatever thereof, they follow nothing but surmise: yet, behold, never can surmise take the place of truth.* — **An-Najm (53:28)**
 <!-- quran-verse-end -->
 
 ---
