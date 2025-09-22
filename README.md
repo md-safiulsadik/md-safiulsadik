@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *IT IS GOD who has made the sea subservient [to His laws, so that it be of use] to you so that ships might sail through it at His behest, and that you might seek to obtain [what you need] of His bounty, and that you might have cause to be grateful.* — **Al-Jaathiya (45:12)**
+> 📖 *Hence, on Resurrection Day they shall bear the full weight of their own burdens, as well as some of the burdens of those ignorant ones whom they have led astray: oh, how evil the load with which they shall be burdened!* — **An-Nahl (16:25)**
 <!-- quran-verse-end -->
 
 ---
