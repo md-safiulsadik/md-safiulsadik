@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thou seest people enter God's religion in hosts,* — **An-Nasr (110:2)**
+> 📖 *and [when] the earth yields up her burdens,* — **Az-Zalzala (99:2)**
 <!-- quran-verse-end -->
 
 ---
