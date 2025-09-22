@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
+> 📖 *And they will add: "Had we but listened [to those warnings], or [at least] used our own reason, we would not [now] be among those who are destined for the blazing flame!"* — **Al-Mulk (67:10)**
 <!-- quran-verse-end -->
 
 ---
