@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *IS MAN, then, not aware that it is We who create him out of a [mere] drop of sperm - whereupon, lo! he shows himself endowed with the power to think and to argue?* — **Yaseen (36:77)**
+> 📖 *As for them it is all the same whether thou dost pray that they be forgiven or dost not pray for them: God will nor forgive them - for, behold, God does not bestow His guidance upon such iniquitous folk.* — **Al-Munaafiqoon (63:6)**
 <!-- quran-verse-end -->
 
 ---
