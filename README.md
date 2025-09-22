@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither known this my account!* — **Al-Haaqqa (69:26)**
+> 📖 *Had it not been for a decree from God that had already gone forth, there would indeed have befallen you a tremendous chastisement on account of all [the captives] that you took.* — **Al-Anfaal (8:68)**
 <!-- quran-verse-end -->
 
 ---
