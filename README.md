@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“How is it that [now] you cannot succour one another?”* — **As-Saaffaat (37:25)**
+> 📖 *CONSIDER the fig and the olive,* — **At-Tin (95:1)**
 <!-- quran-verse-end -->
 
 ---
