@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *nor is this difficult for God.* — **Ibrahim (14:20)**
+> 📖 *and neither known this my account!* — **Al-Haaqqa (69:26)**
 <!-- quran-verse-end -->
 
 ---
