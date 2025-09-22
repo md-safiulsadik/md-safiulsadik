@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said He: "Throw it down, O Moses!"* — **Taa-Haa (20:19)**
+> 📖 *nor is this difficult for God.* — **Ibrahim (14:20)**
 <!-- quran-verse-end -->
 
 ---
