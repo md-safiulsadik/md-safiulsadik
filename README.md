@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Had it not been for a decree from God that had already gone forth, there would indeed have befallen you a tremendous chastisement on account of all [the captives] that you took.* — **Al-Anfaal (8:68)**
+> 📖 *He has created the heavens and the earth in accordance with [an inner] truth, and has formed you - and formed you so well; and with Him is your journey's end.* — **At-Taghaabun (64:3)**
 <!-- quran-verse-end -->
 
 ---
