@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And they will add: "Had we but listened [to those warnings], or [at least] used our own reason, we would not [now] be among those who are destined for the blazing flame!"* — **Al-Mulk (67:10)**
+> 📖 *for, when they are told, "Come, the Apostle of God will pray [unto God] that you be forgiven", they turn their heads away, and thou canst see how they draw back in their false pride.* — **Al-Munaafiqoon (63:5)**
 <!-- quran-verse-end -->
 
 ---
