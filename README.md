@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For [thus it is:] had We destroyed them by means of a chastisement ere this [divine writ was revealed], they would indeed [be justified to] say [on Judgment Day]: "O our Sustainer! If only Thou hadst sent an apostle unto us, we would have followed Thy messages rather than be humiliated and disgraced [in the hereafter]!"* — **Taa-Haa (20:134)**
+> 📖 *That requital of God’s enemies will be the fire [of the hereafter]: in it will they have an abode of immeasurable duration as an outcome of their having knowingly rejected Our messages.* — **Fussilat (41:28)**
 <!-- quran-verse-end -->
 
 ---
