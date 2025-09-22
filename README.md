@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, on Resurrection Day they shall bear the full weight of their own burdens, as well as some of the burdens of those ignorant ones whom they have led astray: oh, how evil the load with which they shall be burdened!* — **An-Nahl (16:25)**
+> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
 <!-- quran-verse-end -->
 
 ---
