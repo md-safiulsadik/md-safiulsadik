@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *awaits those who choose the life of this world as the sole object of their love, preferring it to [all thought of] the life to come, and who turn others away from the path of God and try to make it appear crooked. Such as these have indeed gone far astray!* — **Ibrahim (14:3)**
+> 📖 *and thou seest people enter God's religion in hosts,* — **An-Nasr (110:2)**
 <!-- quran-verse-end -->
 
 ---
