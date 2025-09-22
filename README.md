@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *As for them it is all the same whether thou dost pray that they be forgiven or dost not pray for them: God will nor forgive them - for, behold, God does not bestow His guidance upon such iniquitous folk.* — **Al-Munaafiqoon (63:6)**
+> 📖 *For [thus it is:] had We destroyed them by means of a chastisement ere this [divine writ was revealed], they would indeed [be justified to] say [on Judgment Day]: "O our Sustainer! If only Thou hadst sent an apostle unto us, we would have followed Thy messages rather than be humiliated and disgraced [in the hereafter]!"* — **Taa-Haa (20:134)**
 <!-- quran-verse-end -->
 
 ---
