@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said she: "How can I have a son when no man has ever touched me? - for, never have I been a loose woman!"* — **Maryam (19:20)**
+> 📖 *But as for him whose record shall be given to him behind his back;* — **Al-Inshiqaaq (84:10)**
 <!-- quran-verse-end -->
 
 ---
