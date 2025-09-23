@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and from the evil of the envious when he envies."* — **Al-Falaq (113:5)**
+> 📖 *toiling [under burdens of sin], worn out [by fear],* — **Al-Ghaashiya (88:3)**
 <!-- quran-verse-end -->
 
 ---
