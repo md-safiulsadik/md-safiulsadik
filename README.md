@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and lifted from thee the burden* — **Ash-Sharh (94:2)**
+> 📖 *[the people of] Iram the many-pillared,* — **Al-Fajr (89:7)**
 <!-- quran-verse-end -->
 
 ---
