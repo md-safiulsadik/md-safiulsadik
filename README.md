@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *– and early they went, strongly bent upon their purpose.* — **Al-Qalam (68:25)**
+> 📖 *and caused his offspring to endure [on earth];* — **As-Saaffaat (37:77)**
 <!-- quran-verse-end -->
 
 ---
