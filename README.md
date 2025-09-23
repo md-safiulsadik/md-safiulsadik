@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *MAN NEVER TIRES of asking for the good [things of life]; and if evil fortune touches him, he abandons all hope, giving himself up to despair.* — **Fussilat (41:49)**
+> 📖 *for, behold, those who are lost in sin [will at that time come to know that it is they who] were sunk in error and folly!* — **Al-Qamar (54:47)**
 <!-- quran-verse-end -->
 
 ---
