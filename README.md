@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *EVEN AS thy Sustainer brought thee forth from thy home [to fight] in the cause of the truth, although some of the believers were averse to it,* — **Al-Anfaal (8:5)**
+> 📖 *– and early they went, strongly bent upon their purpose.* — **Al-Qalam (68:25)**
 <!-- quran-verse-end -->
 
 ---
