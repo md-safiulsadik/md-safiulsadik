@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, God is the One who cleaves the grain and the fruit-kernel asunder, bringing forth the living out of that which is dead, and He is the One who brings forth the dead out of that which is alive. This, then, is God: and yet, how perverted are your minds!* — **Al-An'aam (6:95)**
+> 📖 *Man will be apprised, on that Day, of what he has done and what he has left undone:* — **Al-Qiyaama (75:13)**
 <!-- quran-verse-end -->
 
 ---
