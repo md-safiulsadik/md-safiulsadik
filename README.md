@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[the people of] Iram the many-pillared,* — **Al-Fajr (89:7)**
+> 📖 *"and from the evil of the envious when he envies."* — **Al-Falaq (113:5)**
 <!-- quran-verse-end -->
 
 ---
