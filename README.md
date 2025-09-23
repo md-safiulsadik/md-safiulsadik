@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He has created the heavens and the earth in accordance with [an inner] truth, and has formed you - and formed you so well; and with Him is your journey's end.* — **At-Taghaabun (64:3)**
+> 📖 *BEHOLD, it is indeed for Us to grace [you] with guidance;* — **Al-Lail (92:12)**
 <!-- quran-verse-end -->
 
 ---
