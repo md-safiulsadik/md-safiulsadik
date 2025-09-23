@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Man will be apprised, on that Day, of what he has done and what he has left undone:* — **Al-Qiyaama (75:13)**
+> 📖 *and lifted from thee the burden* — **Ash-Sharh (94:2)**
 <!-- quran-verse-end -->
 
 ---
