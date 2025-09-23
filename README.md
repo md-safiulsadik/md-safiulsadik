@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thou seest people enter God's religion in hosts,* — **An-Nasr (110:2)**
+> 📖 *Said she: "How can I have a son when no man has ever touched me? - for, never have I been a loose woman!"* — **Maryam (19:20)**
 <!-- quran-verse-end -->
 
 ---
