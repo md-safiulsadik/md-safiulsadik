@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [know that] if God should touch thee with misfortune, there is none who could remove it save Him; and if He intends good for thee, there is none who could turn away His bounty: He causes it to alight upon whomsoever He wills of His servants. And He alone is truly forgiving, truly a dispenser of grace.* — **Yunus (10:107)**
+> 📖 *VERILY, God is the One who cleaves the grain and the fruit-kernel asunder, bringing forth the living out of that which is dead, and He is the One who brings forth the dead out of that which is alive. This, then, is God: and yet, how perverted are your minds!* — **Al-An'aam (6:95)**
 <!-- quran-verse-end -->
 
 ---
