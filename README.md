@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] fight against those who - despite having been vouchsafed revelation [aforetime] -do not [truly] believe either in God or the Last Day, and do not consider forbidden that which God and His Apostle have forbidden, and do not follow the religion of truth [which God has enjoined upon them] till they [agree to] pay the exemption tax with a willing hand, after having been humbled [in war].* — **At-Tawba (9:29)**
+> 📖 *and thou seest people enter God's religion in hosts,* — **An-Nasr (110:2)**
 <!-- quran-verse-end -->
 
 ---
