@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, it is indeed for Us to grace [you] with guidance;* — **Al-Lail (92:12)**
+> 📖 *And [know that] if God should touch thee with misfortune, there is none who could remove it save Him; and if He intends good for thee, there is none who could turn away His bounty: He causes it to alight upon whomsoever He wills of His servants. And He alone is truly forgiving, truly a dispenser of grace.* — **Yunus (10:107)**
 <!-- quran-verse-end -->
 
 ---
