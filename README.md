@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for him whose record shall be given to him behind his back;* — **Al-Inshiqaaq (84:10)**
+> 📖 *But thus it is: if We send a wind [that scorches their land], and they see it turn yellow, they begin, after that [erstwhile joy], to deny the truth [of Our almightiness and grace]!* — **Ar-Room (30:51)**
 <!-- quran-verse-end -->
 
 ---
