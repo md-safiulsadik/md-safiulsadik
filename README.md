@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, those who are lost in sin [will at that time come to know that it is they who] were sunk in error and folly!* — **Al-Qamar (54:47)**
+> 📖 *EVEN AS thy Sustainer brought thee forth from thy home [to fight] in the cause of the truth, although some of the believers were averse to it,* — **Al-Anfaal (8:5)**
 <!-- quran-verse-end -->
 
 ---
