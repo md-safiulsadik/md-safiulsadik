@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[who bears] around her neck a rope of twisted strands!* — **Al-Masad (111:5)**
+> 📖 *Whether you do anything openly or in secret, [remember that,] verily, God has full knowledge of everything.* — **Al-Ahzaab (33:54)**
 <!-- quran-verse-end -->
 
 ---
