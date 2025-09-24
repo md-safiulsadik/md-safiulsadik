@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, turn thou aside for a while from those [who deny the truth],* — **As-Saaffaat (37:174)**
+> 📖 *[In His almightiness,] God chooses message-bearers from among the angels as well as from among men. But, behold, God [alone] is all-hearing, all-see­ing:* — **Al-Hajj (22:75)**
 <!-- quran-verse-end -->
 
 ---
