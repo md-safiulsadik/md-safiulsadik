@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And well do We know that thy bosom is constricted by the [blasphemous] things that they say:* — **Al-Hijr (15:97)**
+> 📖 *as thy Sustainer will have inspired her to do!* — **Az-Zalzala (99:5)**
 <!-- quran-verse-end -->
 
 ---
