@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[In His almightiness,] God chooses message-bearers from among the angels as well as from among men. But, behold, God [alone] is all-hearing, all-see­ing:* — **Al-Hajj (22:75)**
+> 📖 *for him shall We make easy the path towards [ultimate] ease.* — **Al-Lail (92:7)**
 <!-- quran-verse-end -->
 
 ---
