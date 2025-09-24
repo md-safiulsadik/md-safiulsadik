@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And strive hard in God’s cause with all the striving that is due to Him: it is He who has elected you [to carry His message], and has laid no hardship on you in [anything that pertains to religion, [and made you follow] the creed of your forefather Abraham. It is He who has named you in bygone times as well as in this [divine writ] – “those who have surrendered themselves to God”, so that the Apostle might bear witness to the truth before you, and that you might bear witness to it before all mankind. Thus, be constant in prayer, and render the purifying dues, and hold fast unto God. He is your Lord Supreme: and how excellent is this Lord Supreme, and how excellent this Giver of Succour!* — **Al-Hajj (22:78)**
+> 📖 *ART THOU NOT aware how God sets forth the parable of a good word? [It is] like a good tree, firmly rooted, [reaching out] with its branches towards the sky,* — **Ibrahim (14:24)**
 <!-- quran-verse-end -->
 
 ---
