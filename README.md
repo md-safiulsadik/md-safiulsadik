@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said [Moses]: "If, after this, I should ever question thee, keep me not in thy company: [for by] now thou hast heard enough excuses from me."* — **Al-Kahf (18:76)**
+> 📖 *and the angels [will appear] at its ends, and, above them, eight will bear aloft on that Day the throne of thy Sustainer’s almightiness…* — **Al-Haaqqa (69:17)**
 <!-- quran-verse-end -->
 
 ---
