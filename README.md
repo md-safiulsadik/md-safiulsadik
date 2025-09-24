@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware how God sets forth the parable of a good word? [It is] like a good tree, firmly rooted, [reaching out] with its branches towards the sky,* — **Ibrahim (14:24)**
+> 📖 *ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: for He alone is almighty, truly wise!* — **As-Saff (61:1)**
 <!-- quran-verse-end -->
 
 ---
