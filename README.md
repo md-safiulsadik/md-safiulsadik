@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, [in the life to come] the tree of deadly fruit* — **Ad-Dukhaan (44:43)**
+> 📖 *knowing all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind - the Almighty, the Wise!* — **At-Taghaabun (64:18)**
 <!-- quran-verse-end -->
 
 ---
