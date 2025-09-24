@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *as thy Sustainer will have inspired her to do!* — **Az-Zalzala (99:5)**
+> 📖 *then He causes him to be begotten out of the essence of a humble fluid;* — **As-Sajda (32:8)**
 <!-- quran-verse-end -->
 
 ---
