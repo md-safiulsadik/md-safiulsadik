@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And Moses replied: “My Sustainer knows best as to who comes with guidance from Him, and to whom the future belongs! Verily, never will evil­doers attain to a happy state!”* — **Al-Qasas (28:37)**
+> 📖 *“And no reward whatever do I ask of you for it: my reward rests with none but the Sustainer of all the worlds.* — **Ash-Shu'araa (26:180)**
 <!-- quran-verse-end -->
 
 ---
