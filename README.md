@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and we are not going to be chastised [for adhering to it]!”* — **Ash-Shu'araa (26:138)**
+> 📖 *And well do We know that thy bosom is constricted by the [blasphemous] things that they say:* — **Al-Hijr (15:97)**
 <!-- quran-verse-end -->
 
 ---
