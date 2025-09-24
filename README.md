@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, We have shown him the way: [and it rests with him to prove himself] either grateful or ungrateful.* — **Al-Insaan (76:3)**
+> 📖 *and we are not going to be chastised [for adhering to it]!”* — **Ash-Shu'araa (26:138)**
 <!-- quran-verse-end -->
 
 ---
