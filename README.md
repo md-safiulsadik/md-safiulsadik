@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Whether you do anything openly or in secret, [remember that,] verily, God has full knowledge of everything.* — **Al-Ahzaab (33:54)**
+> 📖 *so that He might prove the truth to be true and the false to be false, however hateful this might be to those who were lost in sin.* — **Al-Anfaal (8:8)**
 <!-- quran-verse-end -->
 
 ---
