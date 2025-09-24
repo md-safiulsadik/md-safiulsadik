@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: for He alone is almighty, truly wise!* — **As-Saff (61:1)**
+> 📖 *And Moses replied: “My Sustainer knows best as to who comes with guidance from Him, and to whom the future belongs! Verily, never will evil­doers attain to a happy state!”* — **Al-Qasas (28:37)**
 <!-- quran-verse-end -->
 
 ---
