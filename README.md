@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, we did invoke Him [alone] ere this: [and now He has shown us] that He alone is truly benign, a true dispenser of grace!”* — **At-Tur (52:28)**
+> 📖 *Said [Moses]: "If, after this, I should ever question thee, keep me not in thy company: [for by] now thou hast heard enough excuses from me."* — **Al-Kahf (18:76)**
 <!-- quran-verse-end -->
 
 ---
