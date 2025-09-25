@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But those who shall have attained to faith and done righteous deeds will be brought into gardens through which running waters flow, therein to abide by their Sustainer's leave, and will be welcomed with the greeting, "Peace!"* — **Ibrahim (14:23)**
+> 📖 *LEAVE Me alone [to deal] with him whom I have created alone,* — **Al-Muddaththir (74:11)**
 <!-- quran-verse-end -->
 
 ---
