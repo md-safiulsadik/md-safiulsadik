@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *How could it be that He who has created [all] should not know [all]? Yea, He alone is unfathomable [in His wisdom], aware!* — **Al-Mulk (67:14)**
+> 📖 *Let them, therefore, worship the Sustainer of this Temple;* — **Quraish (106:3)**
 <!-- quran-verse-end -->
 
 ---
