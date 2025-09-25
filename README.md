@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *if I should fail to convey [to the world whatever illumination comes to me] from God and His messages." Now as for him who rebels against God and His Apostle - verily, the fire of hell awaits him, therein to abide beyond the count of time.* — **Al-Jinn (72:23)**
+> 📖 *and see [them for what they are]; and n time they [too] will come to see [what they do not see now].* — **As-Saaffaat (37:179)**
 <!-- quran-verse-end -->
 
 ---
