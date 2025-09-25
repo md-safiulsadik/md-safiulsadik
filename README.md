@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THUS, THEN, [O Prophet,] have We made this [divine writ] easy to understand, in thine own [human] tongue, so that men might take it to heart.* — **Ad-Dukhaan (44:58)**
+> 📖 *SAY: "It has been revealed to me that some of the unseen beings gave ear [to this divine writ], and thereupon said [unto their fellow-beings]: "'Verily, we have heard a wondrous discourse,* — **Al-Jinn (72:1)**
 <!-- quran-verse-end -->
 
 ---
