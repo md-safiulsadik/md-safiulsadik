@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who has taught [man] the use of the pen –* — **Al-Alaq (96:4)**
+> 📖 *hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].* — **Al-Kawthar (108:2)**
 <!-- quran-verse-end -->
 
 ---
