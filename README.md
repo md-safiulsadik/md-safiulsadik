@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and see [them for what they are]; and n time they [too] will come to see [what they do not see now].* — **As-Saaffaat (37:179)**
+> 📖 *NOW WHEN Jesus came [to his people] with all evidence of the truth, he said: “I have now come unto you with wisdom, and to make clear Unto you some of that on which you are at variance: hence, be conscious of God, and pay heed unto me.* — **Az-Zukhruf (43:63)**
 <!-- quran-verse-end -->
 
 ---
