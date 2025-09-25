@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And once again: We shall save [from hell] those who have been conscious of Us; but We shall leave in it the evildoers, on their knees.* — **Maryam (19:72)**
+> 📖 *and when the blazing fire [of hell] is kindled bright,* — **At-Takwir (81:12)**
 <!-- quran-verse-end -->
 
 ---
