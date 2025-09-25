@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *LEAVE Me alone [to deal] with him whom I have created alone,* — **Al-Muddaththir (74:11)**
+> 📖 *THUS, THEN, [O Prophet,] have We made this [divine writ] easy to understand, in thine own [human] tongue, so that men might take it to heart.* — **Ad-Dukhaan (44:58)**
 <!-- quran-verse-end -->
 
 ---
