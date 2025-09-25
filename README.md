@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].* — **Al-Kawthar (108:2)**
+> 📖 *Behold, from on high have We bestowed it on a blessed night: for, verily, We have always been warning [man].* — **Ad-Dukhaan (44:3)**
 <!-- quran-verse-end -->
 
 ---
