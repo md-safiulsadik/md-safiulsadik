@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and fruits and herbage,* — **Abasa (80:31)**
+> 📖 *who has taught [man] the use of the pen –* — **Al-Alaq (96:4)**
 <!-- quran-verse-end -->
 
 ---
