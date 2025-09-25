@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "It has been revealed to me that some of the unseen beings gave ear [to this divine writ], and thereupon said [unto their fellow-beings]: "'Verily, we have heard a wondrous discourse,* — **Al-Jinn (72:1)**
+> 📖 *AND THEY should not think - they who niggardly cling to all that God has granted them out of His bounty - that this is good for them: nay, it is bad for them. That to which they [so] niggardly cling will, on the Day of Resurrection, be hung about their necks: for unto God [alone] belongs the heritage of the heavens and of the earth; and God is aware of all that you do.* — **Aal-i-Imraan (3:180)**
 <!-- quran-verse-end -->
 
 ---
