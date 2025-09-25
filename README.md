@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and, verily, judgment is bound to come!* — **Adh-Dhaariyat (51:6)**
+> 📖 *if I should fail to convey [to the world whatever illumination comes to me] from God and His messages." Now as for him who rebels against God and His Apostle - verily, the fire of hell awaits him, therein to abide beyond the count of time.* — **Al-Jinn (72:23)**
 <!-- quran-verse-end -->
 
 ---
