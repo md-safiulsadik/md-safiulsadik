@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now as for him who believes himself to be self-sufficient* — **Abasa (80:5)**
+> 📖 *And once again: We shall save [from hell] those who have been conscious of Us; but We shall leave in it the evildoers, on their knees.* — **Maryam (19:72)**
 <!-- quran-verse-end -->
 
 ---
