@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He it is who has created you: and among you are such as deny this truth, and among you are such as believe [in it]. And God sees all that you do.* — **At-Taghaabun (64:2)**
+> 📖 *But those who shall have attained to faith and done righteous deeds will be brought into gardens through which running waters flow, therein to abide by their Sustainer's leave, and will be welcomed with the greeting, "Peace!"* — **Ibrahim (14:23)**
 <!-- quran-verse-end -->
 
 ---
