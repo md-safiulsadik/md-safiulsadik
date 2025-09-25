@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and cushions ranged,* — **Al-Ghaashiya (88:15)**
+> 📖 *He it is who has created you: and among you are such as deny this truth, and among you are such as believe [in it]. And God sees all that you do.* — **At-Taghaabun (64:2)**
 <!-- quran-verse-end -->
 
 ---
