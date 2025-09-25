@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Shall I point out to you a bargain that will save you from grievous suffering [in this world and in the life to come]?* — **As-Saff (61:10)**
+> 📖 *And [on that Day,] the evil of their doings will become obvious to them, and they will be over­whelmed by the very thing which they were wont to deride.* — **Al-Jaathiya (45:33)**
 <!-- quran-verse-end -->
 
 ---
