@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, from on high have We bestowed it on a blessed night: for, verily, We have always been warning [man].* — **Ad-Dukhaan (44:3)**
+> 📖 *HAS THERE COME unto thee the tiding of the Overshadowing Event?'* — **Al-Ghaashiya (88:1)**
 <!-- quran-verse-end -->
 
 ---
