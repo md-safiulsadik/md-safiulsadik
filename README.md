@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who accept as true the [coming of the] Day of Judgment;* — **Al-Ma'aarij (70:26)**
+> 📖 *Or do they say, “He himself has composed this [message]”? Nay, but they are not willing to believe!* — **At-Tur (52:33)**
 <!-- quran-verse-end -->
 
 ---
