@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Jacob] replied: "Shall I trust you with him in the same way as I trusted you with his brother (Joseph] aforetime? [Nay,] but God's guardianship is better [than yours], for He is the most merciful of the merciful!"* — **Yusuf (12:64)**
+> 📖 *as well as the people of Noah before them - [since,] verily, they all had been most willful in their evildoing and most overweening –* — **An-Najm (53:52)**
 <!-- quran-verse-end -->
 
 ---
