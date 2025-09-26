@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *as well as the people of Noah before them - [since,] verily, they all had been most willful in their evildoing and most overweening –* — **An-Najm (53:52)**
+> 📖 *He it is who has made the earth easy to live upon: go about, then, in all its regions, and partake the sustenance which He provides: but [always bear in mind that] unto Him you shall be resurrected.* — **Al-Mulk (67:15)**
 <!-- quran-verse-end -->
 
 ---
