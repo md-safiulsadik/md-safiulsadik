@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They answered: "Never shall we prefer thee to all the evidence of the truth that has come unto us, nor to Him who has brought us into being! Decree, then, whatever thou art going to decree: thou canst decree only [something that pertains to] this worldly life!* — **Taa-Haa (20:72)**
+> 📖 *[Jacob] replied: "Shall I trust you with him in the same way as I trusted you with his brother (Joseph] aforetime? [Nay,] but God's guardianship is better [than yours], for He is the most merciful of the merciful!"* — **Yusuf (12:64)**
 <!-- quran-verse-end -->
 
 ---
