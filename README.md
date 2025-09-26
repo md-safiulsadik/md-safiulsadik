@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or do they say, “He himself has composed this [message]”? Nay, but they are not willing to believe!* — **At-Tur (52:33)**
+> 📖 *[On the Day of Judgment,] every human being will be held in pledge for whatever [evil] he has wrought –* — **Al-Muddaththir (74:38)**
 <!-- quran-verse-end -->
 
 ---
