@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But they gave him the lie, and cruelly slaughtered her - whereupon their Sustainer visited them with utter destruction for this their sin, destroying them all alike:* — **Ash-Shams (91:14)**
+> 📖 *AND, INDEED, [already] unto the children of Israel did We vouchsafe revelation, and wisdom, and prophethood; and We provided for them sustenance out of the good things of life, and favoured them above all other people [of their time].* — **Al-Jaathiya (45:16)**
 <!-- quran-verse-end -->
 
 ---
