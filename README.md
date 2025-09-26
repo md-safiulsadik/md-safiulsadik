@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which smote them with stone-hard blows of chastisement pre-ordained,* — **Al-Fil (105:4)**
+> 📖 *and who accept as true the [coming of the] Day of Judgment;* — **Al-Ma'aarij (70:26)**
 <!-- quran-verse-end -->
 
 ---
