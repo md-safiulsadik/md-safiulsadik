@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[On the Day of Judgment,] every human being will be held in pledge for whatever [evil] he has wrought –* — **Al-Muddaththir (74:38)**
+> 📖 *And thus clearly do We spell out Our messages: and [We do it] so that the path of those who are lost in sin might be distinct [from that of the righteous].* — **Al-An'aam (6:55)**
 <!-- quran-verse-end -->
 
 ---
