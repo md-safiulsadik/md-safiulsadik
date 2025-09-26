@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NAY, VERILY - the record of the truly virtuous is [set down] in a mode most lofty!* — **Al-Mutaffifin (83:18)**
+> 📖 *[It is] the freeing of one's neck [from the burden of sin],* — **Al-Balad (90:13)**
 <!-- quran-verse-end -->
 
 ---
