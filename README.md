@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now [before their downfall,] We had placed between them and the cities which We had blessed [many] towns within sight of one another; and thus We had made traveling easy [for them, as if to say]: “Travel safely in this [land], by night or by day!”* — **Saba (34:18)**
+> 📖 *But they gave him the lie, and cruelly slaughtered her - whereupon their Sustainer visited them with utter destruction for this their sin, destroying them all alike:* — **Ash-Shams (91:14)**
 <!-- quran-verse-end -->
 
 ---
