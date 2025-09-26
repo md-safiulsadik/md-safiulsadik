@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *shall find himself in a happy' state of life;* — **Al-Qaari'a (101:7)**
+> 📖 *which smote them with stone-hard blows of chastisement pre-ordained,* — **Al-Fil (105:4)**
 <!-- quran-verse-end -->
 
 ---
