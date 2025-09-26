@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [to cause this message to spread] from them unto other people as soon as they come into contact with them: for He alone is almighty, truly wise!* — **Al-Jumu'a (62:3)**
+> 📖 *They answered: "Never shall we prefer thee to all the evidence of the truth that has come unto us, nor to Him who has brought us into being! Decree, then, whatever thou art going to decree: thou canst decree only [something that pertains to] this worldly life!* — **Taa-Haa (20:72)**
 <!-- quran-verse-end -->
 
 ---
