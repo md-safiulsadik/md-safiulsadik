@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *woe on that Day unto those who give the to the truth!* — **Al-Mursalaat (77:49)**
+> 📖 *barring Lot's household, all of whom, behold, we shall save -* — **Al-Hijr (15:59)**
 <!-- quran-verse-end -->
 
 ---
