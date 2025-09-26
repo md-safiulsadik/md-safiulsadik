@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[It is] the freeing of one's neck [from the burden of sin],* — **Al-Balad (90:13)**
+> 📖 *- [and then,] "Nay, but we have been rendered destitute!"* — **Al-Qalam (68:27)**
 <!-- quran-verse-end -->
 
 ---
