@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *- [and then,] "Nay, but we have been rendered destitute!"* — **Al-Qalam (68:27)**
+> 📖 *shall find himself in a happy' state of life;* — **Al-Qaari'a (101:7)**
 <!-- quran-verse-end -->
 
 ---
