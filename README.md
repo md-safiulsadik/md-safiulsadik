@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND, INDEED, [already] unto the children of Israel did We vouchsafe revelation, and wisdom, and prophethood; and We provided for them sustenance out of the good things of life, and favoured them above all other people [of their time].* — **Al-Jaathiya (45:16)**
+> 📖 *However, he who does not have the where­withal shall fast [instead] for two consecutive months before the couple may touch one another again; and he who is unable to do it shall feed sixty needy ones: this, so that you might prove your faith in God and His Apostle. Now these are the bounds set by God; and grievous suffering [in the life to come] awaits all who deny the truth.* — **Al-Mujaadila (58:4)**
 <!-- quran-verse-end -->
 
 ---
