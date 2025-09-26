@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thus clearly do We spell out Our messages: and [We do it] so that the path of those who are lost in sin might be distinct [from that of the righteous].* — **Al-An'aam (6:55)**
+> 📖 *ONLY THEY [truly] believe in Our messages who, whenever they are conveyed to them, fall down, prostrating themselves in adoration, and extol their Sustainer’s limitless glory and praise; and who are never filled with false pride;* — **As-Sajda (32:15)**
 <!-- quran-verse-end -->
 
 ---
