@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAS THERE COME unto thee the tiding of the Overshadowing Event?'* — **Al-Ghaashiya (88:1)**
+> 📖 *Now [before their downfall,] We had placed between them and the cities which We had blessed [many] towns within sight of one another; and thus We had made traveling easy [for them, as if to say]: “Travel safely in this [land], by night or by day!”* — **Saba (34:18)**
 <!-- quran-verse-end -->
 
 ---
