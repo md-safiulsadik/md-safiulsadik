@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ONLY THEY [truly] believe in Our messages who, whenever they are conveyed to them, fall down, prostrating themselves in adoration, and extol their Sustainer’s limitless glory and praise; and who are never filled with false pride;* — **As-Sajda (32:15)**
+> 📖 *woe on that Day unto those who give the to the truth!* — **Al-Mursalaat (77:49)**
 <!-- quran-verse-end -->
 
 ---
