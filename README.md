@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *You worship only [lifeless] idols instead of God, and [thus] you give visible shape to a lie! Behold, those [things and beings] that you worship instead of God have it not in their power to provide sustenance for you: seek, then, all [your] sustenance from God, and worship Him [alone] and be grateful to Him: [for] unto Him you shall be brought back!* — **Al-Ankaboot (29:17)**
+> 📖 *[He has sent] an apostle who conveys unto you God's clear messages, so that He might those who have attained to faith and do righteous deeds out of the depths of darkness into the light. And whoever believes in God and does what is right and just, him will He admit into gardens through which running waters flow, therein to abide beyond the count of time: indeed, a most goodly provision will God have granted him!* — **At-Talaaq (65:11)**
 <!-- quran-verse-end -->
 
 ---
