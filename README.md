@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.* — **Az-Zalzala (99:6)**
+> 📖 *Out of these two [bodies of water] come forth pearls, both great and small.* — **Ar-Rahmaan (55:22)**
 <!-- quran-verse-end -->
 
 ---
