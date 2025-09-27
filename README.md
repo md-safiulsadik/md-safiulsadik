@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *At that, a believing man of Pharaoh’s family, who [until then] had concealed his faith, exclaimed: “Would you slay a man because he says, ‘God is my Sustainer’ - seeing, withal, that he has brought you all evidence of this truth from your Sustainer? Now if he be a liar, his lie will fall back on him; but if he is a man of truth, something [of the punishment] whereof he warns you is bound to befall you: for, verily, God would not grace with His guidance one who has wasted his own self by lying [about Him].* — **Ghafir (40:28)**
+> 📖 *And We let loose the winds to fertilize [plants] and We send down water from the skies and let you drink thereof: and it is not you who dispose of its source-* — **Al-Hijr (15:22)**
 <!-- quran-verse-end -->
 
 ---
