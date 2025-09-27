@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, it is He who creates [man] in the first instance, and He [it is who] will bring him forth anew.* — **Al-Burooj (85:13)**
+> 📖 *Herein, behold, lies a message indeed for all who fear the suffering [which may befall them] in the life to come, (and are conscious of the coming of] that Day on which all mankind shall be gathered together-that Day [of Judgment] which shall be witnessed [by all that ever lived],* — **Hud (11:103)**
 <!-- quran-verse-end -->
 
 ---
