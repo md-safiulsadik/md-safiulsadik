@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or do they say, “We are a group united, [and therefore] bound to prevail”?* — **Al-Qamar (54:44)**
+> 📖 *You worship only [lifeless] idols instead of God, and [thus] you give visible shape to a lie! Behold, those [things and beings] that you worship instead of God have it not in their power to provide sustenance for you: seek, then, all [your] sustenance from God, and worship Him [alone] and be grateful to Him: [for] unto Him you shall be brought back!* — **Al-Ankaboot (29:17)**
 <!-- quran-verse-end -->
 
 ---
