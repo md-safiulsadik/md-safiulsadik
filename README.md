@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He it is who has sent forth His Apostle with the [task of spreading] guidance and the religion of truth, to the end that He make it prevail over every [false] religion; and none can bear witness [to the truth] as God does.* — **Al-Fath (48:28)**
+> 📖 *And [so it is that] whenever they are summoned unto God and His Apostle in order that [the divine writ] might judge between them, lo! some of them turn away;* — **An-Noor (24:48)**
 <!-- quran-verse-end -->
 
 ---
