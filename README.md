@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *However, as for him who turns away, being bent on denying the truth,* — **Al-Ghaashiya (88:23)**
+> 📖 *Now among His signs are the night and the day, as well as the sun and the moon: [hence,] adore not the sun or the moon, but prostrate yourselves in adoration before God, who has created them - if it is Him whom you [really] worship.* — **Fussilat (41:37)**
 <!-- quran-verse-end -->
 
 ---
