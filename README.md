@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and if you [think that you] have a subterfuge left, try to outwit Me!"* — **Al-Mursalaat (77:39)**
+> 📖 *and, behold, Ours is [the dominion over] the life to come as well as [over] this earlier part [of your life]:* — **Al-Lail (92:13)**
 <!-- quran-verse-end -->
 
 ---
