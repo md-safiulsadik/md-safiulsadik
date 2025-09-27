@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Out of these two [bodies of water] come forth pearls, both great and small.* — **Ar-Rahmaan (55:22)**
+> 📖 *not as payment for favours received,* — **Al-Lail (92:19)**
 <!-- quran-verse-end -->
 
 ---
