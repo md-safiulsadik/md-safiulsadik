@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He knows all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind -the Great One, the One far above anything that is or could ever be!* — **Ar-Ra'd (13:9)**
+> 📖 *extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.* — **An-Nasr (110:3)**
 <!-- quran-verse-end -->
 
 ---
