@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [so it is that] whenever they are summoned unto God and His Apostle in order that [the divine writ] might judge between them, lo! some of them turn away;* — **An-Noor (24:48)**
+> 📖 *Behold, it is He who creates [man] in the first instance, and He [it is who] will bring him forth anew.* — **Al-Burooj (85:13)**
 <!-- quran-verse-end -->
 
 ---
