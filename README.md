@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WOE unto every slanderer, fault-finder!* — **Al-Humaza (104:1)**
+> 📖 *the revelations of Abraham and Moses.* — **Al-A'laa (87:19)**
 <!-- quran-verse-end -->
 
 ---
