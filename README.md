@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “O God! Originator of the heavens and the earth! Knower of all that is beyond the reach of a created being’s perception, as well as of all that can be witnessed by a creature’s senses or mind! It is Thou who wilt judge between Thy servants [on Resurrection Day] with regard to all on which they were wont to differ!”* — **Az-Zumar (39:46)**
+> 📖 *and be told: "This is the [very thing] to which you were wont to give the lie!"* — **Al-Mutaffifin (83:17)**
 <!-- quran-verse-end -->
 
 ---
