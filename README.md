@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *he who [in the life to come] shall have to endure the great fire* — **Al-A'laa (87:12)**
+> 📖 *WOE unto every slanderer, fault-finder!* — **Al-Humaza (104:1)**
 <!-- quran-verse-end -->
 
 ---
