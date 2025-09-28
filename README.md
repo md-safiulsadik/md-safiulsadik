@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thereupon Moses returned to his people full of wrath and sorrow, [and] exclaimed: "O my people! Did not your Sustainer hold out [many] a goodly promise to you? bid, then, [the fulfilment of] this promise seem to you too long in coming? Or are you, perchance, determined to see your Sustainer's condemnation fall upon you, and so you broke your promise to me?"* — **Taa-Haa (20:86)**
+> 📖 *he who [in the life to come] shall have to endure the great fire* — **Al-A'laa (87:12)**
 <!-- quran-verse-end -->
 
 ---
