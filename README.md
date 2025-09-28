@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who makes most excellent everything that He creates. Thus, He begins the creation of man out of clay;* — **As-Sajda (32:7)**
+> 📖 *And he added: "O my sons! Do not enter [the city all] by one gate, but enter by different gates. Yet [even so,] I can be of no avail whatever to you against [anything that may be willed by] God: judgment [as to what is to happen] rests with none but God. In Him have I placed my trust: for, all who have trust [in His existence] must place their trust in Him alone."* — **Yusuf (12:67)**
 <!-- quran-verse-end -->
 
 ---
