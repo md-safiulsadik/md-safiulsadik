@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *If you avoid the great sins, which you have been enjoined to shun, We shall efface your [minor] bad deeds, and shall cause you to enter an abode of glory.* — **An-Nisaa (4:31)**
+> 📖 *And yet, We had established them securely in a manner in which We have never established you, [O people of later times;] and We had endowed them with hearing, and sight, and [knowledgeable] hearts: but neither their hearing, nor their sight, nor their hearts were of the least avail to them, seeing that they went on rejecting God’s messages; and [in the end] they were overwhelmed by the very thing which they had been wont to deride.* — **Al-Ahqaf (46:26)**
 <!-- quran-verse-end -->
 
 ---
