@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And he added: "O my sons! Do not enter [the city all] by one gate, but enter by different gates. Yet [even so,] I can be of no avail whatever to you against [anything that may be willed by] God: judgment [as to what is to happen] rests with none but God. In Him have I placed my trust: for, all who have trust [in His existence] must place their trust in Him alone."* — **Yusuf (12:67)**
+> 📖 *Thereupon Moses returned to his people full of wrath and sorrow, [and] exclaimed: "O my people! Did not your Sustainer hold out [many] a goodly promise to you? bid, then, [the fulfilment of] this promise seem to you too long in coming? Or are you, perchance, determined to see your Sustainer's condemnation fall upon you, and so you broke your promise to me?"* — **Taa-Haa (20:86)**
 <!-- quran-verse-end -->
 
 ---
