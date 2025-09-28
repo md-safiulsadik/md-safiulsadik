@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereupon We gave him the glad tiding of a boy-child gentle [like himself]?* — **As-Saaffaat (37:101)**
+> 📖 *For [thus it was:] when We told the angels, "Prostrate yourselves before Adam!"- they all prostrated themselves, save Ibis, who refused [to do it];* — **Taa-Haa (20:116)**
 <!-- quran-verse-end -->
 
 ---
