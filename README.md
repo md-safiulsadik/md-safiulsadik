@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
+> 📖 *whereupon We gave him the glad tiding of a boy-child gentle [like himself]?* — **As-Saaffaat (37:101)**
 <!-- quran-verse-end -->
 
 ---
