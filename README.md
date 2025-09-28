@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and feels no urge to feed the needy.* — **Al-Maa'un (107:3)**
+> 📖 *a servant [of God] from praying?* — **Al-Alaq (96:10)**
 <!-- quran-verse-end -->
 
 ---
