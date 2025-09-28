@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *a servant [of God] from praying?* — **Al-Alaq (96:10)**
+> 📖 *who makes most excellent everything that He creates. Thus, He begins the creation of man out of clay;* — **As-Sajda (32:7)**
 <!-- quran-verse-end -->
 
 ---
