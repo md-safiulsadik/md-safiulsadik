@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now those who have been vouchsafed revelation aforetime did break up their unity [of faith] after such an evidence of the truth had come to them.* — **Al-Bayyina (98:4)**
+> 📖 *Say: “O God! Originator of the heavens and the earth! Knower of all that is beyond the reach of a created being’s perception, as well as of all that can be witnessed by a creature’s senses or mind! It is Thou who wilt judge between Thy servants [on Resurrection Day] with regard to all on which they were wont to differ!”* — **Az-Zumar (39:46)**
 <!-- quran-verse-end -->
 
 ---
