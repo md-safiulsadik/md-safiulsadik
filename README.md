@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and provides for him in a manner beyond all expectation; and for everyone who places his trust in God He [alone] is enough. Verily, God always attains to His purpose: [and] indeed, unto everything has God appointed its [term and] measure.* — **At-Talaaq (65:3)**
+> 📖 *[Hence, O Prophet,] accept that [part] of their possessions which is offered for the sake of God, so that thou mayest cleanse them thereby and cause them to grow in purity, and pray for them: behold, thy prayer will be [a source of] comfort to them-for God is all-hearing, all-knowing.* — **At-Tawba (9:103)**
 <!-- quran-verse-end -->
 
 ---
