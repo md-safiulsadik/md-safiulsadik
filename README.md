@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And among His wonders is this: He creates you out of dust – and then, lo! you become human beings ranging far and wide!* — **Ar-Room (30:20)**
+> 📖 *Now those who have been vouchsafed revelation aforetime did break up their unity [of faith] after such an evidence of the truth had come to them.* — **Al-Bayyina (98:4)**
 <!-- quran-verse-end -->
 
 ---
