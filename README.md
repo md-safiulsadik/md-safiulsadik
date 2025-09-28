@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and be told: "This is the [very thing] to which you were wont to give the lie!"* — **Al-Mutaffifin (83:17)**
+> 📖 *If you avoid the great sins, which you have been enjoined to shun, We shall efface your [minor] bad deeds, and shall cause you to enter an abode of glory.* — **An-Nisaa (4:31)**
 <!-- quran-verse-end -->
 
 ---
