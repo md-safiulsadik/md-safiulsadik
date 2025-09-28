@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Hence, O Prophet,] accept that [part] of their possessions which is offered for the sake of God, so that thou mayest cleanse them thereby and cause them to grow in purity, and pray for them: behold, thy prayer will be [a source of] comfort to them-for God is all-hearing, all-knowing.* — **At-Tawba (9:103)**
+> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
 <!-- quran-verse-end -->
 
 ---
