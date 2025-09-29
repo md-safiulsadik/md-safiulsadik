@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] He will say: “Contend not before Me, [O you sinners,] for I gave you a forewarning [of this Day of Reckoning].* — **Qaaf (50:28)**
+> 📖 *for him shall We make easy the path towards [ultimate] ease.* — **Al-Lail (92:7)**
 <!-- quran-verse-end -->
 
 ---
