@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Can, then, they who devise evil schemes ever feel sure that God will not cause the earth to swallow them, or that suffering will not befall them without their perceiving whence [it came]? -* — **An-Nahl (16:45)**
+> 📖 *unless it be to an apostle whom He has been pleased to elect [there for]: and then He sends forth [the forces of heaven] to watch over him in whatever lies open before him and in what is beyond his ken –* — **Al-Jinn (72:27)**
 <!-- quran-verse-end -->
 
 ---
