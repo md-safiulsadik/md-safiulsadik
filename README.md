@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But] We know best what they will be saying when the most perceptive of them shall say, "You have spent [there] but one day!"* — **Taa-Haa (20:104)**
+> 📖 *O YOU who have attained to faith! When you are told, “Make room for one another in your collective life”, do make room: [and in return,] God will make room for you [in His grace]. And whenever you are told, “Rise up [for a good deed]”, do rise up; [and] God will exalt by [many] degrees those of you who have attained to faith and, [above all,] such as have been vouchsafed [true] knowledge: for God is fully aware of all that you do.* — **Al-Mujaadila (58:11)**
 <!-- quran-verse-end -->
 
 ---
