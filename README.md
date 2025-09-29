@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for him shall We make easy the path towards [ultimate] ease.* — **Al-Lail (92:7)**
+> 📖 *And, behold, there are indeed among you such as would lag behind, and then, if calamity befalls you, say, "God has bestowed His favour upon me in that I did not accompany them."* — **An-Nisaa (4:72)**
 <!-- quran-verse-end -->
 
 ---
