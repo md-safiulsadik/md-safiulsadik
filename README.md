@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereafter We reduce him to the lowest of low* — **At-Tin (95:5)**
+> 📖 *[And] He will say: “Contend not before Me, [O you sinners,] for I gave you a forewarning [of this Day of Reckoning].* — **Qaaf (50:28)**
 <!-- quran-verse-end -->
 
 ---
