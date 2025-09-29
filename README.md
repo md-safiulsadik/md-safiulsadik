@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, in time you will come to understand!* — **At-Takaathur (102:3)**
+> 📖 *and so I warn you of the raging fire -* — **Al-Lail (92:14)**
 <!-- quran-verse-end -->
 
 ---
