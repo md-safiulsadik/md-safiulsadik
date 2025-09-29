@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *This fellow-man of yours has not gone astray, nor is he deluded,* — **An-Najm (53:2)**
+> 📖 *Nay, [O believers,] you arouse in their bosoms a fear more intense than [even their fear of] God: this, because they are people who fail to grasp the truth.* — **Al-Hashr (59:13)**
 <!-- quran-verse-end -->
 
 ---
