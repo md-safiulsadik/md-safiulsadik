@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and brought about great corruption therein:* — **Al-Fajr (89:12)**
+> 📖 *We called out to him: “O Abraham,* — **As-Saaffaat (37:104)**
 <!-- quran-verse-end -->
 
 ---
