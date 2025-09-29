@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And from the wind-driven clouds We send down waters pouring in abundance,* — **An-Naba (78:14)**
+> 📖 *and brought about great corruption therein:* — **Al-Fajr (89:12)**
 <!-- quran-verse-end -->
 
 ---
