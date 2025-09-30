@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, verily, it is against Our messages that he knowingly, stubbornly sets himself* — **Al-Muddaththir (74:16)**
+> 📖 *BEHOLD, We have bestowed upon thee good in abundance:* — **Al-Kawthar (108:1)**
 <!-- quran-verse-end -->
 
 ---
