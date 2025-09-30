@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet if God had so willed, they would not have ascribed divinity to aught beside Him; hence, We have not made thee their keeper, and neither art thou responsible for their conduct.* — **Al-An'aam (6:107)**
+> 📖 *[But,] behold, as for those who say, “Our Sustainer is God,” and then steadfastly pursue the right way - upon them do angels often descend, [say­ing:] “Fear not and grieve not, but receive the glad tiding of that paradise which has been promised to you!* — **Fussilat (41:30)**
 <!-- quran-verse-end -->
 
 ---
