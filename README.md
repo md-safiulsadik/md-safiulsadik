@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND NOW ask them to enlighten thee: Has thy Sustainer daughters, whereas they would have [only] sons?* — **As-Saaffaat (37:149)**
+> 📖 *See to what they liken thee, [O Prophet, simply] because they have gone astray and are now unable to find a way to the truth]!* — **Al-Furqaan (25:9)**
 <!-- quran-verse-end -->
 
 ---
