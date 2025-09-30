@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *However, he who does not have the where­withal shall fast [instead] for two consecutive months before the couple may touch one another again; and he who is unable to do it shall feed sixty needy ones: this, so that you might prove your faith in God and His Apostle. Now these are the bounds set by God; and grievous suffering [in the life to come] awaits all who deny the truth.* — **Al-Mujaadila (58:4)**
+> 📖 *Yet if God had so willed, they would not have ascribed divinity to aught beside Him; hence, We have not made thee their keeper, and neither art thou responsible for their conduct.* — **Al-An'aam (6:107)**
 <!-- quran-verse-end -->
 
 ---
