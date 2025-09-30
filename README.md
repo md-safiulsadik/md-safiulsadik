@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *See to what they liken thee, [O Prophet, simply] because they have gone astray and are now unable to find a way to the truth]!* — **Al-Furqaan (25:9)**
+> 📖 *[As a rule,] whenever misfortune touches him, he is filled with self-pity;* — **Al-Ma'aarij (70:20)**
 <!-- quran-verse-end -->
 
 ---
