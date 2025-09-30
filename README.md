@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who, when they have committed a shameful deed or have [otherwise] sinned against themselves, remember God and pray that their sins be forgiven - for who but God could forgive sins? - and do not knowingly persist in doing whatever [wrong] they may have done.* — **Aal-i-Imraan (3:135)**
+> 📖 *and when all beasts are gathered together,* — **At-Takwir (81:5)**
 <!-- quran-verse-end -->
 
 ---
