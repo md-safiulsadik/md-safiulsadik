@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But,] behold, as for those who say, “Our Sustainer is God,” and then steadfastly pursue the right way - upon them do angels often descend, [say­ing:] “Fear not and grieve not, but receive the glad tiding of that paradise which has been promised to you!* — **Fussilat (41:30)**
+> 📖 *AND NOW ask them to enlighten thee: Has thy Sustainer daughters, whereas they would have [only] sons?* — **As-Saaffaat (37:149)**
 <!-- quran-verse-end -->
 
 ---
