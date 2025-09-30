@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[As a rule,] whenever misfortune touches him, he is filled with self-pity;* — **Al-Ma'aarij (70:20)**
+> 📖 *Say: “In whose hand rests the mighty dominion over all things, and who is it that protects, the while there is no protection against Him? [Tell me this] if you happen to know [the answer]!”* — **Al-Muminoon (23:88)**
 <!-- quran-verse-end -->
 
 ---
