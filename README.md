@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the multiple and the One!* — **Al-Fajr (89:3)**
+> 📖 *and say [unto him], 'Art thou desirous of attaining to purity?* — **An-Naazi'aat (79:18)**
 <!-- quran-verse-end -->
 
 ---
