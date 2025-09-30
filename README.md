@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[In such a paradise will they dwell,] reclining upon meadows green and carpets rich in beauty.* — **Ar-Rahmaan (55:76)**
+> 📖 *Consider the multiple and the One!* — **Al-Fajr (89:3)**
 <!-- quran-verse-end -->
 
 ---
