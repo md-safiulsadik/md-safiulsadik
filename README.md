@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, God’s are all the forces of the heavens and the earth; and God is indeed almighty, truly wise!* — **Al-Fath (48:7)**
+> 📖 *Nay, verily, it is against Our messages that he knowingly, stubbornly sets himself* — **Al-Muddaththir (74:16)**
 <!-- quran-verse-end -->
 
 ---
