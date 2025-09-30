@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [remember:] God creates [every one of] you out of dust, then out of a drop of sperm; and then He fashions you into either of the two sexes. And no female conceives or gives birth unless it be with His knowledge; and none that is long-lived has his days lengthened - and neither is aught lessened of his days - unless it be thus laid down in [God’s] decree: for, behold, all this is easy for God.* — **Faatir (35:11)**
+> 📖 *and who, when they have committed a shameful deed or have [otherwise] sinned against themselves, remember God and pray that their sins be forgiven - for who but God could forgive sins? - and do not knowingly persist in doing whatever [wrong] they may have done.* — **Aal-i-Imraan (3:135)**
 <!-- quran-verse-end -->
 
 ---
