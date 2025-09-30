@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, finally, [O Muhammad,] We have set thee on a way by which the purpose [of faith] may be fulfilled: so follow thou this [way], and follow not the likes and dislikes of those who do not know [the truth].* — **Al-Jaathiya (45:18)**
+> 📖 *Said [the sorcerers]: "O Moses! Either thou throw (thy staff first], or we shall be the first to throw."* — **Taa-Haa (20:65)**
 <!-- quran-verse-end -->
 
 ---
