@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *of one-half thereof - or make it a little less than that,* — **Al-Muzzammil (73:3)**
+> 📖 *Hence, whenever they consider thee, [O Muhammad,] they but make thee a target of their mockery, [saying:] “Is this the one whom God has sent as an apostle?* — **Al-Furqaan (25:41)**
 <!-- quran-verse-end -->
 
 ---
