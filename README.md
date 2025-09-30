@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Woe unto him who amasses wealth and counts it a safeguard,* — **Al-Humaza (104:2)**
+> 📖 *of one-half thereof - or make it a little less than that,* — **Al-Muzzammil (73:3)**
 <!-- quran-verse-end -->
 
 ---
