@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *As for them it is all the same whether thou dost pray that they be forgiven or dost not pray for them: God will nor forgive them - for, behold, God does not bestow His guidance upon such iniquitous folk.* — **Al-Munaafiqoon (63:6)**
+> 📖 *Then, when the night overshadowed him with its darkness, he beheld a star;., [and] he exclaimed, "This is my Sustainer!" -but when it went down, he said, "I love not the things that go down."* — **Al-An'aam (6:76)**
 <!-- quran-verse-end -->
 
 ---
