@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the seas burst beyond their bounds,* — **Al-Infitaar (82:3)**
+> 📖 *But factions from among those [who came after Jesus] began to hold divergent views: woe, then, unto those who are bent on evildoing - [woe] for the suffering [that will befall them] on a grie­vous Day!* — **Az-Zukhruf (43:65)**
 <!-- quran-verse-end -->
 
 ---
