@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for he was truly one of our believing servants.* — **As-Saaffaat (37:111)**
+> 📖 *and [since] they have no knowledge whatever thereof, they follow nothing but surmise: yet, behold, never can surmise take the place of truth.* — **An-Najm (53:28)**
 <!-- quran-verse-end -->
 
 ---
