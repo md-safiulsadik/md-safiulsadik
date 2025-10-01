@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, it is this [kind of man] that thrusts the orphan away,* — **Al-Maa'un (107:2)**
+> 📖 *gardens of perpetual bliss, through which running waters flow, therein to abide: for that shall be the recompense of all who attain to purity.* — **Taa-Haa (20:76)**
 <!-- quran-verse-end -->
 
 ---
