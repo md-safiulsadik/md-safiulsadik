@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [since] they have no knowledge whatever thereof, they follow nothing but surmise: yet, behold, never can surmise take the place of truth.* — **An-Najm (53:28)**
+> 📖 *Go on towards the threefold shadow* — **Al-Mursalaat (77:30)**
 <!-- quran-verse-end -->
 
 ---
