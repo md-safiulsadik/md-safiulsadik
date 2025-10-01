@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, We have bestowed upon thee good in abundance:* — **Al-Kawthar (108:1)**
+> 📖 *Woe, then, unto those praying ones* — **Al-Maa'un (107:4)**
 <!-- quran-verse-end -->
 
 ---
