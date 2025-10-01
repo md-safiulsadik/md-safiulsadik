@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *those who are niggardly [with God’s bounty] and bid others to be niggardly! And he who turns his back [on this truth ought to know that], verily, God alone is self-sufficient, the One to whom all praise is due!* — **Al-Hadid (57:24)**
+> 📖 *and verily, It is for Us to call them to account.* — **Al-Ghaashiya (88:26)**
 <!-- quran-verse-end -->
 
 ---
