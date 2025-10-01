@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said one of the two [daughters]: “O my father! Hire him: for, behold, the best [man] that thou couldst hire is one who is [as] strong and worthy of trust [as he]!”* — **Al-Qasas (28:26)**
+> 📖 *[and] to whom the dominion of the heavens and the earth belongs. But God is witness unto everything!* — **Al-Burooj (85:9)**
 <!-- quran-verse-end -->
 
 ---
