@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, by the Sustainer of heaven and earth, this [life after death] is the very truth - as true as that you are endowed with speech!* — **Adh-Dhaariyat (51:23)**
+> 📖 *As for these here -verily, their way of life is bound to lead to destruction; and worthless is all that they have ever done!"* — **Al-A'raaf (7:139)**
 <!-- quran-verse-end -->
 
 ---
