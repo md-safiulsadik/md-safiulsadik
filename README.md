@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Then, when the night overshadowed him with its darkness, he beheld a star;., [and] he exclaimed, "This is my Sustainer!" -but when it went down, he said, "I love not the things that go down."* — **Al-An'aam (6:76)**
+> 📖 *Said one of the two [daughters]: “O my father! Hire him: for, behold, the best [man] that thou couldst hire is one who is [as] strong and worthy of trust [as he]!”* — **Al-Qasas (28:26)**
 <!-- quran-verse-end -->
 
 ---
