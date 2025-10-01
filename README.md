@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said [Pharaoh]: "Have you come to believe in him ere I have given you permission? Verily, he must be your master who has taught you magic! But I shall most certainly cut off your hands and feet in great numbers, because of [your] perverseness, and I shall most certainly crucify you in great numbers on trunks of palm-trees: and [I shall do this] so that you might come to know for certain as to which of us [two] can inflict a more severe chastisement, and [which] is the more abiding!"* — **Taa-Haa (20:71)**
+> 📖 *for he was truly one of our believing servants.* — **As-Saaffaat (37:111)**
 <!-- quran-verse-end -->
 
 ---
