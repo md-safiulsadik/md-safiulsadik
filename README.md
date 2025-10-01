@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Woe, then, unto those praying ones* — **Al-Maa'un (107:4)**
+> 📖 *and the moon as it reflects the sun!* — **Ash-Shams (91:2)**
 <!-- quran-verse-end -->
 
 ---
