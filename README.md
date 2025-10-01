@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and verily, It is for Us to call them to account.* — **Al-Ghaashiya (88:26)**
+> 📖 *for, verily, He alone is all-hearing, all-knowing!* — **Ash-Shu'araa (26:220)**
 <!-- quran-verse-end -->
 
 ---
