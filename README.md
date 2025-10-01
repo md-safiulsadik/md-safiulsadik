@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Go on towards the threefold shadow* — **Al-Mursalaat (77:30)**
+> 📖 *for, by the Sustainer of heaven and earth, this [life after death] is the very truth - as true as that you are endowed with speech!* — **Adh-Dhaariyat (51:23)**
 <!-- quran-verse-end -->
 
 ---
