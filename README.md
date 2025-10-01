@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *As for these here -verily, their way of life is bound to lead to destruction; and worthless is all that they have ever done!"* — **Al-A'raaf (7:139)**
+> 📖 *and when the seas burst beyond their bounds,* — **Al-Infitaar (82:3)**
 <!-- quran-verse-end -->
 
 ---
