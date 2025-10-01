@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But unto the righteous God will say,] "O thou human being that hast attained to inner peace!* — **Al-Fajr (89:27)**
+> 📖 *Thereupon [Solomon] smiled joyously at her words, and said: “O my Sustainer! Inspire me so that I may forever be grateful for those blessings of Thine with which Thou hast graced me and my parents, and that I may do what is right [in a manner] that will please Thee; and include me, by Thy grace, among Thy righteous servants!”* — **An-Naml (27:19)**
 <!-- quran-verse-end -->
 
 ---
