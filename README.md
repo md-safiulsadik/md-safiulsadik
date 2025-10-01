@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And she has recognized the truth] although that which she has been wont to worship instead of God had kept her away [from the right path]: for, behold, she is descended of people who deny the truth!”* — **An-Naml (27:43)**
+> 📖 *[But unto the righteous God will say,] "O thou human being that hast attained to inner peace!* — **Al-Fajr (89:27)**
 <!-- quran-verse-end -->
 
 ---
