@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But] it may be that our Sustainer will grant us something better instead: for, verily, unto our Sustainer do we turn with hope!"* — **Al-Qalam (68:32)**
+> 📖 *[Now,] behold, for those who deny the truth We have readied chains and shackles, and a blazing flame* — **Al-Insaan (76:4)**
 <!-- quran-verse-end -->
 
 ---
