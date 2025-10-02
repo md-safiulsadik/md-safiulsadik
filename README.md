@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Now,] behold, for those who deny the truth We have readied chains and shackles, and a blazing flame* — **Al-Insaan (76:4)**
+> 📖 *And his Sustainer responded to his prayer, and freed him from the threat of their guile: verily, He alone is all-hearing, all-knowing.* — **Yusuf (12:34)**
 <!-- quran-verse-end -->
 
 ---
