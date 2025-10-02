@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said He: "Take hold of it, and fear not: We shall restore it to its former state.* — **Taa-Haa (20:21)**
+> 📖 *Consider the day as it reveals the world,* — **Ash-Shams (91:3)**
 <!-- quran-verse-end -->
 
 ---
