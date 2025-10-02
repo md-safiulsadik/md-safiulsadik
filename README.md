@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And his Sustainer responded to his prayer, and freed him from the threat of their guile: verily, He alone is all-hearing, all-knowing.* — **Yusuf (12:34)**
+> 📖 *which spared nothing of what it came upon, but caused [all of] it to become like bones dead and decayed.* — **Adh-Dhaariyat (51:42)**
 <!-- quran-verse-end -->
 
 ---
