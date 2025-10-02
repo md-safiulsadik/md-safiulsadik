@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *gardens of perpetual bliss, through which running waters flow, therein to abide: for that shall be the recompense of all who attain to purity.* — **Taa-Haa (20:76)**
+> 📖 *- and in their wickedness and self-exaltation they rejected them, although their minds were convinced of their truth: and behold what hap­pened in the end to those spreaders of corruption!* — **An-Naml (27:14)**
 <!-- quran-verse-end -->
 
 ---
