@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, on the Day when those who were bent on denying the truth will be brought within sight of the fire [and will be asked], “Is not this the truth?” - they will answer, “Yea, by Our Sustainer!” [And] He will say: “Taste, then, this suffering as an outcome of your denial of the truth!”* — **Al-Ahqaf (46:34)**
+> 📖 *VERILY, [O Muhammad,] We have sent thee as a witness [to the truth], and as a herald of glad tidings and a warner –* — **Al-Fath (48:8)**
 <!-- quran-verse-end -->
 
 ---
