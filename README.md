@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither do you worship that which I worship!* — **Al-Kaafiroon (109:3)**
+> 📖 *Indeed, he led me astray from the remembrance [of God] after it had come unto me!” For [thus it is:] Satan is ever a betrayer of man.* — **Al-Furqaan (25:29)**
 <!-- quran-verse-end -->
 
 ---
