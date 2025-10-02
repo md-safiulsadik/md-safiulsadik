@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and in awe [of God]* — **Abasa (80:9)**
+> 📖 *ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: His is all dominion, and to Him all praise is due; and He has the power to will anything.* — **At-Taghaabun (64:1)**
 <!-- quran-verse-end -->
 
 ---
