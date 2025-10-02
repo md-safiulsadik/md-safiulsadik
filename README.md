@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the sky is rent asunder,* — **Al-Mursalaat (77:9)**
+> 📖 *Must you really approach men with lust instead of women? Nay, but you are people without any awareness (of right and wrong)!”* — **An-Naml (27:55)**
 <!-- quran-verse-end -->
 
 ---
