@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Must you really approach men with lust instead of women? Nay, but you are people without any awareness (of right and wrong)!”* — **An-Naml (27:55)**
+> 📖 *Did I not enjoin on you, O you children of Adam, that you should not worship Satan – since, verily, he is your open foe* — **Yaseen (36:60)**
 <!-- quran-verse-end -->
 
 ---
