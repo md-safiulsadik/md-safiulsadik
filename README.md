@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which spared nothing of what it came upon, but caused [all of] it to become like bones dead and decayed.* — **Adh-Dhaariyat (51:42)**
+> 📖 *and in awe [of God]* — **Abasa (80:9)**
 <!-- quran-verse-end -->
 
 ---
