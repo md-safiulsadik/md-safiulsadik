@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Indeed, he led me astray from the remembrance [of God] after it had come unto me!” For [thus it is:] Satan is ever a betrayer of man.* — **Al-Furqaan (25:29)**
+> 📖 *and with [the tribe of] Thamud, who hollowed out rocks in the valley? –* — **Al-Fajr (89:9)**
 <!-- quran-verse-end -->
 
 ---
