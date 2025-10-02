@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, [O Muhammad,] We have sent thee as a witness [to the truth], and as a herald of glad tidings and a warner –* — **Al-Fath (48:8)**
+> 📖 *[But] it may be that our Sustainer will grant us something better instead: for, verily, unto our Sustainer do we turn with hope!"* — **Al-Qalam (68:32)**
 <!-- quran-verse-end -->
 
 ---
