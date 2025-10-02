@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [thus] spoke to his father and his people: “What is it that you worship?* — **As-Saaffaat (37:85)**
+> 📖 *and when the sky is rent asunder,* — **Al-Mursalaat (77:9)**
 <!-- quran-verse-end -->
 
 ---
