@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Did I not enjoin on you, O you children of Adam, that you should not worship Satan – since, verily, he is your open foe* — **Yaseen (36:60)**
+> 📖 *Said He: "Take hold of it, and fear not: We shall restore it to its former state.* — **Taa-Haa (20:21)**
 <!-- quran-verse-end -->
 
 ---
