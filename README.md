@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND REMEMBER that brother of [the tribe of] Ad, how - seeing that [other] warnings had already come and gone within his own knowledge as well as in times beyond his ken - he warned his people [who lived] among those sand-dunes: “Worship none but God! Verily, I fear lest suffering befall you on an awesome day!”* — **Al-Ahqaf (46:21)**
+> 📖 *and [thus] spoke to his father and his people: “What is it that you worship?* — **As-Saaffaat (37:85)**
 <!-- quran-verse-end -->
 
 ---
