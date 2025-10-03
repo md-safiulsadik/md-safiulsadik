@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And among His wonders is this: He creates for you mates out of your own kind. so that you might incline towards them, and He engenders love and tenderness between you: in this, behold, there are messages indeed for people who think!* — **Ar-Room (30:21)**
+> 📖 *AND ON THE DAY when He shall gather them [all] together, [He will say:] "O you who have lived in close communion with [evil] invisible beings! A great many [other] human beings have you ensnared! And those of the humans who were close to them will say: "O our Sustainer! We did enjoy one another's fellowship [in life]; but (now that] we have reached the end of our term-the term which Thou hast laid down for us - (we see the error of our ways]!" [But] He will say: "The fire shall be your abode, therein to abide-unless God wills it otherwise." Verily, thy Sustainer is wise, all-knowing.* — **Al-An'aam (6:128)**
 <!-- quran-verse-end -->
 
 ---
