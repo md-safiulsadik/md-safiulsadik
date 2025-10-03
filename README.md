@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“Verily, we are ruined!* — **Al-Waaqia (56:66)**
+> 📖 *If those [false objects of your worship] had truly been divine, they would not have been destined for it: but [as it is, you] all shall abide therein!”* — **Al-Anbiyaa (21:99)**
 <!-- quran-verse-end -->
 
 ---
