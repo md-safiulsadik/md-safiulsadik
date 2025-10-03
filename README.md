@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thou seest people enter God's religion in hosts,* — **An-Nasr (110:2)**
+> 📖 *and so I warn you of the raging fire -* — **Al-Lail (92:14)**
 <!-- quran-verse-end -->
 
 ---
