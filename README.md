@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God knows what any female bears [in her womb], and by how much the wombs may fall short [in gestation], and by how much they may increase [the average period]: for with Him everything is [created] in accordance with its scope and purpose.* — **Ar-Ra'd (13:8)**
+> 📖 *but all the while God encompasses them [with His knowledge and might] without their being aware of it.* — **Al-Burooj (85:20)**
 <!-- quran-verse-end -->
 
 ---
