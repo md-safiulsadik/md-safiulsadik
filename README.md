@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[It was they] who transgressed all bounds of equity all over their lands,* — **Al-Fajr (89:11)**
+> 📖 *“Verily, we are ruined!* — **Al-Waaqia (56:66)**
 <!-- quran-verse-end -->
 
 ---
