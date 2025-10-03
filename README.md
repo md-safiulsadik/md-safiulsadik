@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *If those [false objects of your worship] had truly been divine, they would not have been destined for it: but [as it is, you] all shall abide therein!”* — **Al-Anbiyaa (21:99)**
+> 📖 *the Day when none of their scheming will be of the least avail to them, and they will receive no succour.* — **At-Tur (52:46)**
 <!-- quran-verse-end -->
 
 ---
