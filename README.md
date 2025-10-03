@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and so I warn you of the raging fire -* — **Al-Lail (92:14)**
+> 📖 *[It was they] who transgressed all bounds of equity all over their lands,* — **Al-Fajr (89:11)**
 <!-- quran-verse-end -->
 
 ---
