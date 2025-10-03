@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, verily, this community of yours is one single community, since I am the Sustainer of you all: remain, then, conscious of Me!* — **Al-Muminoon (23:52)**
+> 📖 *AND SET FORTH unto them a parable - [the story of how] the people of a township [behaved] when [Our] message-bearers came unto them.* — **Yaseen (36:13)**
 <!-- quran-verse-end -->
 
 ---
