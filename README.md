@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WOE unto every slanderer, fault-finder!* — **Al-Humaza (104:1)**
+> 📖 *and with Pharaoh of the [many] tent-poles?* — **Al-Fajr (89:10)**
 <!-- quran-verse-end -->
 
 ---
