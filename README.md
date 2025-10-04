@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the Day of Judgment we were wont to call a lie –* — **Al-Muddaththir (74:46)**
+> 📖 *Nay, but [by the very act of creation] We hurl the truth against falsehood, and it crushes the latter: and lo! it withers away. But woe unto you for all your [attempts at] defining [God] –* — **Al-Anbiyaa (21:18)**
 <!-- quran-verse-end -->
 
 ---
