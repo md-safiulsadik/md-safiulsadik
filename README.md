@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for that [resurrection which they deride] will be [upon them of a sudden, as if it were] but a single accusing cry - and then, lo! they will begin to see [the truth]* — **As-Saaffaat (37:19)**
+> 📖 *and thereupon We shall, indeed, draw forth from every group [of sinners] the ones that had been most determined in their disdainful rebellion against the Most Gracious:* — **Maryam (19:69)**
 <!-- quran-verse-end -->
 
 ---
