@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereupon We shall, indeed, draw forth from every group [of sinners] the ones that had been most determined in their disdainful rebellion against the Most Gracious:* — **Maryam (19:69)**
+> 📖 *Now from the very beginning We caused him to refuse the breast of [Egyptian] nurses; and [when his sister came to know this,] she said: “Shall I guide you to a family that might rear him for you, and look after him with good will?”* — **Al-Qasas (28:12)**
 <!-- quran-verse-end -->
 
 ---
