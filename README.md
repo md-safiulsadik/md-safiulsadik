@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the mountains [its] pegs?* — **An-Naba (78:7)**
+> 📖 *And yet, if but a breath of thy Sustainer’s chastisement touches them, they are sure to cry, “Oh, woe unto us! Verily, we were evildoers!”* — **Al-Anbiyaa (21:46)**
 <!-- quran-verse-end -->
 
 ---
