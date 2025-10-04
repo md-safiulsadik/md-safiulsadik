@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, it is this [kind of man] that thrusts the orphan away,* — **Al-Maa'un (107:2)**
+> 📖 *Does man think that We cannot [resurrect him and] bring his bones together again?* — **Al-Qiyaama (75:3)**
 <!-- quran-verse-end -->
 
 ---
