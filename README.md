@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but all the while God encompasses them [with His knowledge and might] without their being aware of it.* — **Al-Burooj (85:20)**
+> 📖 *NAY! I call to witness the Day of Resurrection!* — **Al-Qiyaama (75:1)**
 <!-- quran-verse-end -->
 
 ---
