@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and he is not one to begrudge others the knowledge [of whatever has been revealed to him] out of that which is beyond the reach of human Perception.* — **At-Takwir (81:24)**
+> 📖 *nor is this difficult for God.* — **Ibrahim (14:20)**
 <!-- quran-verse-end -->
 
 ---
