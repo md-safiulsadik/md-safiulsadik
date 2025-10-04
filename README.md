@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[As against this,] verily, those who attain to faith and do righteous deeds shall have gardens of bliss,* — **Luqman (31:8)**
+> 📖 *for that [resurrection which they deride] will be [upon them of a sudden, as if it were] but a single accusing cry - and then, lo! they will begin to see [the truth]* — **As-Saaffaat (37:19)**
 <!-- quran-verse-end -->
 
 ---
