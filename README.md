@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY [O Prophet]: "What do you think? Whether God destroys me and those who follow me, or graces us with His mercy - is there anyone that could protect [you] deniers of the truth from grievous suffering [in the life to come]?"* — **Al-Mulk (67:28)**
+> 📖 *And Noah called out to his Sustainer, and said: "O my Sustainer! Verily, my son was of my family; and, verily, Thy promise always comes true, and Thou art the most just of all judges!"* — **Hud (11:45)**
 <!-- quran-verse-end -->
 
 ---
