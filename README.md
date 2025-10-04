@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet, if but a breath of thy Sustainer’s chastisement touches them, they are sure to cry, “Oh, woe unto us! Verily, we were evildoers!”* — **Al-Anbiyaa (21:46)**
+> 📖 *and he is not one to begrudge others the knowledge [of whatever has been revealed to him] out of that which is beyond the reach of human Perception.* — **At-Takwir (81:24)**
 <!-- quran-verse-end -->
 
 ---
