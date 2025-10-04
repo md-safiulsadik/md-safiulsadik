@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER Mount Sinai!* — **At-Tur (52:1)**
+> 📖 *Have these [images], perchance, feet on which they could walk? Or have they hands with which they could grasp? Or have they eyes with which they could see? Or have they ears with which they could hear? Say [O Prophet]: "Summon to your aid all those to whom you ascribe a share in God's divinity, and thereupon contrive [anything you may wish] against me, and give me no respite!* — **Al-A'raaf (7:195)**
 <!-- quran-verse-end -->
 
 ---
