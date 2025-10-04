@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now from the very beginning We caused him to refuse the breast of [Egyptian] nurses; and [when his sister came to know this,] she said: “Shall I guide you to a family that might rear him for you, and look after him with good will?”* — **Al-Qasas (28:12)**
+> 📖 *SAY [O Prophet]: "What do you think? Whether God destroys me and those who follow me, or graces us with His mercy - is there anyone that could protect [you] deniers of the truth from grievous suffering [in the life to come]?"* — **Al-Mulk (67:28)**
 <!-- quran-verse-end -->
 
 ---
