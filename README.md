@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thus they had to taste the evil outcome of their own doing: for, [in this world,] the end of their doings was ruin,* — **At-Talaaq (65:9)**
+> 📖 *[As against this,] verily, those who attain to faith and do righteous deeds shall have gardens of bliss,* — **Luqman (31:8)**
 <!-- quran-verse-end -->
 
 ---
