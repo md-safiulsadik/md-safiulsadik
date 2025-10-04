@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but [by the very act of creation] We hurl the truth against falsehood, and it crushes the latter: and lo! it withers away. But woe unto you for all your [attempts at] defining [God] –* — **Al-Anbiyaa (21:18)**
+> 📖 *CONSIDER Mount Sinai!* — **At-Tur (52:1)**
 <!-- quran-verse-end -->
 
 ---
