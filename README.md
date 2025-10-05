@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
+> 📖 *[and] those who do not spend in charity: for it is they, they who [thus] deny the truth of the life to come!* — **Fussilat (41:7)**
 <!-- quran-verse-end -->
 
 ---
