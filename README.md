@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Woe unto him who amasses wealth and counts it a safeguard,* — **Al-Humaza (104:2)**
+> 📖 *Thus will they come to realize their sins: but [by that time,] remote will have become all good from those who are destined for the blazing flame.* — **Al-Mulk (67:11)**
 <!-- quran-verse-end -->
 
 ---
