@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And He it is who has caused waters to come down from the sky; and by this means have We brought forth all living growth, and out of this have We brought forth verdure. Out of this do We bring forth close-growing grain; and out of the spathe of the palm tree, dates in thick clusters; and gardens of vines, and the olive tree, and the pomegranate: [all] so alike, and yet so different! Behold their fruit when it comes to fruition and ripens! Verily, in all this there are messages indeed for people who will believe!* — **Al-An'aam (6:99)**
+> 📖 *and neither will you [ever] worship that which I worship.* — **Al-Kaafiroon (109:5)**
 <!-- quran-verse-end -->
 
 ---
