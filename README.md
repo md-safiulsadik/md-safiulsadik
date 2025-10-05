@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Woe unto every sinful self-deceiver* — **Al-Jaathiya (45:7)**
+> 📖 *and if they turn away [from righteousness], know that God is your Lord Supreme: [and] how excellent is this Lord Supreme, and how excellent this Giver of Succour!* — **Al-Anfaal (8:40)**
 <!-- quran-verse-end -->
 
 ---
