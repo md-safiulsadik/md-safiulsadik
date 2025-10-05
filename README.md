@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *as thy Sustainer will have inspired her to do!* — **Az-Zalzala (99:5)**
+> 📖 *this, verily, shall be Our provision [for you], with no end to it!* — **Saad (38:54)**
 <!-- quran-verse-end -->
 
 ---
