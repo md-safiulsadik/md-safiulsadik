@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *this, verily, shall be Our provision [for you], with no end to it!* — **Saad (38:54)**
+> 📖 *What is amiss with you? On what do you base your judgment [of right and wrong]?* — **Al-Qalam (68:36)**
 <!-- quran-verse-end -->
 
 ---
