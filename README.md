@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say [O Muhammad]: “He who knows all the mysteries of the heavens and the earth has bestowed from on high this [Qur’an upon me]! Verily, He is much-forgiving, a dispenser of grace!”* — **Al-Furqaan (25:6)**
+> 📖 *We have [indeed] decreed that death shall be [ever-present] among you: but there is nothing to prevent Us* — **Al-Waaqia (56:60)**
 <!-- quran-verse-end -->
 
 ---
