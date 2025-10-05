@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *What is amiss with you? On what do you base your judgment [of right and wrong]?* — **Al-Qalam (68:36)**
+> 📖 *taught man what he did not know!* — **Al-Alaq (96:5)**
 <!-- quran-verse-end -->
 
 ---
