@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, everything have We created in due measure and proportion;* — **Al-Qamar (54:49)**
+> 📖 *And give his due to the near of kin, as well as to the needy and the wayfarer, but do not squander [thy substance] senselessly.* — **Al-Israa (17:26)**
 <!-- quran-verse-end -->
 
 ---
