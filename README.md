@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Hence,] let the women [who are undergoing a waiting-period] live in the same manner as you live yourselves, In accordance with your means; and do not harass them with a view to making their lives a misery. And if they happen to be with child, spend freely on them until they deliver their burden; and if they nurse your offspring [after the divorce has become final], give them their [due] recompense; and take counsel with one another in a fair manner [about the child's future]. And if both of you find it difficult [that the mother should nurse the child], let another woman nurse it on behalf of him [who has begotten it].* — **At-Talaaq (65:6)**
+> 📖 *BEHOLD, everything have We created in due measure and proportion;* — **Al-Qamar (54:49)**
 <!-- quran-verse-end -->
 
 ---
