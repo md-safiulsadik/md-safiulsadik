@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [always] listen for the day when He who issues the call [of death] shall call [thee] from close-by;* — **Qaaf (50:41)**
+> 📖 *Woe unto every sinful self-deceiver* — **Al-Jaathiya (45:7)**
 <!-- quran-verse-end -->
 
 ---
