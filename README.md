@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [remember] Lot, when he said unto his people: "Will you commit abominations such as none in all the world has ever done before you?* — **Al-A'raaf (7:80)**
+> 📖 *rushing to assault at morn,* — **Al-Aadiyaat (100:3)**
 <!-- quran-verse-end -->
 
 ---
