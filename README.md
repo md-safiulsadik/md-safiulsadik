@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, towards his Sustainer man is most ungrateful* — **Al-Aadiyaat (100:6)**
+> 📖 *[But,] behold, as for those who attain to faith and do righteous deeds-verily, We do not fail to requite any who persevere in doing good:* — **Al-Kahf (18:30)**
 <!-- quran-verse-end -->
 
 ---
