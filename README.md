@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *those who, when they are to receive their due from [other] people, demand that it be given in full –* — **Al-Mutaffifin (83:2)**
+> 📖 *And some [of the unbelievers] say, "There is nothing beyond our life in this world, for We shall not be raised from the dead."* — **Al-An'aam (6:29)**
 <!-- quran-verse-end -->
 
 ---
