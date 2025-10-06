@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God wants to lighten your burdens: for man has been created weak.* — **An-Nisaa (4:28)**
+> 📖 *VERILY, towards his Sustainer man is most ungrateful* — **Al-Aadiyaat (100:6)**
 <!-- quran-verse-end -->
 
 ---
