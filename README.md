@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, in time you will come to understand!* — **At-Takaathur (102:3)**
+> 📖 *Say: "Can you see yourselves invoking any but God when God's chastisement befalls you [in this world], or the Last Hour comes upon you? [Tell me this,] if you are men of truth!* — **Al-An'aam (6:40)**
 <!-- quran-verse-end -->
 
 ---
