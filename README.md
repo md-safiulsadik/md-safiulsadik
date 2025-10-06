@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[If so,] I will punish him most severely or will kill him unless he bring me a convincing excuse!”* — **An-Naml (27:21)**
+> 📖 *What, then, is amiss with them that they will not believe [in a life to come]?* — **Al-Inshiqaaq (84:20)**
 <!-- quran-verse-end -->
 
 ---
