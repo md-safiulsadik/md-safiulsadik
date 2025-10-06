@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But,] behold, as for those who attain to faith and do righteous deeds-verily, We do not fail to requite any who persevere in doing good:* — **Al-Kahf (18:30)**
+> 📖 *And what could make thee conceive what that sudden calamity will be?* — **Al-Qaari'a (101:3)**
 <!-- quran-verse-end -->
 
 ---
