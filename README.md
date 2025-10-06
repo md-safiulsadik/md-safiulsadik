@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHEN GOD'S SUCCOUR comes, and victory,* — **An-Nasr (110:1)**
+> 📖 *verily, it will close in upon them* — **Al-Humaza (104:8)**
 <!-- quran-verse-end -->
 
 ---
