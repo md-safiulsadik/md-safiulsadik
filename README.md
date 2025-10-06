@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Lo! [With glee do] they contemplate that [fire],* — **Al-Burooj (85:6)**
+> 📖 *God wants to lighten your burdens: for man has been created weak.* — **An-Nisaa (4:28)**
 <!-- quran-verse-end -->
 
 ---
