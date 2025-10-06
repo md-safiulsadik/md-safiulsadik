@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *What, then, is amiss with them that they will not believe [in a life to come]?* — **Al-Inshiqaaq (84:20)**
+> 📖 *those who, when they are to receive their due from [other] people, demand that it be given in full –* — **Al-Mutaffifin (83:2)**
 <!-- quran-verse-end -->
 
 ---
