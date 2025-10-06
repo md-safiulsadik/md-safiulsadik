@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, he that hates thee has indeed been cut off [from all that is good]!* — **Al-Kawthar (108:3)**
+> 📖 *They exclaimed: But we found our fore­fathers doing the same!”* — **Ash-Shu'araa (26:74)**
 <!-- quran-verse-end -->
 
 ---
