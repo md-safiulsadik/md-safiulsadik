@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And some [of the unbelievers] say, "There is nothing beyond our life in this world, for We shall not be raised from the dead."* — **Al-An'aam (6:29)**
+> 📖 *or is concerned with God-consciousness?* — **Al-Alaq (96:12)**
 <!-- quran-verse-end -->
 
 ---
