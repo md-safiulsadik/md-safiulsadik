@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *through God’s bounty and favour; and God is all-knowing, truly wise.* — **Al-Hujuraat (49:8)**
+> 📖 *Is it because he is possessed of worldly goods and children* — **Al-Qalam (68:14)**
 <!-- quran-verse-end -->
 
 ---
