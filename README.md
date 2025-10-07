@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus have We destroyed many a [sinful] community living round about you; and yet, [before destroying them,] We had given many facets to [Our warning] messages, so that they might turn back [from their evil ways].* — **Al-Ahqaf (46:27)**
+> 📖 *who makes most excellent everything that He creates. Thus, He begins the creation of man out of clay;* — **As-Sajda (32:7)**
 <!-- quran-verse-end -->
 
 ---
