@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for those who break their bond with God after it has been established [in their nature], and cut asunder what God has bidden to be joined, and spread corruption on earth -their due is rejection [by God], and theirs is a most evil fate [in the life to come].* — **Ar-Ra'd (13:25)**
+> 📖 *Now those who have been vouchsafed revelation aforetime did break up their unity [of faith] after such an evidence of the truth had come to them.* — **Al-Bayyina (98:4)**
 <!-- quran-verse-end -->
 
 ---
