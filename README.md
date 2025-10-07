@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And when they meet those who have attained to faith, they assert, "We believe [as you believe]"; but when they find themselves alone with their- evil impulses, they say, "Verily, we are with you; we were only mocking!"* — **Al-Baqara (2:14)**
+> 📖 *Thus have We destroyed many a [sinful] community living round about you; and yet, [before destroying them,] We had given many facets to [Our warning] messages, so that they might turn back [from their evil ways].* — **Al-Ahqaf (46:27)**
 <!-- quran-verse-end -->
 
 ---
