@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Is it because he is possessed of worldly goods and children* — **Al-Qalam (68:14)**
+> 📖 *so that He might reward, out of His bounty, those who have attained to faith and done righteous deeds. Verily, He does not love those who refuse to acknowledge the truth –* — **Ar-Room (30:45)**
 <!-- quran-verse-end -->
 
 ---
