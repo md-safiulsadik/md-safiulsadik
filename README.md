@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *To a happy state shall indeed attain he who causes this [self] to grow in purity,* — **Ash-Shams (91:9)**
+> 📖 *But as for those who break their bond with God after it has been established [in their nature], and cut asunder what God has bidden to be joined, and spread corruption on earth -their due is rejection [by God], and theirs is a most evil fate [in the life to come].* — **Ar-Ra'd (13:25)**
 <!-- quran-verse-end -->
 
 ---
