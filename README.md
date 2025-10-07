@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *or is concerned with God-consciousness?* — **Al-Alaq (96:12)**
+> 📖 *in endless columns!* — **Al-Humaza (104:9)**
 <!-- quran-verse-end -->
 
 ---
