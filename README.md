@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Is not God the most just of judges?* — **At-Tin (95:8)**
+> 📖 *And as for those who have attained to faith and whose offspring will have followed them in faith, We shall unite them with their offspring; and We shall not let aught of their deeds go to waste: [but] every human being will be held in pledge for whatever he has earned.* — **At-Tur (52:21)**
 <!-- quran-verse-end -->
 
 ---
