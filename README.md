@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And if it distress thee that those who deny the truth turn their backs on thee - why, then, if thou art able to go down deep into the earth or to ascend a ladder unto heaven in order to bring them a [yet more convincing] message, [do so;] but [remember that] had God so willed, He would indeed have gathered them all unto [His] guidance. Do not, therefore, allow thyself to ignore [God's ways].* — **Al-An'aam (6:35)**
+> 📖 *through God’s bounty and favour; and God is all-knowing, truly wise.* — **Al-Hujuraat (49:8)**
 <!-- quran-verse-end -->
 
 ---
