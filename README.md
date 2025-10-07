@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, he did not believe in God, the Tremendous,* — **Al-Haaqqa (69:33)**
+> 📖 *And when they meet those who have attained to faith, they assert, "We believe [as you believe]"; but when they find themselves alone with their- evil impulses, they say, "Verily, we are with you; we were only mocking!"* — **Al-Baqara (2:14)**
 <!-- quran-verse-end -->
 
 ---
