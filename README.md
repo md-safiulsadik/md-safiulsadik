@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is the star that pierces through [life's] darkness:* — **At-Taariq (86:3)**
+> 📖 *For, distant from it shall remain he who is truly conscious of God:* — **Al-Lail (92:17)**
 <!-- quran-verse-end -->
 
 ---
