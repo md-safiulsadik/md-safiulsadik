@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [some of] Pharaoh’s household found [and spared] him: for [We had willed] that he becomes an enemy unto them and [a source of] grief, seeing that Pharaoh and Haman and their hosts were sinners indeed!* — **Al-Qasas (28:8)**
+> 📖 *for, behold, he did not believe in God, the Tremendous,* — **Al-Haaqqa (69:33)**
 <!-- quran-verse-end -->
 
 ---
