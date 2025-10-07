@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *in endless columns!* — **Al-Humaza (104:9)**
+> 📖 *And [some of] Pharaoh’s household found [and spared] him: for [We had willed] that he becomes an enemy unto them and [a source of] grief, seeing that Pharaoh and Haman and their hosts were sinners indeed!* — **Al-Qasas (28:8)**
 <!-- quran-verse-end -->
 
 ---
