@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now those who have been vouchsafed revelation aforetime did break up their unity [of faith] after such an evidence of the truth had come to them.* — **Al-Bayyina (98:4)**
+> 📖 *and when some of them said, “O you people of Yathrib! You cannot withstand [the enemy] here: hence, go back [to your homes]!” — Whereupon a party from among them asked leave of the Prophet, saying, “Behold, our houses are exposed [to attack]!” — The while they were not [really] exposed: they wanted nothing but to flee.* — **Al-Ahzaab (33:13)**
 <!-- quran-verse-end -->
 
 ---
