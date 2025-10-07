@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when some of them said, “O you people of Yathrib! You cannot withstand [the enemy] here: hence, go back [to your homes]!” — Whereupon a party from among them asked leave of the Prophet, saying, “Behold, our houses are exposed [to attack]!” — The while they were not [really] exposed: they wanted nothing but to flee.* — **Al-Ahzaab (33:13)**
+> 📖 *As for such [of the unbelievers] as do not fight against you on account of [your] faith, and neither drive you forth from your homelands, God does not forbid you to show them kindness and to behave towards them with full equity: for, verily, God loves those who act equitably.* — **Al-Mumtahana (60:8)**
 <!-- quran-verse-end -->
 
 ---
