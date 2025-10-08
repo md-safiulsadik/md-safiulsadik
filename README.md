@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[for] thus do We deal with such as are lost in sin.* — **Al-Mursalaat (77:18)**
+> 📖 *and ever nearer unto thee, and nearer!* — **Al-Qiyaama (75:35)**
 <!-- quran-verse-end -->
 
 ---
