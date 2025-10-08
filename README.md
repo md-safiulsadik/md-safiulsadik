@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And immortal youths will wait upon them: when thou seest them, thou wouldst deem them to be scattered pearls;* — **Al-Insaan (76:19)**
+> 📖 *And Noah prayed: "O my Sustainer! Leave not on earth any of those who deny the truth:* — **Nooh (71:26)**
 <!-- quran-verse-end -->
 
 ---
