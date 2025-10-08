@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [to cause this message to spread] from them unto other people as soon as they come into contact with them: for He alone is almighty, truly wise!* — **Al-Jumu'a (62:3)**
+> 📖 *O children of Adam! Do not allow Satan to seduce you in the same way as he caused your ancestors to be driven out of the garden: he deprived them of their garment [of God-consciousness] in order to make them aware of their nakedness. Verily, he and his tribe are lying in wait for you where you cannot perceive them! Verily, We have placed [all manner of] satanic forces near unto those who do not [truly] believe;* — **Al-A'raaf (7:27)**
 <!-- quran-verse-end -->
 
 ---
