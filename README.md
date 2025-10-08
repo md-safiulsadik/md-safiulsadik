@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Is not God the most just of judges?* — **At-Tin (95:8)**
+> 📖 *and [to cause this message to spread] from them unto other people as soon as they come into contact with them: for He alone is almighty, truly wise!* — **Al-Jumu'a (62:3)**
 <!-- quran-verse-end -->
 
 ---
