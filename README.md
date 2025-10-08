@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] Noah continued: "O my Sustainer! Behold, they have opposed me [throughout], for they follow people whose wealth and children lead them increasingly into ruin,* — **Nooh (71:21)**
+> 📖 *Is not God the most just of judges?* — **At-Tin (95:8)**
 <!-- quran-verse-end -->
 
 ---
