@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so it is that thy Sustainer would never destroy a community for its wrongdoing so long as its people are still unaware [of the meaning of right and wrong]:* — **Al-An'aam (6:131)**
+> 📖 *When you will have returned to them, (O believers,] they will swear to you by God, [repeating their excuses,] with a view to your letting them be. Let them be, then: behold, they are loathsome, and hell is their goal in recompense for what they were wont to do.* — **At-Tawba (9:95)**
 <!-- quran-verse-end -->
 
 ---
