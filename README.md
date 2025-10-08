@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, [in the life to come] the truly virtuous: will indeed be in bliss,* — **Al-Infitaar (82:13)**
+> 📖 *On the other hand, could one on whom [God’s] sentence of suffering has been passed [be rescued by man]? Couldst thou, perchance, save one who is [already, as it were,] in the fire?* — **Az-Zumar (39:19)**
 <!-- quran-verse-end -->
 
 ---
