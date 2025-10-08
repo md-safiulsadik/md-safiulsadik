@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On the other hand, could one on whom [God’s] sentence of suffering has been passed [be rescued by man]? Couldst thou, perchance, save one who is [already, as it were,] in the fire?* — **Az-Zumar (39:19)**
+> 📖 *Does he, then, think that no one has power over him?* — **Al-Balad (90:5)**
 <!-- quran-verse-end -->
 
 ---
