@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And Noah prayed: "O my Sustainer! Leave not on earth any of those who deny the truth:* — **Nooh (71:26)**
+> 📖 *whereupon, behold, these [evil impulses] bar all such from the path [of truth], making them think that they are guided aright!* — **Az-Zukhruf (43:37)**
 <!-- quran-verse-end -->
 
 ---
