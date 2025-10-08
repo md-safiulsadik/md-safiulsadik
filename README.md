@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereupon, behold, these [evil impulses] bar all such from the path [of truth], making them think that they are guided aright!* — **Az-Zukhruf (43:37)**
+> 📖 *And so it is that thy Sustainer would never destroy a community for its wrongdoing so long as its people are still unaware [of the meaning of right and wrong]:* — **Al-An'aam (6:131)**
 <!-- quran-verse-end -->
 
 ---
