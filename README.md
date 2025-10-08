@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O children of Adam! Do not allow Satan to seduce you in the same way as he caused your ancestors to be driven out of the garden: he deprived them of their garment [of God-consciousness] in order to make them aware of their nakedness. Verily, he and his tribe are lying in wait for you where you cannot perceive them! Verily, We have placed [all manner of] satanic forces near unto those who do not [truly] believe;* — **Al-A'raaf (7:27)**
+> 📖 *[for] thus do We deal with such as are lost in sin.* — **Al-Mursalaat (77:18)**
 <!-- quran-verse-end -->
 
 ---
