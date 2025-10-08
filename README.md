@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and ever nearer unto thee, and nearer!* — **Al-Qiyaama (75:35)**
+> 📖 *And immortal youths will wait upon them: when thou seest them, thou wouldst deem them to be scattered pearls;* — **Al-Insaan (76:19)**
 <!-- quran-verse-end -->
 
 ---
