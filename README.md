@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "I seek refuge with the Sustainer of men,* — **An-Naas (114:1)**
+> 📖 *[And] Noah continued: "O my Sustainer! Behold, they have opposed me [throughout], for they follow people whose wealth and children lead them increasingly into ruin,* — **Nooh (71:21)**
 <!-- quran-verse-end -->
 
 ---
