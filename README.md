@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now the wife of Pharaoh said: “A joy to the eye [could this child be] for me and thee! Slay him not: he may well be of use to us, or we may adopt him as a son!” And they had no presentiment [of what he was to become].* — **Al-Qasas (28:9)**
+> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
 <!-- quran-verse-end -->
 
 ---
