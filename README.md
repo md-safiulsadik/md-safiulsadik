@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Does he, then, think that no one has power over him?* — **Al-Balad (90:5)**
+> 📖 *SAY: "I seek refuge with the Sustainer of men,* — **An-Naas (114:1)**
 <!-- quran-verse-end -->
 
 ---
