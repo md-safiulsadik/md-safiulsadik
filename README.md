@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *you will indeed have to taste of the tree of deadly fruit,* — **Al-Waaqia (56:52)**
+> 📖 *wherein he will neither die nor remain alive.* — **Al-A'laa (87:13)**
 <!-- quran-verse-end -->
 
 ---
