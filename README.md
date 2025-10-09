@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, [many are] they [who] say, “What! After we have been [dead and] lost in the earth, shall we indeed be [restored to life] in a new act of crea­tion?” Nay, but [by saying this] they deny the truth that they are destined to meet their Sustainer!* — **As-Sajda (32:10)**
+> 📖 *Said He: “We shall strengthen thine arm through thy brother, and endow both of you with power, so that they will not be able to touch you: by virtue of Our messages shall you two, and all who follow you, prevail!”* — **Al-Qasas (28:35)**
 <!-- quran-verse-end -->
 
 ---
