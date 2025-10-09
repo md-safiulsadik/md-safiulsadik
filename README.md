@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and unto thy Sustainer turn with love.* — **Ash-Sharh (94:8)**
+> 📖 *and would pray for forgiveness from their innermost hearts;* — **Adh-Dhaariyat (51:18)**
 <!-- quran-verse-end -->
 
 ---
