@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[for] no human being has ever been left unguarded.* — **At-Taariq (86:4)**
+> 📖 *IF THOU couldst but see [how the deniers of the truth will fare on Resurrection Day,] when they will shrink in terror, with nowhere to escape - since they will have been seized from so close nearby* — **Saba (34:51)**
 <!-- quran-verse-end -->
 
 ---
