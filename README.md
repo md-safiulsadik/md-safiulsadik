@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O wives of the Prophet! If any of you were to become guilty of manifestly immoral conduct, double [that of other sinners] would be her suffering [in the hereafter]: for that is indeed easy for God.* — **Al-Ahzaab (33:30)**
+> 📖 *For, [many are] they [who] say, “What! After we have been [dead and] lost in the earth, shall we indeed be [restored to life] in a new act of crea­tion?” Nay, but [by saying this] they deny the truth that they are destined to meet their Sustainer!* — **As-Sajda (32:10)**
 <!-- quran-verse-end -->
 
 ---
