@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whenever he believes himself to be self-sufficient:* — **Al-Alaq (96:7)**
+> 📖 *Say: "Verily, they who attribute their own lying inventions to God will never attain to a happy state!"* — **Yunus (10:69)**
 <!-- quran-verse-end -->
 
 ---
