@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *sparks of fire striking,* — **Al-Aadiyaat (100:2)**
+> 📖 *O wives of the Prophet! If any of you were to become guilty of manifestly immoral conduct, double [that of other sinners] would be her suffering [in the hereafter]: for that is indeed easy for God.* — **Al-Ahzaab (33:30)**
 <!-- quran-verse-end -->
 
 ---
