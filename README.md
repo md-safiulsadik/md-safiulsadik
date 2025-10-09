@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THEY DESTROY [but] themselves, they who would ready a pit* — **Al-Burooj (85:4)**
+> 📖 *you will indeed have to taste of the tree of deadly fruit,* — **Al-Waaqia (56:52)**
 <!-- quran-verse-end -->
 
 ---
