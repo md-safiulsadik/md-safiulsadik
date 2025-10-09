@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said He: “We shall strengthen thine arm through thy brother, and endow both of you with power, so that they will not be able to touch you: by virtue of Our messages shall you two, and all who follow you, prevail!”* — **Al-Qasas (28:35)**
+> 📖 *and the moon, as it grows to its fullness:* — **Al-Inshiqaaq (84:18)**
 <!-- quran-verse-end -->
 
 ---
