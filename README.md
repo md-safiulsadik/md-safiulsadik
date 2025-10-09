@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NAY! I call to witness this land –* — **Al-Balad (90:1)**
+> 📖 *Out of a drop of sperm He creates him, and thereupon determines his nature,* — **Abasa (80:19)**
 <!-- quran-verse-end -->
 
 ---
