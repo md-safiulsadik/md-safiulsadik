@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And their leaders launch forth [thus]: “Go ahead, and hold steadfastly onto your deities: this, behold, is the only thing to do!* — **Saad (38:6)**
+> 📖 *and unto thy Sustainer turn with love.* — **Ash-Sharh (94:8)**
 <!-- quran-verse-end -->
 
 ---
