@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *wherein he will neither die nor remain alive.* — **Al-A'laa (87:13)**
+> 📖 *NAY! I call to witness this land –* — **Al-Balad (90:1)**
 <!-- quran-verse-end -->
 
 ---
