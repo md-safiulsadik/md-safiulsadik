@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They have made their oaths a cover [for their falseness], and thus they turn others away from the Path of God. Evil indeed is all that they are wont to do:* — **Al-Munaafiqoon (63:2)**
+> 📖 *whenever he believes himself to be self-sufficient:* — **Al-Alaq (96:7)**
 <!-- quran-verse-end -->
 
 ---
