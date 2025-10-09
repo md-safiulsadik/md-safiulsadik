@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *IF THOU couldst but see [how the deniers of the truth will fare on Resurrection Day,] when they will shrink in terror, with nowhere to escape - since they will have been seized from so close nearby* — **Saba (34:51)**
+> 📖 *[NOW,] BEHOLD, Qarun was one of the people of Moses; but he arrogantly exalted himself above them - simply because We had granted him such riches that his treasure-chests alone would surely have been too heavy a burden for a troop of ten men or even more. When [they perceived his arrogance,] his people said unto him: “Exult not [in thy wealth], for, verily, God does not love those who exult [in things vain]!* — **Al-Qasas (28:76)**
 <!-- quran-verse-end -->
 
 ---
