@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[NOW,] BEHOLD, Qarun was one of the people of Moses; but he arrogantly exalted himself above them - simply because We had granted him such riches that his treasure-chests alone would surely have been too heavy a burden for a troop of ten men or even more. When [they perceived his arrogance,] his people said unto him: “Exult not [in thy wealth], for, verily, God does not love those who exult [in things vain]!* — **Al-Qasas (28:76)**
+> 📖 *But they gave him the lie, and cruelly slaughtered her - whereupon their Sustainer visited them with utter destruction for this their sin, destroying them all alike:* — **Ash-Shams (91:14)**
 <!-- quran-verse-end -->
 
 ---
