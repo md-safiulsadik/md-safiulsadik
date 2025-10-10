@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "Verily, they who attribute their own lying inventions to God will never attain to a happy state!"* — **Yunus (10:69)**
+> 📖 *knowing all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind - the Almighty, the Wise!* — **At-Taghaabun (64:18)**
 <!-- quran-verse-end -->
 
 ---
