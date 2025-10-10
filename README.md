@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which will rise over the [guilty] hearts:* — **Al-Humaza (104:7)**
+> 📖 *AND THUS, all praise is due to God, Sustainer of the heavens and Sustainer of the earth: the Sustainer of all the worlds!* — **Al-Jaathiya (45:36)**
 <!-- quran-verse-end -->
 
 ---
