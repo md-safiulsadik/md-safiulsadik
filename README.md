@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "I do not know whether that [doom] of which you were forewarned is near, or whether my Sustainer has set for it a distant term."* — **Al-Jinn (72:25)**
+> 📖 *[Woe unto him who amasses wealth and counts it a safeguard,* — **Al-Humaza (104:2)**
 <!-- quran-verse-end -->
 
 ---
