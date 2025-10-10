@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that you [too, O men,] might never transgress the measure [of what is right]:* — **Ar-Rahmaan (55:8)**
+> 📖 *[Such as] these will be rewarded for all their patient endurance [in life] with a high station [in paradise], and will be met therein with a greeting of welcome and peace,* — **Al-Furqaan (25:75)**
 <!-- quran-verse-end -->
 
 ---
