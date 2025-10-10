@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *rushing to assault at morn,* — **Al-Aadiyaat (100:3)**
+> 📖 *No empty talk will they hear there-nothing but [tidings of] inner soundness and peace; and there will they have their sustenance by day and by night:* — **Maryam (19:62)**
 <!-- quran-verse-end -->
 
 ---
