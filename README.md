@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "O you who deny the truth!* — **Al-Kaafiroon (109:1)**
+> 📖 *and neither will you [ever] worship that which I worship.* — **Al-Kaafiroon (109:5)**
 <!-- quran-verse-end -->
 
 ---
