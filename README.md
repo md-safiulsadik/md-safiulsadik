@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, when they are about to reach the end of their waiting-term, either retain them in a fair manner or part with them in a fair manner. And let two persons of [known] probity from among your own community witness [what you have decided]; and do yourselves bear true witness before God: thus are admonished all who believe in God and the Last Day. And unto everyone who is conscious of God, He [always] grants a way out [of unhappiness],* — **At-Talaaq (65:2)**
+> 📖 *Not equal are those who are destined for the fire and those who are destined for paradise: those who are destined for paradise - it is they, they [alone] who shall triumph [on Judgment Day]!* — **Al-Hashr (59:20)**
 <!-- quran-verse-end -->
 
 ---
