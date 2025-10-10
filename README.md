@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND THUS, all praise is due to God, Sustainer of the heavens and Sustainer of the earth: the Sustainer of all the worlds!* — **Al-Jaathiya (45:36)**
+> 📖 *And among His signs is the [very] creation of the heavens and the earth, and of all the living creatures which He has caused to multiply throughout them: and [since He has created them,] He has [also] the power to gather them [unto Him­self] whenever He wills.* — **Ash-Shura (42:29)**
 <!-- quran-verse-end -->
 
 ---
