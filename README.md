@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY [O Muhammad]: “I am only a warner; and there is no deity whatever save God, the One, who holds absolute sway over all that exists,* — **Saad (38:65)**
+> 📖 *Such are they that have attained to righteousness;* — **Al-Balad (90:18)**
 <!-- quran-verse-end -->
 
 ---
