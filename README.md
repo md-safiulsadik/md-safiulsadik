@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Such are they that have attained to righteousness;* — **Al-Balad (90:18)**
+> 📖 *And, indeed, We have created above you seven [celestial] orbits: and never are We unmindful of [any aspect of Our] creation.* — **Al-Muminoon (23:17)**
 <!-- quran-verse-end -->
 
 ---
