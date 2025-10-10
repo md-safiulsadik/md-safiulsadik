@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither will you [ever] worship that which I worship.* — **Al-Kaafiroon (109:5)**
+> 📖 *For, every one of them, did We take to task for his sin: and so, upon some of them We let loose a deadly storm wind; and some of them were overtaken by a [sudden] blast; and some of them We caused to be swallowed by the earth: and some of them We caused to drown. And it was not God who wronged them, but it was they who had wronged themselves.* — **Al-Ankaboot (29:40)**
 <!-- quran-verse-end -->
 
 ---
