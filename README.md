@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND UNTO Solomon [We made subservient] the wind: its morning course [covered the distance of] a month’s journey, and its evening course, a month’s journey. And We caused a fountain of molten copper to flow at his behest; and [even] among the invisible beings there were some that had [been constrained] to labour for him by his Sustainer’s leave and whichever of them deviated from Our command, him would We let taste suffering through a blazing flame -:* — **Saba (34:12)**
+> 📖 *And so, when they are about to reach the end of their waiting-term, either retain them in a fair manner or part with them in a fair manner. And let two persons of [known] probity from among your own community witness [what you have decided]; and do yourselves bear true witness before God: thus are admonished all who believe in God and the Last Day. And unto everyone who is conscious of God, He [always] grants a way out [of unhappiness],* — **At-Talaaq (65:2)**
 <!-- quran-verse-end -->
 
 ---
