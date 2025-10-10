@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, every one of them, did We take to task for his sin: and so, upon some of them We let loose a deadly storm wind; and some of them were overtaken by a [sudden] blast; and some of them We caused to be swallowed by the earth: and some of them We caused to drown. And it was not God who wronged them, but it was they who had wronged themselves.* — **Al-Ankaboot (29:40)**
+> 📖 *Hence, ask your Sustainer to forgive you your sins, and then turn towards Him in repentance - for, verily, my Sustainer is a dispenser of grace, a fount of love!"* — **Hud (11:90)**
 <!-- quran-verse-end -->
 
 ---
