@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, ask your Sustainer to forgive you your sins, and then turn towards Him in repentance - for, verily, my Sustainer is a dispenser of grace, a fount of love!"* — **Hud (11:90)**
+> 📖 *AND UNTO Solomon [We made subservient] the wind: its morning course [covered the distance of] a month’s journey, and its evening course, a month’s journey. And We caused a fountain of molten copper to flow at his behest; and [even] among the invisible beings there were some that had [been constrained] to labour for him by his Sustainer’s leave and whichever of them deviated from Our command, him would We let taste suffering through a blazing flame -:* — **Saba (34:12)**
 <!-- quran-verse-end -->
 
 ---
