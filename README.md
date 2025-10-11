@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas he whose weight is light in the balance* — **Al-Qaari'a (101:8)**
+> 📖 *as thy Sustainer will have inspired her to do!* — **Az-Zalzala (99:5)**
 <!-- quran-verse-end -->
 
 ---
