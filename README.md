@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Woe on that Day unto those who give the lie to the truth!* — **Al-Mursalaat (77:28)**
+> 📖 *Replied [Moses]: "Thou wilt find me patient, if God so wills; and I shall not disobey thee in anything!"* — **Al-Kahf (18:69)**
 <!-- quran-verse-end -->
 
 ---
