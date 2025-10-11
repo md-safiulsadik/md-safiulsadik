@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet [it has always happened] that certain kinds of humans would seek refuge with certain kinds of [such] invisible forces: but these only increased their confusion –* — **Al-Jinn (72:6)**
+> 📖 *And [know that true servants of God are only] those who never bear witness to what is false, and [who], whenever they pass by [people engaged in] frivolity, pass on with dignity;* — **Al-Furqaan (25:72)**
 <!-- quran-verse-end -->
 
 ---
