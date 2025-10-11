@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
+> 📖 *Such will be their welcome on Judgment Day!* — **Al-Waaqia (56:56)**
 <!-- quran-verse-end -->
 
 ---
