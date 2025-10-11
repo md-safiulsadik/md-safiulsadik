@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHEN GOD'S SUCCOUR comes, and victory,* — **An-Nasr (110:1)**
+> 📖 *Yet [it has always happened] that certain kinds of humans would seek refuge with certain kinds of [such] invisible forces: but these only increased their confusion –* — **Al-Jinn (72:6)**
 <!-- quran-verse-end -->
 
 ---
