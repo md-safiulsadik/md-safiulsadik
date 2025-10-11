@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, verily, God Himself is the Provider of all sustenance, the Lord of all might, the Eternal!* — **Adh-Dhaariyat (51:58)**
+> 📖 *And, indeed, [O Muhammad, even] before thy time have [God’s] apostles been derided - but those who scoffed at them were [in the end] overwhelmed by the very thing which they had been wont to deride.* — **Al-Anbiyaa (21:41)**
 <!-- quran-verse-end -->
 
 ---
