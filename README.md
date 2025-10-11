@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Replied [Moses]: "Thou wilt find me patient, if God so wills; and I shall not disobey thee in anything!"* — **Al-Kahf (18:69)**
+> 📖 *As for those of you who [henceforth] separate themselves from their wives by saying, “Thou art as unlawful to me as my mother”, [let them bear in mind that] they can never be [as] their mothers: none are their mothers save those who gave them birth: and so, behold, they but utter a saying that runs counter to reason, and is [therefore] false. But, behold, God is indeed an absolver of sins, much-forgiving:* — **Al-Mujaadila (58:2)**
 <!-- quran-verse-end -->
 
 ---
