@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And why should you not believe in God, seeing that the Apostle calls you to believe in [Him who is] your Sustainer, and [seeing that] He has taken a pledge from you? [Why should you not believe in Him] if you are able to believe [in anything]?* — **Al-Hadid (57:8)**
+> 📖 *Hence, leave them to indulge in idle talk and play [with words] until they face that [Judgment] Day of theirs which they have been promised –* — **Al-Ma'aarij (70:42)**
 <!-- quran-verse-end -->
 
 ---
