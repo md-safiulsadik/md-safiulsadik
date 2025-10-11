@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And spend [freely] in God's cause, and let not your own hands throw you into destruction; and persevere in doing good: behold, God loves the doers of good.* — **Al-Baqara (2:195)**
+> 📖 *Lo! he saw a fire [in the desert]; and so he said to his family: "Wait here! Behold, I perceive a fire [far away]: perhaps I can bring you a brand there from, or find at the fire some guidance."* — **Taa-Haa (20:10)**
 <!-- quran-verse-end -->
 
 ---
