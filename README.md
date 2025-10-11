@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [for many a year] thou might have seen the sun, on its rising, incline away from their cave on the right, and, on its setting, turn aside from them on the left, while they lived on in that spacious chamber, [bearing witness to] this of God's messages: He whom God guides, he alone has found the right way; whereas for him whom He lets go astray thou canst never find any protector who would point out the right way.* — **Al-Kahf (18:17)**
+> 📖 *Woe on that Day unto those who give the lie to the truth!* — **Al-Mursalaat (77:28)**
 <!-- quran-verse-end -->
 
 ---
