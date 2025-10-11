@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Lo! he saw a fire [in the desert]; and so he said to his family: "Wait here! Behold, I perceive a fire [far away]: perhaps I can bring you a brand there from, or find at the fire some guidance."* — **Taa-Haa (20:10)**
+> 📖 *for, verily, God Himself is the Provider of all sustenance, the Lord of all might, the Eternal!* — **Adh-Dhaariyat (51:58)**
 <!-- quran-verse-end -->
 
 ---
