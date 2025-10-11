@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *such as, when all mankind is gathered [for judgment], will be enemies unto those [who worshipped them], and will utterly reject their worship?* — **Al-Ahqaf (46:6)**
+> 📖 *And why should you not believe in God, seeing that the Apostle calls you to believe in [Him who is] your Sustainer, and [seeing that] He has taken a pledge from you? [Why should you not believe in Him] if you are able to believe [in anything]?* — **Al-Hadid (57:8)**
 <!-- quran-verse-end -->
 
 ---
