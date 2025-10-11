@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Such will be their welcome on Judgment Day!* — **Al-Waaqia (56:56)**
+> 📖 *such as, when all mankind is gathered [for judgment], will be enemies unto those [who worshipped them], and will utterly reject their worship?* — **Al-Ahqaf (46:6)**
 <!-- quran-verse-end -->
 
 ---
