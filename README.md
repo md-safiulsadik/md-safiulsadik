@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and Mount Sinai,* — **At-Tin (95:2)**
+> 📖 *And how many a prophet did We send to people of olden times!* — **Az-Zukhruf (43:6)**
 <!-- quran-verse-end -->
 
 ---
