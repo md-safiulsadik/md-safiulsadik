@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *When those youths took refuge in the cave, they prayed: "O our Sustainer! Bestow on us grace from Thyself, and endow us, whatever our [outward] condition, with consciousness of what is right!"* — **Al-Kahf (18:10)**
+> 📖 *And spend [freely] in God's cause, and let not your own hands throw you into destruction; and persevere in doing good: behold, God loves the doers of good.* — **Al-Baqara (2:195)**
 <!-- quran-verse-end -->
 
 ---
