@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"He begets not, and neither is He begotten;* — **Al-Ikhlaas (112:3)**
+> 📖 *for when he does become aware of any of Our messages, he makes them a target of his mockery! For all such there is shameful suffering in store.* — **Al-Jaathiya (45:9)**
 <!-- quran-verse-end -->
 
 ---
