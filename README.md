@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, as for those who persecute believing men and believing women, and thereafter do not repent, hell's suffering awaits them: yea, suffering through fire awaits them!* — **Al-Burooj (85:10)**
+> 📖 *for all the evil deeds that they had wrought fell [back] upon them. And [the same will happen to] people of the present time who are bent on wrongdoing: all the evil deeds that they have ever wrought will fall [back] upon them, and never will they be able to elude [God]!* — **Az-Zumar (39:51)**
 <!-- quran-verse-end -->
 
 ---
