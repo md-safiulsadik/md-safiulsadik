@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and do not put me to shame on the Day when all shall be raised from the dead:* — **Ash-Shu'araa (26:87)**
+> 📖 *Behold, Pharaoh exalted himself in the land and divided its people into castes. One group of them he deemed utterly low; he would slaughter their sons and spare (only) their women: for, behold, he was one of those who spread corruption [on earth].* — **Al-Qasas (28:4)**
 <!-- quran-verse-end -->
 
 ---
