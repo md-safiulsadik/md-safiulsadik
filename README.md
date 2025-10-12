@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Lo! [With glee do] they contemplate that [fire],* — **Al-Burooj (85:6)**
+> 📖 *Thus, He let loose upon them great swarms of flying creatures* — **Al-Fil (105:3)**
 <!-- quran-verse-end -->
 
 ---
