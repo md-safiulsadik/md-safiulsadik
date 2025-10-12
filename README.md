@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And how many a prophet did We send to people of olden times!* — **Az-Zukhruf (43:6)**
+> 📖 *Yet [above all else,] ask any of Our apostles whom We sent forth before thy time whether We have ever allowed that deities other than the Most Gracious be worshipped!* — **Az-Zukhruf (43:45)**
 <!-- quran-verse-end -->
 
 ---
