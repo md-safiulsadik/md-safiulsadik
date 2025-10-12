@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for all the evil deeds that they had wrought fell [back] upon them. And [the same will happen to] people of the present time who are bent on wrongdoing: all the evil deeds that they have ever wrought will fall [back] upon them, and never will they be able to elude [God]!* — **Az-Zumar (39:51)**
+> 📖 *and do not put me to shame on the Day when all shall be raised from the dead:* — **Ash-Shu'araa (26:87)**
 <!-- quran-verse-end -->
 
 ---
