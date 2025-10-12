@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for you and for your animals to enjoy.* — **Abasa (80:32)**
+> 📖 *Lo! [With glee do] they contemplate that [fire],* — **Al-Burooj (85:6)**
 <!-- quran-verse-end -->
 
 ---
