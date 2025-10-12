@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHEN GOD'S SUCCOUR comes, and victory,* — **An-Nasr (110:1)**
+> 📖 *AND, INDEED, they [who deny the truth] have always been wont to say,* — **As-Saaffaat (37:167)**
 <!-- quran-verse-end -->
 
 ---
