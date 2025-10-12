@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for when he does become aware of any of Our messages, he makes them a target of his mockery! For all such there is shameful suffering in store.* — **Al-Jaathiya (45:9)**
+> 📖 *and [man] will have neither strength nor helper!* — **At-Taariq (86:10)**
 <!-- quran-verse-end -->
 
 ---
