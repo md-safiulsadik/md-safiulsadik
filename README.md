@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
+> 📖 *And [as We exalted Moses, so, too,] We made the son of Mary and his mother a symbol [of Our grace], and provided for both an abode in a lofty place of lasting restfulness and unsullied springs.* — **Al-Muminoon (23:50)**
 <!-- quran-verse-end -->
 
 ---
