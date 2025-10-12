@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
+> 📖 *for you and for your animals to enjoy.* — **Abasa (80:32)**
 <!-- quran-verse-end -->
 
 ---
