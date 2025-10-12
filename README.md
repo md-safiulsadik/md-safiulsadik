@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [as We exalted Moses, so, too,] We made the son of Mary and his mother a symbol [of Our grace], and provided for both an abode in a lofty place of lasting restfulness and unsullied springs.* — **Al-Muminoon (23:50)**
+> 📖 *"He begets not, and neither is He begotten;* — **Al-Ikhlaas (112:3)**
 <!-- quran-verse-end -->
 
 ---
