@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND, INDEED, they [who deny the truth] have always been wont to say,* — **As-Saaffaat (37:167)**
+> 📖 *and that it is He alone who frees from want and causes to possess;* — **An-Najm (53:48)**
 <!-- quran-verse-end -->
 
 ---
