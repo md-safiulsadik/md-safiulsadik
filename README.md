@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet [above all else,] ask any of Our apostles whom We sent forth before thy time whether We have ever allowed that deities other than the Most Gracious be worshipped!* — **Az-Zukhruf (43:45)**
+> 📖 *Verily, as for those who persecute believing men and believing women, and thereafter do not repent, hell's suffering awaits them: yea, suffering through fire awaits them!* — **Al-Burooj (85:10)**
 <!-- quran-verse-end -->
 
 ---
