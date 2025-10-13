@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Some faces will on that Day be bright with happiness,* — **Al-Qiyaama (75:22)**
+> 📖 *and [how] We make gardens of date-palms and vines [grow] thereon, and cause springs to gush [forth] within it,* — **Yaseen (36:34)**
 <!-- quran-verse-end -->
 
 ---
