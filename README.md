@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so We responded unto him and delivered him from [his] distress: for thus do We deliver all who have faith.* — **Al-Anbiyaa (21:88)**
+> 📖 *[Since they have become oblivious of God,] corruption has appeared on land and in the sea as an outcome of what men’s hands have wrought: and so He will let them taste [the evil of] some of their doings, so that they might return [to the right path].* — **Ar-Room (30:41)**
 <!-- quran-verse-end -->
 
 ---
