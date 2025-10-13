@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and that it is He alone who frees from want and causes to possess;* — **An-Najm (53:48)**
+> 📖 *And so We responded unto him and delivered him from [his] distress: for thus do We deliver all who have faith.* — **Al-Anbiyaa (21:88)**
 <!-- quran-verse-end -->
 
 ---
