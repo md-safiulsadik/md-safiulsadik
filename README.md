@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And when they are told, "Do not spread corruption on earth," they answer, "We are but improving things!"* — **Al-Baqara (2:11)**
+> 📖 *What will his wealth avail him, and all that he has gained?* — **Al-Masad (111:2)**
 <!-- quran-verse-end -->
 
 ---
