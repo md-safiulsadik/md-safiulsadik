@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and in whose possessions there is a due share, acknowledged [by them],* — **Al-Ma'aarij (70:24)**
+> 📖 *and how it is imbued with moral failings as well as with consciousness of God!* — **Ash-Shams (91:8)**
 <!-- quran-verse-end -->
 
 ---
