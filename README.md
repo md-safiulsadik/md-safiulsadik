@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what it is, that steep uphill road?* — **Al-Balad (90:12)**
+> 📖 *where­upon he shall be requited for it with the fullest requital;* — **An-Najm (53:41)**
 <!-- quran-verse-end -->
 
 ---
