@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND IN [the story of Pharaoh and] Moses, too, [We left the same message: for] when We sent him unto Pharaoh with [Our] manifest authority,* — **Adh-Dhaariyat (51:38)**
+> 📖 *created man out of a germ-cell* — **Al-Alaq (96:2)**
 <!-- quran-verse-end -->
 
 ---
