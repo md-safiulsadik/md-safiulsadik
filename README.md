@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas the invisible beings He has created out of a confusing flame of fire.* — **Ar-Rahmaan (55:15)**
+> 📖 *and in whose possessions there is a due share, acknowledged [by them],* — **Al-Ma'aarij (70:24)**
 <!-- quran-verse-end -->
 
 ---
