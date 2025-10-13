@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [how] We make gardens of date-palms and vines [grow] thereon, and cause springs to gush [forth] within it,* — **Yaseen (36:34)**
+> 📖 *But among men there is many a one that prefers a mere play with words [to divine guidance], so as to lead [those] without knowledge astray from the path of God, and to turn it to ridicule: for such there is shameful suffering in store.* — **Luqman (31:6)**
 <!-- quran-verse-end -->
 
 ---
