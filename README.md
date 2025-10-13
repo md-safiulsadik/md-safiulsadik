@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the blazing fire [of hell] is kindled bright,* — **At-Takwir (81:12)**
+> 📖 *And what could make thee conceive what it is, that steep uphill road?* — **Al-Balad (90:12)**
 <!-- quran-verse-end -->
 
 ---
