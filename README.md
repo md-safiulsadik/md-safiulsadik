@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *What will his wealth avail him, and all that he has gained?* — **Al-Masad (111:2)**
+> 📖 *YOU ARE OBSESSED by greed for more and more* — **At-Takaathur (102:1)**
 <!-- quran-verse-end -->
 
 ---
