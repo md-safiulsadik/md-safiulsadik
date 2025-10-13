@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said they: "O Shu'ayb! Does thy [habit of] praying compel thee to demand of us that we give up all that our forefathers were wont to worship, or that we refrain from doing whatever we please with our possessions? Behold, [thou wouldst have us believe that] thou art indeed the only clement, the only right-minded man!"* — **Hud (11:87)**
+> 📖 *whereas the invisible beings He has created out of a confusing flame of fire.* — **Ar-Rahmaan (55:15)**
 <!-- quran-verse-end -->
 
 ---
