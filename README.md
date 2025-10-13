@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *YOU ARE OBSESSED by greed for more and more* — **At-Takaathur (102:1)**
+> 📖 *Thereupon he called out to his Sustainer, “Verily, I am defeated; come Thou, then, to my succour!”* — **Al-Qamar (54:10)**
 <!-- quran-verse-end -->
 
 ---
