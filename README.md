@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *created man out of a germ-cell* — **Al-Alaq (96:2)**
+> 📖 *Art thou not aware how the ships speed through the sea by God’s favour, so that He might show you some of His wonders? Herein, behold, there are messages indeed for all who are wholly patient in adversity and deeply grate­ful [to God].* — **Luqman (31:31)**
 <!-- quran-verse-end -->
 
 ---
