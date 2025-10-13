@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *where­upon he shall be requited for it with the fullest requital;* — **An-Najm (53:41)**
+> 📖 *For, God’s are all the forces of the heavens and the earth; and God is indeed almighty, truly wise!* — **Al-Fath (48:7)**
 <!-- quran-verse-end -->
 
 ---
