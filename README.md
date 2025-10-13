@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, God’s are all the forces of the heavens and the earth; and God is indeed almighty, truly wise!* — **Al-Fath (48:7)**
+> 📖 *Said they: "O Shu'ayb! Does thy [habit of] praying compel thee to demand of us that we give up all that our forefathers were wont to worship, or that we refrain from doing whatever we please with our possessions? Behold, [thou wouldst have us believe that] thou art indeed the only clement, the only right-minded man!"* — **Hud (11:87)**
 <!-- quran-verse-end -->
 
 ---
