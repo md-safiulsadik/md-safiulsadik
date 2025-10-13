@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Since they have become oblivious of God,] corruption has appeared on land and in the sea as an outcome of what men’s hands have wrought: and so He will let them taste [the evil of] some of their doings, so that they might return [to the right path].* — **Ar-Room (30:41)**
+> 📖 *And when they are told, "Do not spread corruption on earth," they answer, "We are but improving things!"* — **Al-Baqara (2:11)**
 <!-- quran-verse-end -->
 
 ---
