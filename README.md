@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thereupon he called out to his Sustainer, “Verily, I am defeated; come Thou, then, to my succour!”* — **Al-Qamar (54:10)**
+> 📖 *AND IN [the story of Pharaoh and] Moses, too, [We left the same message: for] when We sent him unto Pharaoh with [Our] manifest authority,* — **Adh-Dhaariyat (51:38)**
 <!-- quran-verse-end -->
 
 ---
