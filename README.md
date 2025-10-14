@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *A fire hotly burning!* — **Al-Qaari'a (101:11)**
+> 📖 *that no bearer of burdens shall be made to bear another’s burden;* — **An-Najm (53:38)**
 <!-- quran-verse-end -->
 
 ---
