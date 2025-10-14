@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, as soon as we heard this [call to His] guidance, we came to believe in it: and he who believes in his Sustainer need never have fear of loss or injustice.* — **Al-Jinn (72:13)**
+> 📖 *BUT IF they turn away, say: “I warn you of [the coming of] a thunderbolt of punishment like the thunderbolt [that fell upon the tribes] of Ad and Thamud!”* — **Fussilat (41:13)**
 <!-- quran-verse-end -->
 
 ---
