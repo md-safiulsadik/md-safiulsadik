@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [remember:] We have not created the heavens and the earth and all that is between them without [an inner] truth; but, behold, the Hour [when this will become clear to all] is indeed yet to come. Hence, forgive [men's failings] with fair forbearance:* — **Al-Hijr (15:85)**
+> 📖 *A fire hotly burning!* — **Al-Qaari'a (101:11)**
 <!-- quran-verse-end -->
 
 ---
