@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CAN, THEN, they [who reject the truth] learn no lesson by recalling how many a generation We have destroyed before their time? - [people] in whose dwelling-places they [themselves now] walk about? In this, behold, there are messages indeed for those who are endowed with reason!* — **Taa-Haa (20:128)**
+> 📖 *All that they have ever yearned for awaits them with their Sustainer: such will be the reward of the doers of good.* — **Az-Zumar (39:34)**
 <!-- quran-verse-end -->
 
 ---
