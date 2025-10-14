@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He has created the heavens and the earth in accordance with [an inner] truth, and has formed you - and formed you so well; and with Him is your journey's end.* — **At-Taghaabun (64:3)**
+> 📖 *Hence, repulse not [any of] those who at morn and evening invoke their Sustainer, seeking His countenance. Thou art in no wise accountable for them-just as they are in no wise accountable for thee -and thou hast therefore no right to repulse them: for then thou wouldst be among the evildoers.* — **Al-An'aam (6:52)**
 <!-- quran-verse-end -->
 
 ---
