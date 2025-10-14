@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let them, therefore, worship the Sustainer of this Temple;* — **Quraish (106:3)**
+> 📖 *and then storming on with a tempest's force!* — **Al-Mursalaat (77:2)**
 <!-- quran-verse-end -->
 
 ---
