@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thou canst not compel them [to believe].* — **Al-Ghaashiya (88:22)**
+> 📖 *who, when calamity befalls them, say, "Verily, unto God do we belong and, verily, unto Him we shall return."* — **Al-Baqara (2:156)**
 <!-- quran-verse-end -->
 
 ---
