@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Did He not utterly confound their artful planning?* — **Al-Fil (105:2)**
+> 📖 *"He begets not, and neither is He begotten;* — **Al-Ikhlaas (112:3)**
 <!-- quran-verse-end -->
 
 ---
