@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *they will come forth from their graves, with their eyes downcast, [swarming about] like locusts scattered [by the wind],* — **Al-Qamar (54:7)**
+> 📖 *thou canst not compel them [to believe].* — **Al-Ghaashiya (88:22)**
 <!-- quran-verse-end -->
 
 ---
