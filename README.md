@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BUT IF they turn away, say: “I warn you of [the coming of] a thunderbolt of punishment like the thunderbolt [that fell upon the tribes] of Ad and Thamud!”* — **Fussilat (41:13)**
+> 📖 *AND [remember:] We have not created the heavens and the earth and all that is between them without [an inner] truth; but, behold, the Hour [when this will become clear to all] is indeed yet to come. Hence, forgive [men's failings] with fair forbearance:* — **Al-Hijr (15:85)**
 <!-- quran-verse-end -->
 
 ---
