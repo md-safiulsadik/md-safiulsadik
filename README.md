@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And the Jews say, "God's hand is shackled!" It is their own hands that are shackled; and rejected [by God] are they because of this their assertion. Nay, but wide are His hands stretched out: He dispenses [bounty] as He wills. But all that has been bestowed from on high upon thee [O Prophet] by thy Sustainer is bound to make many of them yet more stubborn in their overweening arrogance and in their denial of the truth. And so We have cast enmity and hatred among the followers of the Bible, [to last] until Resurrection Day; every time they light the fires of war, God extinguishes them; and they labour hard to spread corruption on earth: and God does not -love the spreaders of corruption.* — **Al-Maaida (5:64)**
+> 📖 *In [each of] these two [gardens] two springs will flow.* — **Ar-Rahmaan (55:50)**
 <!-- quran-verse-end -->
 
 ---
