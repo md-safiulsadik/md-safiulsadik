@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In [each of] these two [gardens] two springs will flow.* — **Ar-Rahmaan (55:50)**
+> 📖 *they will come forth from their graves, with their eyes downcast, [swarming about] like locusts scattered [by the wind],* — **Al-Qamar (54:7)**
 <!-- quran-verse-end -->
 
 ---
