@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *All that they have ever yearned for awaits them with their Sustainer: such will be the reward of the doers of good.* — **Az-Zumar (39:34)**
+> 📖 *and that [we were mistaken when] we thought that neither man nor [any of] the invisible forces would ever tell a lie about God.* — **Al-Jinn (72:5)**
 <!-- quran-verse-end -->
 
 ---
