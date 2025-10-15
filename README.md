@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And We send down from the skies water rich in blessings, and cause thereby gardens to grow, and fields of grain,* — **Qaaf (50:9)**
+> 📖 *Does every one of them hope to enter [by this means] a garden of bliss?* — **Al-Ma'aarij (70:38)**
 <!-- quran-verse-end -->
 
 ---
