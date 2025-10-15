@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And give unto women their marriage portions in the spirit of a gift; but if they, of their own accord, give up unto you aught thereof, then enjoy it with pleasure and good cheer.* — **An-Nisaa (4:4)**
+> 📖 *"the Sovereign of men,* — **An-Naas (114:2)**
 <!-- quran-verse-end -->
 
 ---
