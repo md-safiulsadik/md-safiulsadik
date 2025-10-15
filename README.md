@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Thereupon God will say:] “And now, they [whom you regarded as divine] have given the lie to all your [past] assertions, and you can neither ward off [your punishment] nor obtain any succour! For, whoever of you has committed [such] evil, him shall We cause to taste great suffering!”* — **Al-Furqaan (25:19)**
+> 📖 *Consider the multiple and the One!* — **Al-Fajr (89:3)**
 <!-- quran-verse-end -->
 
 ---
