@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the sun and the moon are brought together* — **Al-Qiyaama (75:9)**
+> 📖 *And give unto women their marriage portions in the spirit of a gift; but if they, of their own accord, give up unto you aught thereof, then enjoy it with pleasure and good cheer.* — **An-Nisaa (4:4)**
 <!-- quran-verse-end -->
 
 ---
