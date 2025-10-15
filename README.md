@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [remember the time] when I inspired the white-garbed ones: Believe in Me and in My Apostle!" They answered: "We believe; and bear Thou witness that we have surrendered ourselves [unto Thee]."* — **Al-Maaida (5:111)**
+> 📖 *And We send down from the skies water rich in blessings, and cause thereby gardens to grow, and fields of grain,* — **Qaaf (50:9)**
 <!-- quran-verse-end -->
 
 ---
