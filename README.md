@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for him whose record shall be given to him behind his back;* — **Al-Inshiqaaq (84:10)**
+> 📖 *whose hearts from their prayer are remote* — **Al-Maa'un (107:5)**
 <!-- quran-verse-end -->
 
 ---
