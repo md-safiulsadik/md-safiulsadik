@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said he: “Knowledge [of when it is to befall you] rests with God alone: I but convey unto you the message with which I have been entrusted; but I see that you are people ignorant [of right and wrong]!”* — **Al-Ahqaf (46:23)**
+> 📖 *AND AFTER those [early people] We sent Moses with Our messages unto Pharaoh and his great ones, and they wilfully rejected them: and behold what happened in the end to those spreaders of corruption!* — **Al-A'raaf (7:103)**
 <!-- quran-verse-end -->
 
 ---
