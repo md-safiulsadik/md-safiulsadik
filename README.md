@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O MAN! What is it that lures thee away from thy bountiful Sustainer,* — **Al-Infitaar (82:6)**
+> 📖 *AND [remember the time] when I inspired the white-garbed ones: Believe in Me and in My Apostle!" They answered: "We believe; and bear Thou witness that we have surrendered ourselves [unto Thee]."* — **Al-Maaida (5:111)**
 <!-- quran-verse-end -->
 
 ---
