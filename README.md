@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, as soon as we heard this [call to His] guidance, we came to believe in it: and he who believes in his Sustainer need never have fear of loss or injustice.* — **Al-Jinn (72:13)**
+> 📖 *and the sun and the moon are brought together* — **Al-Qiyaama (75:9)**
 <!-- quran-verse-end -->
 
 ---
