@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Night of Destiny is better than a thousand months:* — **Al-Qadr (97:3)**
+> 📖 *And, indeed, [even] before thy time have apostles been derided - but those who scoffed at them were [in the end] overwhelmed by the very thing which they were wont to deride.* — **Al-An'aam (6:10)**
 <!-- quran-verse-end -->
 
 ---
