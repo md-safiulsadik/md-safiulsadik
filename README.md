@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the long-enduring house [of worship]!* — **At-Tur (52:4)**
+> 📖 *Hence, as soon as we heard this [call to His] guidance, we came to believe in it: and he who believes in his Sustainer need never have fear of loss or injustice.* — **Al-Jinn (72:13)**
 <!-- quran-verse-end -->
 
 ---
