@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND AFTER those [early people] We sent Moses with Our messages unto Pharaoh and his great ones, and they wilfully rejected them: and behold what happened in the end to those spreaders of corruption!* — **Al-A'raaf (7:103)**
+> 📖 *[Thereupon God will say:] “And now, they [whom you regarded as divine] have given the lie to all your [past] assertions, and you can neither ward off [your punishment] nor obtain any succour! For, whoever of you has committed [such] evil, him shall We cause to taste great suffering!”* — **Al-Furqaan (25:19)**
 <!-- quran-verse-end -->
 
 ---
