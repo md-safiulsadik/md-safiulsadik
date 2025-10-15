@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Their reward [awaits them] with God: gardens of perpetual bliss, through which running waters flow, therein to abide beyond the count of time; well-pleased is God with them, and well-pleased are they with Him: all this awaits him who of his Sustainer stands in awe!.* — **Al-Bayyina (98:8)**
+> 📖 *Said he: “Knowledge [of when it is to befall you] rests with God alone: I but convey unto you the message with which I have been entrusted; but I see that you are people ignorant [of right and wrong]!”* — **Al-Ahqaf (46:23)**
 <!-- quran-verse-end -->
 
 ---
