@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, indeed, [even] before thy time have apostles been derided - but those who scoffed at them were [in the end] overwhelmed by the very thing which they were wont to deride.* — **Al-An'aam (6:10)**
+> 📖 *Their reward [awaits them] with God: gardens of perpetual bliss, through which running waters flow, therein to abide beyond the count of time; well-pleased is God with them, and well-pleased are they with Him: all this awaits him who of his Sustainer stands in awe!.* — **Al-Bayyina (98:8)**
 <!-- quran-verse-end -->
 
 ---
