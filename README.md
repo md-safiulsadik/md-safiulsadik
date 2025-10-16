@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O men! Verily, God’s promise [of resurrection] is true indeed: let not, then, the life of this world delude you, and let not [your own] deceptive thoughts about God delude you!* — **Faatir (35:5)**
+> 📖 *and [how] We make gardens of date-palms and vines [grow] thereon, and cause springs to gush [forth] within it,* — **Yaseen (36:34)**
 <!-- quran-verse-end -->
 
 ---
