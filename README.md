@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [so,] whenever Our messages are conveyed to them in all their clarity, their only argument is this: “Bring forth our fore­fathers [as witnesses], if what you claim is true!”* — **Al-Jaathiya (45:25)**
+> 📖 *who has created thee, and formed thee in accordance with what thou art meant' to be, and shaped thy nature in just proportions,* — **Al-Infitaar (82:7)**
 <!-- quran-verse-end -->
 
 ---
