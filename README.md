@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"from the evil of the whispering, elusive tempter* — **An-Naas (114:4)**
+> 📖 *Yet those who attain to faith and do righteous deeds We shall bring into gardens through which running waters flow, therein to abide beyond the count of time: this is, in truth, God's promise - and whose word could be truer than God's?* — **An-Nisaa (4:122)**
 <!-- quran-verse-end -->
 
 ---
