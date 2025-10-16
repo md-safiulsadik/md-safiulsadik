@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and none can bind with bonds like His.* — **Al-Fajr (89:26)**
+> 📖 *and neither do you worship that which I worship!* — **Al-Kaafiroon (109:3)**
 <!-- quran-verse-end -->
 
 ---
