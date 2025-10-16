@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *This, because they have cut themselves off from God and His Apostle: and as for him who cuts himself off from God and His Apostle - verily, God is severe in retribution.* — **Al-Anfaal (8:13)**
+> 📖 *and thereafter became a germ-cell - whereupon He created and formed [it] in accordance with what [it] was meant to be,* — **Al-Qiyaama (75:38)**
 <!-- quran-verse-end -->
 
 ---
