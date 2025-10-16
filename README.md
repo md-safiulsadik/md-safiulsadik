@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither do you worship that which I worship!* — **Al-Kaafiroon (109:3)**
+> 📖 *Never did God take unto Himself any offspring, nor has there ever been any deity side by side with Him: [for, had there been any,] lo! each deity would surely have stood apart [from the others] in whatever it had created, and they would surely have [tried to] overcome one another! Limitless in His glory is God, [far] above anything that men may devise by way of definition,* — **Al-Muminoon (23:91)**
 <!-- quran-verse-end -->
 
 ---
