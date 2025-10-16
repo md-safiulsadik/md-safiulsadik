@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet those who attain to faith and do righteous deeds We shall bring into gardens through which running waters flow, therein to abide beyond the count of time: this is, in truth, God's promise - and whose word could be truer than God's?* — **An-Nisaa (4:122)**
+> 📖 *But then, once it alights upon them, hapless will be the awakening of those who were warned [to no avail]!* — **As-Saaffaat (37:177)**
 <!-- quran-verse-end -->
 
 ---
