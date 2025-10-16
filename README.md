@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet, when thou [O Prophet] dost not produce any miracle for them, some [people] say, "Why dost thou not seek to obtain it [from God]? Say: "I only follow whatever is being revealed to me by my Sustainer: this [revelation] is a means of insight from your Sustainer, and a guidance and grace unto people who will believe.* — **Al-A'raaf (7:203)**
+> 📖 *"from the evil of the whispering, elusive tempter* — **An-Naas (114:4)**
 <!-- quran-verse-end -->
 
 ---
