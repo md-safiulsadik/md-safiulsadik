@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Never did God take unto Himself any offspring, nor has there ever been any deity side by side with Him: [for, had there been any,] lo! each deity would surely have stood apart [from the others] in whatever it had created, and they would surely have [tried to] overcome one another! Limitless in His glory is God, [far] above anything that men may devise by way of definition,* — **Al-Muminoon (23:91)**
+> 📖 *[Yea-] and most certainly will God mark out those who have [truly] attained to faith, and most certainly will He mark out the hypocrites.* — **Al-Ankaboot (29:11)**
 <!-- quran-verse-end -->
 
 ---
