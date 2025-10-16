@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But then, once it alights upon them, hapless will be the awakening of those who were warned [to no avail]!* — **As-Saaffaat (37:177)**
+> 📖 *Such is God's bounty: He grants it to anyone who is willing [to receive it]: for God is limitless in His great bounty.* — **Al-Jumu'a (62:4)**
 <!-- quran-verse-end -->
 
 ---
