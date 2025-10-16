@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O our Sustainer! Make us not a plaything for those who are bent on denying the truth! And forgive us our sins, O our sustainer: for Thou alone art, almighty, truly wise!"* — **Al-Mumtahana (60:5)**
+> 📖 *you would indeed, most surely, behold the blazing fire [of hell]!* — **At-Takaathur (102:6)**
 <!-- quran-verse-end -->
 
 ---
