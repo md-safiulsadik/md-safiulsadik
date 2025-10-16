@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereafter became a germ-cell - whereupon He created and formed [it] in accordance with what [it] was meant to be,* — **Al-Qiyaama (75:38)**
+> 📖 *And [so,] whenever Our messages are conveyed to them in all their clarity, their only argument is this: “Bring forth our fore­fathers [as witnesses], if what you claim is true!”* — **Al-Jaathiya (45:25)**
 <!-- quran-verse-end -->
 
 ---
