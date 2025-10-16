@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Since all evidence of the truth has come to me from my Sustainer, I am forbidden to worship [any of] those beings whom you invoke instead of God; and I am bidden to surrender myself to the Sustainer of all the worlds.”* — **Ghafir (40:66)**
+> 📖 *NAY, VERILY, the record of the wicked is indeed [set down] in a mode inescapable!* — **Al-Mutaffifin (83:7)**
 <!-- quran-verse-end -->
 
 ---
