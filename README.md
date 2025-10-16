@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Be ever steadfast in upholding equity, bearing witness to the truth for the sake of God, even though it be against your own selves or your parents and kinsfolk. Whether the person concerned be rich or poor, God's claim takes precedence over [the claims of] either of them. Do not, then, follow your own desires, lest you swerve from justice: for if you distort [the truth], behold, God is indeed aware of all that you do!* — **An-Nisaa (4:135)**
+> 📖 *we would certainly be true servants of God.”* — **As-Saaffaat (37:169)**
 <!-- quran-verse-end -->
 
 ---
