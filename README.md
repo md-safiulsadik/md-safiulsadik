@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now when [the Queen’s messenger] came unto Solomon, he said: “Do you people mean to add to my wealth? But that which God has given me is [so much] better than all that He has given you! Nay, it is [only such as] you that would rejoice in this gift of yours!* — **An-Naml (27:36)**
+> 📖 *VERILY, [O Muhammad,] We have laid open before thee a manifest victory,* — **Al-Fath (48:1)**
 <!-- quran-verse-end -->
 
 ---
