@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
+> 📖 *Behold, they were not expecting to be called to account,* — **An-Naba (78:27)**
 <!-- quran-verse-end -->
 
 ---
