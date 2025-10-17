@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now as for [the tribe of] Ad, they walked arrogantly on earth, [offending] against all right, and saying, “Who could have a power greater than ours?” Why - were they, then, not aware that God, who created them, had a power greater than theirs? But they went on rejecting Our messages;* — **Fussilat (41:15)**
+> 📖 *Now when [the Queen’s messenger] came unto Solomon, he said: “Do you people mean to add to my wealth? But that which God has given me is [so much] better than all that He has given you! Nay, it is [only such as] you that would rejoice in this gift of yours!* — **An-Naml (27:36)**
 <!-- quran-verse-end -->
 
 ---
