@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, [O Muhammad,] We have laid open before thee a manifest victory,* — **Al-Fath (48:1)**
+> 📖 *O YOU who have attained to faith! Shall I point out to you a bargain that will save you from grievous suffering [in this world and in the life to come]?* — **As-Saff (61:10)**
 <!-- quran-verse-end -->
 
 ---
