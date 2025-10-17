@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Pray thus] for, behold, We are most cer­tainly able to let thee witness [the fulfillment, even in this world, of] whatever We promise them!* — **Al-Muminoon (23:95)**
+> 📖 *Verily, that which you are promised is true indeed,* — **Adh-Dhaariyat (51:5)**
 <!-- quran-verse-end -->
 
 ---
