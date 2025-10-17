@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Shall I point out to you a bargain that will save you from grievous suffering [in this world and in the life to come]?* — **As-Saff (61:10)**
+> 📖 *It is they who say [to their compatriots], "Do not spend anything on those who are with God's Apostle, so that they [may be forced to] leave." However, unto God belong the treasures of the heavens and the earth: but this truth the hypocrites cannot grasp.* — **Al-Munaafiqoon (63:7)**
 <!-- quran-verse-end -->
 
 ---
