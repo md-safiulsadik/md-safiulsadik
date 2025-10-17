@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that He might reward, out of His bounty, those who have attained to faith and done righteous deeds. Verily, He does not love those who refuse to acknowledge the truth –* — **Ar-Room (30:45)**
+> 📖 *and, indeed, we granted this wisdom unto Luq­man: “Be grateful unto God - for he who is grateful [unto Him] is but grateful for the good of his own self; whereas he who chooses to be ungrateful [ought to know that], verily, God is self-sufficient, ever to be praised!”* — **Luqman (31:12)**
 <!-- quran-verse-end -->
 
 ---
