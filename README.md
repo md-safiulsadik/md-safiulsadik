@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, they were not expecting to be called to account,* — **An-Naba (78:27)**
+> 📖 *and when the sky is rent asunder,* — **Al-Mursalaat (77:9)**
 <!-- quran-verse-end -->
 
 ---
