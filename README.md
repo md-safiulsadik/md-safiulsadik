@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He who desires might and glory [ought to know that] all might and glory belong to God [alone]. Unto Him ascend all good words, and the righteous deed does He exalt. But as for those who cunningly devise evil deeds - suffering severe awaits them; and all their devising is bound to come to nought.* — **Faatir (35:10)**
+> 📖 *And [this happened, too,] when Jesus, the son of Mary, said: "O children of Israel! Behold, I am an apostle of God unto you, [sent] to confirm the truth of whatever there still remains of the Torah, and to give [you] the glad tiding of an apostle who shall come after me, whose name shall be Ahmad." But when he [whose coming Jesus had foretold] came unto them with all evidence of the truth, they said: "This [alleged message of his] is [nothing but] spellbinding eloquence!"* — **As-Saff (61:6)**
 <!-- quran-verse-end -->
 
 ---
