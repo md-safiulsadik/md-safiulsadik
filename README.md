@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, that which you are promised is true indeed,* — **Adh-Dhaariyat (51:5)**
+> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
 <!-- quran-verse-end -->
 
 ---
