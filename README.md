@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The way of those upon whom Thou hast bestowed Thy blessings, not of those who have been condemned [by Thee], nor of those who go astray!* — **Al-Faatiha (1:7)**
+> 📖 *the lying, rebellious forehead! –* — **Al-Alaq (96:16)**
 <!-- quran-verse-end -->
 
 ---
