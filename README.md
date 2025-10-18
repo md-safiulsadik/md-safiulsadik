@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, whenever Our messages are conveyed to such a one, he turns away in his arrogance as though he had not heard them - as though there were deafness in his ears. Give him, then, the tiding of grievous suffering [in the life to come].* — **Luqman (31:7)**
+> 📖 *[But] woe on that Day unto those who give the lie to the truth,* — **Al-Mursalaat (77:47)**
 <!-- quran-verse-end -->
 
 ---
