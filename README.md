@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *REMIND, THEN, [others of the truth, regardless of] whether this reminding [would seem to] be of use [or not]:* — **Al-A'laa (87:9)**
+> 📖 *A fire kindled by God,* — **Al-Humaza (104:6)**
 <!-- quran-verse-end -->
 
 ---
