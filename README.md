@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Time and again were My messages conveyed unto you, but [every time] you would turn about on your heels* — **Al-Muminoon (23:66)**
+> 📖 *Those who have attained to faith, and who have not obscured their faith by wrongdoing-it is they who shall be secure, since it is they who have found the right path!"* — **Al-An'aam (6:82)**
 <!-- quran-verse-end -->
 
 ---
