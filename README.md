@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said [Iblis]: "Then, O my Sustainer, grant me a respite till the Day when all shall be raised from the dead!"* — **Al-Hijr (15:36)**
+> 📖 *[And so,] whenever the two demands [of his nature] come face to face, contending from the right and from the left,* — **Qaaf (50:17)**
 <!-- quran-verse-end -->
 
 ---
