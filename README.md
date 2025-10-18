@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Those who have attained to faith, and who have not obscured their faith by wrongdoing-it is they who shall be secure, since it is they who have found the right path!"* — **Al-An'aam (6:82)**
+> 📖 *"from all [temptation to evil by] invisible forces as well as men,"* — **An-Naas (114:6)**
 <!-- quran-verse-end -->
 
 ---
