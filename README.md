@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God- has promised the hypocrites, both men and women-as well as the [outright] deniers of the _ truth-the fire of hell, therein to abide: this shall be their allotted_ portion. For, God has rejected them, and long-lasting suffering awaits them.* — **At-Tawba (9:68)**
+> 📖 *For, whenever Our messages are conveyed to such a one, he turns away in his arrogance as though he had not heard them - as though there were deafness in his ears. Give him, then, the tiding of grievous suffering [in the life to come].* — **Luqman (31:7)**
 <!-- quran-verse-end -->
 
 ---
