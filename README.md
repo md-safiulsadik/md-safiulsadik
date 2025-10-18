@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now, among those whom We have created there are people who guide [others] in the way of the truth and act justly in its light.* — **Al-A'raaf (7:181)**
+> 📖 *Oh, verily, they are in doubt as to whether they will meet their Sustainer [on Judgment Day]! Oh, verily, He encompasses everything!* — **Fussilat (41:54)**
 <!-- quran-verse-end -->
 
 ---
