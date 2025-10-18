@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God propounds [to you] the parable of [two men-] a man enslaved, unable to do anything of his own accord, and a [free] man upon whom We have bestowed goodly sustenance [as a gift] from Ourselves, so that he can spend thereof [at will, both] secretly and openly. Can these [two] be deemed equal? All praise is due to God [alone]: but most of them do not understand it.* — **An-Nahl (16:75)**
+> 📖 *WHEN GOD'S SUCCOUR comes, and victory,* — **An-Nasr (110:1)**
 <!-- quran-verse-end -->
 
 ---
