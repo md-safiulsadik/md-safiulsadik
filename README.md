@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, [on that Day,] paradise will be brought within sight of the God-conscious,* — **Ash-Shu'araa (26:90)**
+> 📖 *Now, among those whom We have created there are people who guide [others] in the way of the truth and act justly in its light.* — **Al-A'raaf (7:181)**
 <!-- quran-verse-end -->
 
 ---
