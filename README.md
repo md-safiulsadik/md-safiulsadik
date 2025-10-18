@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [so,] convey to the believers the glad tiding that a great bounty from God awaits them;* — **Al-Ahzaab (33:47)**
+> 📖 *God- has promised the hypocrites, both men and women-as well as the [outright] deniers of the _ truth-the fire of hell, therein to abide: this shall be their allotted_ portion. For, God has rejected them, and long-lasting suffering awaits them.* — **At-Tawba (9:68)**
 <!-- quran-verse-end -->
 
 ---
