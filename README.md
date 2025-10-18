@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"from all [temptation to evil by] invisible forces as well as men,"* — **An-Naas (114:6)**
+> 📖 *God propounds [to you] the parable of [two men-] a man enslaved, unable to do anything of his own accord, and a [free] man upon whom We have bestowed goodly sustenance [as a gift] from Ourselves, so that he can spend thereof [at will, both] secretly and openly. Can these [two] be deemed equal? All praise is due to God [alone]: but most of them do not understand it.* — **An-Nahl (16:75)**
 <!-- quran-verse-end -->
 
 ---
