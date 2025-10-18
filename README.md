@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And so,] whenever the two demands [of his nature] come face to face, contending from the right and from the left,* — **Qaaf (50:17)**
+> 📖 *And well do We know that thy bosom is constricted by the [blasphemous] things that they say:* — **Al-Hijr (15:97)**
 <!-- quran-verse-end -->
 
 ---
