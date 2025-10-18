@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and, withal, deny all assistance [to their fellow-men]!* — **Al-Maa'un (107:7)**
+> 📖 *For, [on that Day,] paradise will be brought within sight of the God-conscious,* — **Ash-Shu'araa (26:90)**
 <!-- quran-verse-end -->
 
 ---
