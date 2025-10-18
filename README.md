@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And in your own nature, and in [that of] all the animals which He scatters [over the earth] there are messages for people who are endowed with inner certainty.* — **Al-Jaathiya (45:4)**
+> 📖 *Time and again were My messages conveyed unto you, but [every time] you would turn about on your heels* — **Al-Muminoon (23:66)**
 <!-- quran-verse-end -->
 
 ---
