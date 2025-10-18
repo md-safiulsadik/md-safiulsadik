@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And God ordained this only as a glad tiding, and that your hearts should thereby be set at rest-since no succour can come from any save God: verily, God is almighty, wise!* — **Al-Anfaal (8:10)**
+> 📖 *REMIND, THEN, [others of the truth, regardless of] whether this reminding [would seem to] be of use [or not]:* — **Al-A'laa (87:9)**
 <!-- quran-verse-end -->
 
 ---
