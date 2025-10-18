@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! If any iniquitous person comes to you with a [slanderous] tale, use your discernment, lest you hurt people unwittingly and afterwards be filled with remorse for what you have done.* — **Al-Hujuraat (49:6)**
+> 📖 *Said Pharaoh: "Have you come to believe in him ere I have given you permission? Behold, this is indeed a plot which you have cunningly devised in this [my] city in order to drive out its people hence! But in time you shall come to know, [my revenge]:* — **Al-A'raaf (7:123)**
 <!-- quran-verse-end -->
 
 ---
