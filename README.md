@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Oh, verily, they are in doubt as to whether they will meet their Sustainer [on Judgment Day]! Oh, verily, He encompasses everything!* — **Fussilat (41:54)**
+> 📖 *Nay, but thou shalt worship God [alone], and be among those who are grateful [to Him]!* — **Az-Zumar (39:66)**
 <!-- quran-verse-end -->
 
 ---
