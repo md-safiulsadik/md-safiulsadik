@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "I seek refuge with the Sustainer of the rising dawn,* — **Al-Falaq (113:1)**
+> 📖 *For, distant from it shall remain he who is truly conscious of God:* — **Al-Lail (92:17)**
 <!-- quran-verse-end -->
 
 ---
