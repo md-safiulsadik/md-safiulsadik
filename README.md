@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And spend on others out of what We have provided for you as sustenance, ere there come a time when death approaches any of you, and he then says, "O my Sustainer! If only Thou wouldst grant me a delay for a short while, so that I could give in charity and be among the righteous!"* — **Al-Munaafiqoon (63:10)**
+> 📖 *They answered: “Thus has thy Sustainer decreed; and, verily, He alone is truly wise, all- knowing!”* — **Adh-Dhaariyat (51:30)**
 <!-- quran-verse-end -->
 
 ---
