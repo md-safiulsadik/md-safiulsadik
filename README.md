@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[whereas,] behold, the truly virtuous shall drink from a cup flavoured with the calyx of sweet-smelling flowers:* — **Al-Insaan (76:5)**
+> 📖 *and none of you could have saved him!* — **Al-Haaqqa (69:47)**
 <!-- quran-verse-end -->
 
 ---
