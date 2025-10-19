@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *You are to believe in God and His Apostle, and to strive hard in God's cause with your possessions and your lives: this is for your own good - if you but knew it!* — **As-Saff (61:11)**
+> 📖 *It is God who causes night and day to alter­nate: in this [too], behold, there is surely a lesson for all who have eyes to see!* — **An-Noor (24:44)**
 <!-- quran-verse-end -->
 
 ---
