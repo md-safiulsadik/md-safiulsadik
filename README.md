@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHAT, THEN, is amiss with them that they turn away from all admonition* — **Al-Muddaththir (74:49)**
+> 📖 *And you did not try to hide [your sins] lest your hearing or your sight or your skins bear witness against you: nay, but you thought that God did not know much of what you were doing –* — **Fussilat (41:22)**
 <!-- quran-verse-end -->
 
 ---
