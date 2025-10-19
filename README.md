@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and so We made them a thing of the past, and an example to those who would come after them.* — **Az-Zukhruf (43:56)**
+> 📖 *Can, then, [he who cares for no more than the life of this world be compared with] one who takes his stand on a clear evidence from his Sustainer, conveyed through [this] testimony from Him, as was the revelation vouchsafed to Moses aforetime-[a divine writ ordained by Him] to be a guidance and grace [unto man]? They [who understand this message-it is they alone who truly] believe in it; whereas for any of those who, leagued together [in common hostility], deny its truth - the fire shall be their appointed state [in the life to come]. And so, be not in doubt about this [revelation]: behold, it is the truth from thy Sustainer, even though most people will not believe in it.* — **Hud (11:17)**
 <!-- quran-verse-end -->
 
 ---
