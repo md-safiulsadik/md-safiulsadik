@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *beside Him! Contrive, then, [anything that you may wish] against me, all of you, and give me no respite!* — **Hud (11:55)**
+> 📖 *and so We made them a thing of the past, and an example to those who would come after them.* — **Az-Zukhruf (43:56)**
 <!-- quran-verse-end -->
 
 ---
