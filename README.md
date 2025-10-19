@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].* — **Al-Kawthar (108:2)**
+> 📖 *WHAT, THEN, is amiss with them that they turn away from all admonition* — **Al-Muddaththir (74:49)**
 <!-- quran-verse-end -->
 
 ---
