@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is God who causes night and day to alter­nate: in this [too], behold, there is surely a lesson for all who have eyes to see!* — **An-Noor (24:44)**
+> 📖 *And by means of this [water] We bring forth for you gardens of date-palms and vines, wherein you have fruit abundant and whereof you eat,* — **Al-Muminoon (23:19)**
 <!-- quran-verse-end -->
 
 ---
