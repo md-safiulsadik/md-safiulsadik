@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But,] verily, as for those who have attained to faith and do righteous deeds - their Sustainer guides them aright by means of their faith. [In the life to come,] running waters will flow at their feet in gardens of bliss;* — **Yunus (10:9)**
+> 📖 *Or [do they think] that the hidden reality [of all that exists] is within their grasp, so that [in time] they can write it down?* — **Al-Qalam (68:47)**
 <!-- quran-verse-end -->
 
 ---
