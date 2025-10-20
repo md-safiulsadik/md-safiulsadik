@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *asking [derisively], "When is that Resurrection Day to be?"* — **Al-Qiyaama (75:6)**
+> 📖 *And they [who are thus blest] will turn to one another, asking each other [about their past lives].* — **At-Tur (52:25)**
 <!-- quran-verse-end -->
 
 ---
