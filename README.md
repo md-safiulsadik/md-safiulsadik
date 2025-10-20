@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "[God is] He who has brought you [all] into being, and has endowed you with hearing, and sight, and hearts: [yet] how seldom are you grateful!"* — **Al-Mulk (67:23)**
+> 📖 *asking [derisively], "When is that Resurrection Day to be?"* — **Al-Qiyaama (75:6)**
 <!-- quran-verse-end -->
 
 ---
