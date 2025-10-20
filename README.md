@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ABOUT WHAT do they [most often] ask one another?* — **An-Naba (78:1)**
+> 📖 *[and know that the observance of] the Sabbath was ordained only for those who came to hold divergent views about him; but, verily, God will judge between them on Resurrection Day with regard to all on which they were wont to differ.* — **An-Nahl (16:124)**
 <!-- quran-verse-end -->
 
 ---
