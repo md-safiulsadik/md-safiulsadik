@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and know that the observance of] the Sabbath was ordained only for those who came to hold divergent views about him; but, verily, God will judge between them on Resurrection Day with regard to all on which they were wont to differ.* — **An-Nahl (16:124)**
+> 📖 *SAY: "[God is] He who has brought you [all] into being, and has endowed you with hearing, and sight, and hearts: [yet] how seldom are you grateful!"* — **Al-Mulk (67:23)**
 <!-- quran-verse-end -->
 
 ---
