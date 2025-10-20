@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and food that chokes, and grievous suffering* — **Al-Muzzammil (73:13)**
+> 📖 *a source [of bliss] whereof those who are drawn close unto God shall drink.* — **Al-Mutaffifin (83:28)**
 <!-- quran-verse-end -->
 
 ---
