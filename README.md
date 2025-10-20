@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, it is We who grant life and deal death; and with Us will be all journeys’ end* — **Qaaf (50:43)**
+> 📖 *But [Pharaoh] gave him the lie and rebelliously rejected [all guidance],* — **An-Naazi'aat (79:21)**
 <!-- quran-verse-end -->
 
 ---
