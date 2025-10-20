@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and caused them to become like a field of grain that has been eaten down to stubble* — **Al-Fil (105:5)**
+> 📖 *BEHOLD. We sent Noah unto his people. [saying:] "Warn thy people ere grievous suffering befall them!* — **Nooh (71:1)**
 <!-- quran-verse-end -->
 
 ---
