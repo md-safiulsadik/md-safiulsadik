@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [remember] Ishmael and Idris and every one who [like them] has pledged himself [unto God]: they all were among those who are patient in adver­sity,* — **Al-Anbiyaa (21:85)**
+> 📖 *rejoicing in all that their Sustainer will have granted them: for their Sustainer will have warded off from them all suffering through the blazing fire.* — **At-Tur (52:18)**
 <!-- quran-verse-end -->
 
 ---
