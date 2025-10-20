@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "O you who deny the truth!* — **Al-Kaafiroon (109:1)**
+> 📖 *and food that chokes, and grievous suffering* — **Al-Muzzammil (73:13)**
 <!-- quran-verse-end -->
 
 ---
