@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, they could never be of any avail to thee if thou wert to defy the will of God for, verily, such evildoers are but friends and protectors of one another, whereas God is the Protector of all who are conscious of Him.* — **Al-Jaathiya (45:19)**
+> 📖 *May God pardon thee [O Prophet]! Why didst thou grant them permission [to stay at home] ere it had become obvious to thee as to who was speaking the truth, and [ere] thou camest to know. [who were] the liars?* — **At-Tawba (9:43)**
 <!-- quran-verse-end -->
 
 ---
