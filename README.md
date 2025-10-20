@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now had We so willed, We could have shown them clearly to thee, so that thou wouldst know them for sure as by a visible mark: but [even so,] thou wilt most certainly recognize them by the tone of their voice. And God knows all that you do, [O men;]* — **Muhammad (47:30)**
+> 📖 *[for] if those [to whom they have pledged themselves] are indeed driven away, they will not go forth with them; and if war is waged against them, they will not come to their succour; and even if they [try to] succour them, they will most certainly turn their backs [in flight], and in the end will [themselves] find no succour.* — **Al-Hashr (59:12)**
 <!-- quran-verse-end -->
 
 ---
