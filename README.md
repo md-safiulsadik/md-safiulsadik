@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD. We sent Noah unto his people. [saying:] "Warn thy people ere grievous suffering befall them!* — **Nooh (71:1)**
+> 📖 *AND [remember] Ishmael and Idris and every one who [like them] has pledged himself [unto God]: they all were among those who are patient in adver­sity,* — **Al-Anbiyaa (21:85)**
 <!-- quran-verse-end -->
 
 ---
