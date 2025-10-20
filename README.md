@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *a source [of bliss] whereof those who are drawn close unto God shall drink.* — **Al-Mutaffifin (83:28)**
+> 📖 *BEHOLD, We have bestowed upon thee from on high this divine writ, setting forth the truth, so that thou may judge between people in accordance with what God has taught thee. Hence, do not contend with those who are false to their trust,* — **An-Nisaa (4:105)**
 <!-- quran-verse-end -->
 
 ---
