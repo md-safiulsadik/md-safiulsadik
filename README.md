@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But [Pharaoh] gave him the lie and rebelliously rejected [all guidance],* — **An-Naazi'aat (79:21)**
+> 📖 *ABOUT WHAT do they [most often] ask one another?* — **An-Naba (78:1)**
 <!-- quran-verse-end -->
 
 ---
