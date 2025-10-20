@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, We have bestowed upon thee from on high this divine writ, setting forth the truth, so that thou may judge between people in accordance with what God has taught thee. Hence, do not contend with those who are false to their trust,* — **An-Nisaa (4:105)**
+> 📖 *Now had We so willed, We could have shown them clearly to thee, so that thou wouldst know them for sure as by a visible mark: but [even so,] thou wilt most certainly recognize them by the tone of their voice. And God knows all that you do, [O men;]* — **Muhammad (47:30)**
 <!-- quran-verse-end -->
 
 ---
