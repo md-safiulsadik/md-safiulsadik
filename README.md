@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and of his spouse, and of his brother,* — **Al-Ma'aarij (70:12)**
+> 📖 *Behold, they could never be of any avail to thee if thou wert to defy the will of God for, verily, such evildoers are but friends and protectors of one another, whereas God is the Protector of all who are conscious of Him.* — **Al-Jaathiya (45:19)**
 <!-- quran-verse-end -->
 
 ---
