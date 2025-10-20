@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
+> 📖 *Verily, it is We who grant life and deal death; and with Us will be all journeys’ end* — **Qaaf (50:43)**
 <!-- quran-verse-end -->
 
 ---
