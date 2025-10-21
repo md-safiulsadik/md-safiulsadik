@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“This is what you were promised - [promised] unto every­one who was wont to turn unto God and to keep Him always in mind –* — **Qaaf (50:32)**
+> 📖 *Unto you, your moral law, and unto me, mine!"* — **Al-Kaafiroon (109:6)**
 <!-- quran-verse-end -->
 
 ---
