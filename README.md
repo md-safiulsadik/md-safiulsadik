@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Unto you, your moral law, and unto me, mine!"* — **Al-Kaafiroon (109:6)**
+> 📖 *and [fail to see that] it is He who has created the night and the day and the sun and the moon - all of them floating through space!* — **Al-Anbiyaa (21:33)**
 <!-- quran-verse-end -->
 
 ---
