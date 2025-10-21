@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
+> 📖 *And walk not on earth with haughty self-conceit: for, verily, thou canst never rend the earth asunder, nor canst thou ever grow as tall as the mountains!* — **Al-Israa (17:37)**
 <!-- quran-verse-end -->
 
 ---
