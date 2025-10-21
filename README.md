@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and He brought down from their strongholds those of the followers of earlier reve­lation who had aided the aggressors, and cast terror into their hearts: some you slew, and some you made captive;* — **Al-Ahzaab (33:26)**
+> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
 <!-- quran-verse-end -->
 
 ---
