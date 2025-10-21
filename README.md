@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what that sudden calamity will be?* — **Al-Qaari'a (101:3)**
+> 📖 *“This is what you were promised - [promised] unto every­one who was wont to turn unto God and to keep Him always in mind –* — **Qaaf (50:32)**
 <!-- quran-verse-end -->
 
 ---
