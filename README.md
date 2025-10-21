@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And this will be] a reward for what they did [in life].* — **Al-Waaqia (56:24)**
+> 📖 *He will shower upon you heavenly blessings abundant,* — **Nooh (71:11)**
 <!-- quran-verse-end -->
 
 ---
