@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He will shower upon you heavenly blessings abundant,* — **Nooh (71:11)**
+> 📖 *O MAN! What is it that lures thee away from thy bountiful Sustainer,* — **Al-Infitaar (82:6)**
 <!-- quran-verse-end -->
 
 ---
