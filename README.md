@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And walk not on earth with haughty self-conceit: for, verily, thou canst never rend the earth asunder, nor canst thou ever grow as tall as the mountains!* — **Al-Israa (17:37)**
+> 📖 *[Woe unto him who amasses wealth and counts it a safeguard,* — **Al-Humaza (104:2)**
 <!-- quran-verse-end -->
 
 ---
