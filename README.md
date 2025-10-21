@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Woe unto him who amasses wealth and counts it a safeguard,* — **Al-Humaza (104:2)**
+> 📖 *But We raised you again after you had been as dead, so that you might have cause to be grateful.* — **Al-Baqara (2:56)**
 <!-- quran-verse-end -->
 
 ---
