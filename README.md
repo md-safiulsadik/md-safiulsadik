@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that He may forgive you some of your sins, and grant you respite until a term known [to Him alone]: but, behold, when the term appointed by God does come, it can never be put back - if you but knew it!"* — **Nooh (71:4)**
+> 📖 *and He brought down from their strongholds those of the followers of earlier reve­lation who had aided the aggressors, and cast terror into their hearts: some you slew, and some you made captive;* — **Al-Ahzaab (33:26)**
 <!-- quran-verse-end -->
 
 ---
