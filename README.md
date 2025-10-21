@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *May God pardon thee [O Prophet]! Why didst thou grant them permission [to stay at home] ere it had become obvious to thee as to who was speaking the truth, and [ere] thou camest to know. [who were] the liars?* — **At-Tawba (9:43)**
+> 📖 *[And this will be] a reward for what they did [in life].* — **Al-Waaqia (56:24)**
 <!-- quran-verse-end -->
 
 ---
