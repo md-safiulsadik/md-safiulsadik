@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Art thou not aware of those who, having been granted their share of the divine writ, [now] believe in baseless mysteries and in the powers of evil, and maintain that those who are bent on denying the truth are more surely guided than those who have attained to faith?* — **An-Nisaa (4:51)**
+> 📖 *And thus it is: whenever We sent, before thy time, a warner to any community, those of its people who had lost themselves entirely in the pursuit of pleasures would always say, “Behold, we found our forefathers agreed on what to believe - and, verily, it is but in their footsteps that we follow!”* — **Az-Zukhruf (43:23)**
 <!-- quran-verse-end -->
 
 ---
