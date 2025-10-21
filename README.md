@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *although God's apostle had told them, "It is a she-camel belonging to God, so let her drink [and do her no harm]!"* — **Ash-Shams (91:13)**
+> 📖 *so that He may forgive you some of your sins, and grant you respite until a term known [to Him alone]: but, behold, when the term appointed by God does come, it can never be put back - if you but knew it!"* — **Nooh (71:4)**
 <!-- quran-verse-end -->
 
 ---
