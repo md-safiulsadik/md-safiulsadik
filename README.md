@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But We raised you again after you had been as dead, so that you might have cause to be grateful.* — **Al-Baqara (2:56)**
+> 📖 *and when she-camels big with young, about to give birth, are left untended,* — **At-Takwir (81:4)**
 <!-- quran-verse-end -->
 
 ---
