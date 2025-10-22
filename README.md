@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And as for those who accuse chaste women [of adultery], and then are unable to produce four witnesses [in support of their accusation], flog them with eighty stripes and ever after refuse to accept from them any testimony - since it is they, they that are truly depraved!* — **An-Noor (24:4)**
+> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
 <!-- quran-verse-end -->
 
 ---
