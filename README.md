@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said [Pharaoh]: "If thou hast come with a sign, produce it-if thou art a man of truth!"* — **Al-A'raaf (7:106)**
+> 📖 *IN THE HOUSES [of worship] which God has allowed to be raised so that His name be remembered in them, there [are such as] extol His limitless glory at morn and evening –* — **An-Noor (24:36)**
 <!-- quran-verse-end -->
 
 ---
