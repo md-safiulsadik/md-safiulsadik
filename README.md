@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And if any of those who ascribe divinity to aught beside God seeks thy protection, grant him protection, so that he might [be able to] hear the word of God [from thee]; and thereupon convey him to a place where he can feel secure: this, because they [may be] people who [sin only because they] do not know [the truth].* — **At-Tawba (9:6)**
+> 📖 *And vie with one another to attain to your Sustainer's forgiveness and to a paradise as vast as the heavens and the earth, which has been readied for the God-conscious* — **Aal-i-Imraan (3:133)**
 <!-- quran-verse-end -->
 
 ---
