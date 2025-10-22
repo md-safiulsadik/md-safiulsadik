@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas those who are bent on denying the truth of Our messages – they are such as have lost themselves in evil,* — **Al-Balad (90:19)**
+> 📖 *Said [Pharaoh]: "If thou hast come with a sign, produce it-if thou art a man of truth!"* — **Al-A'raaf (7:106)**
 <!-- quran-verse-end -->
 
 ---
