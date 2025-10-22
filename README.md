@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
+> 📖 *And if any of those who ascribe divinity to aught beside God seeks thy protection, grant him protection, so that he might [be able to] hear the word of God [from thee]; and thereupon convey him to a place where he can feel secure: this, because they [may be] people who [sin only because they] do not know [the truth].* — **At-Tawba (9:6)**
 <!-- quran-verse-end -->
 
 ---
