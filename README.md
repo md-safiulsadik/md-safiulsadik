@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and you cannot elude Him on earth, and you will have none to protect you from God [in the life to come], and none to bring you succour.* — **Ash-Shura (42:31)**
+> 📖 *O Prophet! God is enough for thee and those of the believers who follow thee!* — **Al-Anfaal (8:64)**
 <!-- quran-verse-end -->
 
 ---
