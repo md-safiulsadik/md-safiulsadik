@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAVE WE NOT opened up thy heart,* — **Ash-Sharh (94:1)**
+> 📖 *AND [know, O men, that] whether you keep your beliefs secret or state them openly, He has full knowledge indeed of all that is in [your] hearts.* — **Al-Mulk (67:13)**
 <!-- quran-verse-end -->
 
 ---
