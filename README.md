@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Unto you, your moral law, and unto me, mine!"* — **Al-Kaafiroon (109:6)**
+> 📖 *[But] how shall this remembrance avail them [at the Last Hour], seeing that an apostle had pre­viously come unto them, clearly expounding the truth,* — **Ad-Dukhaan (44:13)**
 <!-- quran-verse-end -->
 
 ---
