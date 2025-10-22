@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but, on the contrary, he gave the lie to the truth and turned away [from it],* — **Al-Qiyaama (75:32)**
+> 📖 *Unto you, your moral law, and unto me, mine!"* — **Al-Kaafiroon (109:6)**
 <!-- quran-verse-end -->
 
 ---
