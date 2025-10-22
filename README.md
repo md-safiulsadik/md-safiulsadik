@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *IN THE HOUSES [of worship] which God has allowed to be raised so that His name be remembered in them, there [are such as] extol His limitless glory at morn and evening –* — **An-Noor (24:36)**
+> 📖 *whereas by His words God proves the truth to be true, however hateful this may be to those who are lost in sin!"* — **Yunus (10:82)**
 <!-- quran-verse-end -->
 
 ---
