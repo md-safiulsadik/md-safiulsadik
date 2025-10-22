@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And now that he had come back, Moses] said: "O Aaron! What has prevented thee, when thou didst see that they had gone astray,* — **Taa-Haa (20:92)**
+> 📖 *whereas those who are bent on denying the truth of Our messages – they are such as have lost themselves in evil,* — **Al-Balad (90:19)**
 <!-- quran-verse-end -->
 
 ---
