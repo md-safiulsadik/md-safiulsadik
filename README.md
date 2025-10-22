@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the day as it reveals the world,* — **Ash-Shams (91:3)**
+> 📖 *No food for them save the bitterness of dry thorns,* — **Al-Ghaashiya (88:6)**
 <!-- quran-verse-end -->
 
 ---
