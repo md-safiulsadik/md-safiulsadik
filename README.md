@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *No food for them save the bitterness of dry thorns,* — **Al-Ghaashiya (88:6)**
+> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
 <!-- quran-verse-end -->
 
 ---
