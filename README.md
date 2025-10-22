@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
+> 📖 *and the mountains will be like fluffy tufts of wool....* — **Al-Qaari'a (101:5)**
 <!-- quran-verse-end -->
 
 ---
