@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But] how shall this remembrance avail them [at the Last Hour], seeing that an apostle had pre­viously come unto them, clearly expounding the truth,* — **Ad-Dukhaan (44:13)**
+> 📖 *And as for those who accuse chaste women [of adultery], and then are unable to produce four witnesses [in support of their accusation], flog them with eighty stripes and ever after refuse to accept from them any testimony - since it is they, they that are truly depraved!* — **An-Noor (24:4)**
 <!-- quran-verse-end -->
 
 ---
