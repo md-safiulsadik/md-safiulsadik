@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas by His words God proves the truth to be true, however hateful this may be to those who are lost in sin!"* — **Yunus (10:82)**
+> 📖 *HAVE WE NOT opened up thy heart,* — **Ash-Sharh (94:1)**
 <!-- quran-verse-end -->
 
 ---
