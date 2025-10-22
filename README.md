@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but [man] has never yet fulfilled what He has enjoined upon him!* — **Abasa (80:23)**
+> 📖 *Consider the day as it reveals the world,* — **Ash-Shams (91:3)**
 <!-- quran-verse-end -->
 
 ---
