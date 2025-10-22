@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[who bears] around her neck a rope of twisted strands!* — **Al-Masad (111:5)**
+> 📖 *Nay, but [man] has never yet fulfilled what He has enjoined upon him!* — **Abasa (80:23)**
 <!-- quran-verse-end -->
 
 ---
