@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [fail to see that] it is He who has created the night and the day and the sun and the moon - all of them floating through space!* — **Al-Anbiyaa (21:33)**
+> 📖 *[And now that he had come back, Moses] said: "O Aaron! What has prevented thee, when thou didst see that they had gone astray,* — **Taa-Haa (20:92)**
 <!-- quran-verse-end -->
 
 ---
