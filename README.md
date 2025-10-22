@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [know, O men, that] whether you keep your beliefs secret or state them openly, He has full knowledge indeed of all that is in [your] hearts.* — **Al-Mulk (67:13)**
+> 📖 *and you cannot elude Him on earth, and you will have none to protect you from God [in the life to come], and none to bring you succour.* — **Ash-Shura (42:31)**
 <!-- quran-verse-end -->
 
 ---
