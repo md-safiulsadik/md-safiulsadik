@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And vie with one another to attain to your Sustainer's forgiveness and to a paradise as vast as the heavens and the earth, which has been readied for the God-conscious* — **Aal-i-Imraan (3:133)**
+> 📖 *but, on the contrary, he gave the lie to the truth and turned away [from it],* — **Al-Qiyaama (75:32)**
 <!-- quran-verse-end -->
 
 ---
