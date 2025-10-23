@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *will you, then, contend with him as to what he saw?* — **An-Najm (53:12)**
+> 📖 *for, whenever any of them is given the glad tiding of [the birth of] a girl, his face darkens, and he is filled with suppressed anger,* — **An-Nahl (16:58)**
 <!-- quran-verse-end -->
 
 ---
