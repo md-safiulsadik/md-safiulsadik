@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas unto the people who [in the past] had been deemed utterly low, We gave as their heritage the eastern and western parts of the land that We had blessed. And [thus] thy Sustainer's good promise unto the children of Israel was fulfilled in result of their patience in adversity; whereas We utterly destroyed all that Pharaoh and his people had wrought, and all that they had built.* — **Al-A'raaf (7:137)**
+> 📖 *in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen* — **Al-Qadr (97:4)**
 <!-- quran-verse-end -->
 
 ---
