@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the mountains will be like fluffy tufts of wool....* — **Al-Qaari'a (101:5)**
+> 📖 *Said He: “We shall strengthen thine arm through thy brother, and endow both of you with power, so that they will not be able to touch you: by virtue of Our messages shall you two, and all who follow you, prevail!”* — **Al-Qasas (28:35)**
 <!-- quran-verse-end -->
 
 ---
