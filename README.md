@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Moaning will be their lot therein, and nothing [else] will they hear therein.* — **Al-Anbiyaa (21:100)**
+> 📖 *HE FROWNED and turned away* — **Abasa (80:1)**
 <!-- quran-verse-end -->
 
 ---
