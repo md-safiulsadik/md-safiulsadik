@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WITH ALL THIS, man [often] says, "What! Once I am dead, shall I again be brought forth alive?"* — **Maryam (19:66)**
+> 📖 *But [let them always remember that] if We lengthen a human being’s days, We also cause him to decline in his powers [when he grows old]: will they not, then, use their reason?* — **Yaseen (36:68)**
 <!-- quran-verse-end -->
 
 ---
