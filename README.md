@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *As for those of you who [henceforth] separate themselves from their wives by saying, “Thou art as unlawful to me as my mother”, [let them bear in mind that] they can never be [as] their mothers: none are their mothers save those who gave them birth: and so, behold, they but utter a saying that runs counter to reason, and is [therefore] false. But, behold, God is indeed an absolver of sins, much-forgiving:* — **Al-Mujaadila (58:2)**
+> 📖 *whereas unto the people who [in the past] had been deemed utterly low, We gave as their heritage the eastern and western parts of the land that We had blessed. And [thus] thy Sustainer's good promise unto the children of Israel was fulfilled in result of their patience in adversity; whereas We utterly destroyed all that Pharaoh and his people had wrought, and all that they had built.* — **Al-A'raaf (7:137)**
 <!-- quran-verse-end -->
 
 ---
