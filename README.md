@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And among His wonders is this: He creates for you mates out of your own kind. so that you might incline towards them, and He engenders love and tenderness between you: in this, behold, there are messages indeed for people who think!* — **Ar-Room (30:21)**
+> 📖 *will you, then, contend with him as to what he saw?* — **An-Najm (53:12)**
 <!-- quran-verse-end -->
 
 ---
