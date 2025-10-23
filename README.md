@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?* — **Al-Fil (105:1)**
+> 📖 *And among His wonders is this: He creates for you mates out of your own kind. so that you might incline towards them, and He engenders love and tenderness between you: in this, behold, there are messages indeed for people who think!* — **Ar-Room (30:21)**
 <!-- quran-verse-end -->
 
 ---
