@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, whenever any of them is given the glad tiding of [the birth of] a girl, his face darkens, and he is filled with suppressed anger,* — **An-Nahl (16:58)**
+> 📖 *as a ready welcome from Him who is much-forgiving, a dispenser of grace!”* — **Fussilat (41:32)**
 <!-- quran-verse-end -->
 
 ---
