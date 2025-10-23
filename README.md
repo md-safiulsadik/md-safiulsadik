@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the scrolls [of men's deeds] are unfolded,* — **At-Takwir (81:10)**
+> 📖 *WITH ALL THIS, man [often] says, "What! Once I am dead, shall I again be brought forth alive?"* — **Maryam (19:66)**
 <!-- quran-verse-end -->
 
 ---
