@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
+> 📖 *and when the blazing fire [of hell] is kindled bright,* — **At-Takwir (81:12)**
 <!-- quran-verse-end -->
 
 ---
