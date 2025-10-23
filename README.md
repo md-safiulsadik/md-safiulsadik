@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, behold, with every hardship comes ease:* — **Ash-Sharh (94:5)**
+> 📖 *ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?* — **Al-Fil (105:1)**
 <!-- quran-verse-end -->
 
 ---
