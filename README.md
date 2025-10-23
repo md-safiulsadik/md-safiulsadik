@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *as a ready welcome from Him who is much-forgiving, a dispenser of grace!”* — **Fussilat (41:32)**
+> 📖 *Moaning will be their lot therein, and nothing [else] will they hear therein.* — **Al-Anbiyaa (21:100)**
 <!-- quran-verse-end -->
 
 ---
