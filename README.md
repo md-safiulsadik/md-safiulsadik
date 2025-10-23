@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But [let them always remember that] if We lengthen a human being’s days, We also cause him to decline in his powers [when he grows old]: will they not, then, use their reason?* — **Yaseen (36:68)**
+> 📖 *[But] can, then, they [who deny the truth] learn no lesson by recalling how many a generation We have destroyed before their time? [people] in whose dwelling-places they [themselves now] walk about? In this, behold, there are messages indeed: will they not, then, listen?* — **As-Sajda (32:26)**
 <!-- quran-verse-end -->
 
 ---
