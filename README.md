@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
+> 📖 *"'And, withal, we have come to know that we can never elude God [while we live] on earth, and that we can never elude Him by escaping [from life].* — **Al-Jinn (72:12)**
 <!-- quran-verse-end -->
 
 ---
