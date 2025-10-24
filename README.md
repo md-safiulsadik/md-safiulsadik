@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when heaven is laid bare,* — **At-Takwir (81:11)**
+> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:69)**
 <!-- quran-verse-end -->
 
 ---
