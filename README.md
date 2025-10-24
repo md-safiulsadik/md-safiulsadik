@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the mountains will be like fluffy tufts of wool....* — **Al-Qaari'a (101:5)**
+> 📖 *and when heaven is laid bare,* — **At-Takwir (81:11)**
 <!-- quran-verse-end -->
 
 ---
