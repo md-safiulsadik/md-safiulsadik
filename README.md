@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But leave them to indulge in idle talk and play [with words] until they face that [Judgment] Day of theirs which they have been promised:* — **Az-Zukhruf (43:83)**
+> 📖 *But wouldst thou, perhaps, torment thyself to death with grief over them if they are not willing to believe in this message?* — **Al-Kahf (18:6)**
 <!-- quran-verse-end -->
 
 ---
