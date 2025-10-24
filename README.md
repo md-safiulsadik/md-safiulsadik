@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *behold, We have bestowed it from on high as a discourse in the Arabic tongue, so that you might encompass it with your reason.* — **Yusuf (12:2)**
+> 📖 *and the mountains will be like fluffy tufts of wool....* — **Al-Qaari'a (101:5)**
 <!-- quran-verse-end -->
 
 ---
