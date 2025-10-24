@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But wouldst thou, perhaps, torment thyself to death with grief over them if they are not willing to believe in this message?* — **Al-Kahf (18:6)**
+> 📖 *[the fire] which none shall have to endure but that most hapless wretch* — **Al-Lail (92:15)**
 <!-- quran-verse-end -->
 
 ---
