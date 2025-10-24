@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and endure with patience whatever people may say [against thee], and avoid them with a comely avoidance.* — **Al-Muzzammil (73:10)**
+> 📖 *And who could be more wicked than they who attribute their own lying inventions to God or give the lie to His messages? Whatever has been decreed to be their lot [in life] will be theirs -till there shall come _ unto them Our messengers to cause them to die, [and] shall say, "Where, now, are those beings whom you were wont to invoke beside God?" And [those sinners] will reply, "They have forsaken us!" -and [thus] they will bear witness against themselves that they had been denying the truth.* — **Al-A'raaf (7:37)**
 <!-- quran-verse-end -->
 
 ---
