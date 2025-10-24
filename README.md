@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[the fire] which none shall have to endure but that most hapless wretch* — **Al-Lail (92:15)**
+> 📖 *for, verily, to the love of wealth is he most ardently devoted.* — **Al-Aadiyaat (100:8)**
 <!-- quran-verse-end -->
 
 ---
