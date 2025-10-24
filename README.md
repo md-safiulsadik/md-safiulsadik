@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what that [abyss] will be?* — **Al-Qaari'a (101:10)**
+> 📖 *and endure with patience whatever people may say [against thee], and avoid them with a comely avoidance.* — **Al-Muzzammil (73:10)**
 <!-- quran-verse-end -->
 
 ---
