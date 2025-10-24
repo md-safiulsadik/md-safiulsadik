@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, Satan is a foe unto you: so treat him as a foe. He but calls on his followers to the end that they might find themselves among such as are des­tined for the blazing flame –* — **Faatir (35:6)**
+> 📖 *behold, We have bestowed it from on high as a discourse in the Arabic tongue, so that you might encompass it with your reason.* — **Yusuf (12:2)**
 <!-- quran-verse-end -->
 
 ---
