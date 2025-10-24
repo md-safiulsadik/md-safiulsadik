@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[It will be] a Day when no human being shall be of the least avail to another human being: for on that Day [it will become manifest that] all sovereignty is God's alone.* — **Al-Infitaar (82:19)**
+> 📖 *Enjoy, then, all that is lawful and good among the things which you have gained in war, and remain conscious of God: verily, God is much-forgiving, a dispenser of grace.* — **Al-Anfaal (8:69)**
 <!-- quran-verse-end -->
 
 ---
