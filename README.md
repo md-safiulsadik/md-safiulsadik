@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *At the same time, the hypocrites and those in whose hearts was disease were saying, "Their faith has deluded these [believers]!" But he who places his trust in God [knows that], verily, God is almighty, wise.* — **Al-Anfaal (8:49)**
+> 📖 *But leave them to indulge in idle talk and play [with words] until they face that [Judgment] Day of theirs which they have been promised:* — **Az-Zukhruf (43:83)**
 <!-- quran-verse-end -->
 
 ---
