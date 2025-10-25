@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which – behold!- will throw up sparks like [burning] logs,* — **Al-Mursalaat (77:32)**
+> 📖 *and this land secure!* — **At-Tin (95:3)**
 <!-- quran-verse-end -->
 
 ---
