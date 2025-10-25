@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and this land secure!* — **At-Tin (95:3)**
+> 📖 *and when all beasts are gathered together,* — **At-Takwir (81:5)**
 <!-- quran-verse-end -->
 
 ---
