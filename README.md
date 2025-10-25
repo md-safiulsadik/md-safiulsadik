@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and bear in mind thy Sustainer's name at morn and evening* — **Al-Insaan (76:25)**
+> 📖 *And all who henceforth invent lies about God - it is they, they who are evildoers!* — **Aal-i-Imraan (3:94)**
 <!-- quran-verse-end -->
 
 ---
