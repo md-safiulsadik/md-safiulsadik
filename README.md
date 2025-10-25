@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "What do you think? If God should take away your hearing and your sight and seal your hearts - what deity but God is there that could bring it all back to you?" Behold how many facets we give to our messages-and yet they turn away in disdain!* — **Al-An'aam (6:46)**
+> 📖 *Their reward [awaits them] with God: gardens of perpetual bliss, through which running waters flow, therein to abide beyond the count of time; well-pleased is God with them, and well-pleased are they with Him: all this awaits him who of his Sustainer stands in awe!.* — **Al-Bayyina (98:8)**
 <!-- quran-verse-end -->
 
 ---
