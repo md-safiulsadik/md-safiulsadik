@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
+> 📖 *[It will occur] on the Day when men will be like moths swarming in confusion,* — **Al-Qaari'a (101:4)**
 <!-- quran-verse-end -->
 
 ---
