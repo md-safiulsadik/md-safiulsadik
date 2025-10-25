@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THIS IS A MESSAGE unto all mankind. Hence, let them be warned thereby, and let them know that He is the One and Only God; and let those who are endowed with insight take this to heart!* — **Ibrahim (14:52)**
+> 📖 *And indeed, there came unto you Moses with all evidence of the truth - and thereupon. in his absence, you took to worshipping the (golden] calf, and acted wickedly.* — **Al-Baqara (2:92)**
 <!-- quran-verse-end -->
 
 ---
