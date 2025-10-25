@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Night of Destiny is better than a thousand months:* — **Al-Qadr (97:3)**
+> 📖 *Say: “Which is better - that, or the paradise of life abiding which has been promised to the God-conscious as their reward and their journey’s end –* — **Al-Furqaan (25:15)**
 <!-- quran-verse-end -->
 
 ---
