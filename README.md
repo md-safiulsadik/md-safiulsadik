@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And indeed, there came unto you Moses with all evidence of the truth - and thereupon. in his absence, you took to worshipping the (golden] calf, and acted wickedly.* — **Al-Baqara (2:92)**
+> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
 <!-- quran-verse-end -->
 
 ---
