@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And all who henceforth invent lies about God - it is they, they who are evildoers!* — **Aal-i-Imraan (3:94)**
+> 📖 *"and from the evil of the black darkness whenever it descends,* — **Al-Falaq (113:3)**
 <!-- quran-verse-end -->
 
 ---
