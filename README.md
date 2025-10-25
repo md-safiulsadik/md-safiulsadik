@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Not one of all [the beings] that are in the heavens or on earth appears before the Most Gracious other than as a servant:* — **Maryam (19:93)**
+> 📖 *with seven gates leading into it, each gate receiving its allotted share of sinners. -* — **Al-Hijr (15:44)**
 <!-- quran-verse-end -->
 
 ---
