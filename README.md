@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, [in the life to come] the tree of deadly fruit* — **Ad-Dukhaan (44:43)**
+> 📖 *THE MOST GRACIOUS* — **Ar-Rahmaan (55:1)**
 <!-- quran-verse-end -->
 
 ---
