@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *with seven gates leading into it, each gate receiving its allotted share of sinners. -* — **Al-Hijr (15:44)**
+> 📖 *Say: "What do you think? If God should take away your hearing and your sight and seal your hearts - what deity but God is there that could bring it all back to you?" Behold how many facets we give to our messages-and yet they turn away in disdain!* — **Al-An'aam (6:46)**
 <!-- quran-verse-end -->
 
 ---
