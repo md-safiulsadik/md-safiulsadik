@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THE MOST GRACIOUS* — **Ar-Rahmaan (55:1)**
+> 📖 *which – behold!- will throw up sparks like [burning] logs,* — **Al-Mursalaat (77:32)**
 <!-- quran-verse-end -->
 
 ---
