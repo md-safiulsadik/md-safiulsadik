@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *We would indeed have seized him by his right hand,* — **Al-Haaqqa (69:45)**
+> 📖 *And [then He said]: “Throw down thy staff!” But as soon as [Moses] saw it move rapidly, as if it were a snake, he drew back [in terror], and did not [dare to] return. [And God spoke to him again:] “O Moses! Draw near, and have no fear - for, behold, thou art of those who are secure [in this world and in the next]!* — **Al-Qasas (28:31)**
 <!-- quran-verse-end -->
 
 ---
