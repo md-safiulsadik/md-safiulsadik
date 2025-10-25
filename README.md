@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither sky nor earth shed tears over them, nor were they allowed a respite.* — **Ad-Dukhaan (44:29)**
+> 📖 *We would indeed have seized him by his right hand,* — **Al-Haaqqa (69:45)**
 <!-- quran-verse-end -->
 
 ---
