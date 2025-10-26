@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said she: "How can I have a son when no man has ever touched me? - for, never have I been a loose woman!"* — **Maryam (19:20)**
+> 📖 *It may not accord with your wishful thinking - nor with the wishful thinking of the fol­lowers of earlier revelation - [that] he who does evil shall be requited for it, and shall find none to protect him from God, and none to bring him succour,* — **An-Nisaa (4:123)**
 <!-- quran-verse-end -->
 
 ---
