@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that Day shall the hypocrites, both men and women, speak [thus] unto those who have attained to faith: “Wait for us! Let us have a [ray of] light from your light!” [But] they will be told: “Turn back, and seek a light [of your own]!” And thereupon a wall will be raised between them [and the believers], with a gate in it: within it will be grace and mercy, and against the outside thereof, suffering.* — **Al-Hadid (57:13)**
+> 📖 *On the Day when God will raise them all from the dead, they will swear before Him as they [now] swear before you, thinking that they are on firm ground [in their assumptions]. Oh, verily, it is they, they who are the [greatest] liars!* — **Al-Mujaadila (58:18)**
 <!-- quran-verse-end -->
 
 ---
