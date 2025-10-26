@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, they [who refuse to accept it] devise many a false argument [to disprove its truth];* — **At-Taariq (86:15)**
+> 📖 *Said she: "How can I have a son when no man has ever touched me? - for, never have I been a loose woman!"* — **Maryam (19:20)**
 <!-- quran-verse-end -->
 
 ---
