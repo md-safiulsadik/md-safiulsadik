@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *running in con­fusion towards the Summoning Voice; [and] those who [now] deny the truth will exclaim, “Calamitous is this Day!”* — **Al-Qamar (54:8)**
+> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
 <!-- quran-verse-end -->
 
 ---
