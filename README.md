@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[In all these respects,] let him who has ample means spend in accordance with his amplitude; and let him whose means of subsistence are scanty spend in accordance with what God has given him: God does not burden any human being with more than He has given him - [and it may well be that] God will grant, after hardship, ease.* — **At-Talaaq (65:7)**
+> 📖 *Behold, they who lower their voices in the presence of God’s Apostle - it is they whose hearts God has tested [and opened] to consciousness of Himself; [and] theirs shall be forgiveness and a reward supreme.* — **Al-Hujuraat (49:3)**
 <!-- quran-verse-end -->
 
 ---
