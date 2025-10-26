@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On the Day when God will raise them all from the dead, they will swear before Him as they [now] swear before you, thinking that they are on firm ground [in their assumptions]. Oh, verily, it is they, they who are the [greatest] liars!* — **Al-Mujaadila (58:18)**
+> 📖 *HENCE, [O believer,] bear thou with patience what­ever they may say, and extol thy Sustainer’s limit­less glory and praise before the rising of the sun and before its setting;* — **Qaaf (50:39)**
 <!-- quran-verse-end -->
 
 ---
