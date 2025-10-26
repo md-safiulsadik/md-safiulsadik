@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Easy is it for Him to create likeness and variety:] thus, the two great bodies of water [on earth] are not alike the one sweet, thirst-allaying, pleasant to drink, and the other salty and bitter: and yet, from either of them do you eat fresh meat, and [from either] you take gems which you may wear; and on either thou canst see ships ploughing through the waves, so that you might [be able to] go forth in quest of some of His bounty, and thus have cause to be grateful.* — **Faatir (35:12)**
+> 📖 *On that Day shall the hypocrites, both men and women, speak [thus] unto those who have attained to faith: “Wait for us! Let us have a [ray of] light from your light!” [But] they will be told: “Turn back, and seek a light [of your own]!” And thereupon a wall will be raised between them [and the believers], with a gate in it: within it will be grace and mercy, and against the outside thereof, suffering.* — **Al-Hadid (57:13)**
 <!-- quran-verse-end -->
 
 ---
