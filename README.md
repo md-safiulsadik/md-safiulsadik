@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It may not accord with your wishful thinking - nor with the wishful thinking of the fol­lowers of earlier revelation - [that] he who does evil shall be requited for it, and shall find none to protect him from God, and none to bring him succour,* — **An-Nisaa (4:123)**
+> 📖 *[And God] said: "Go forth from here, disgraced and disowned! [And] as for such of them as follow thee - I will most certainly fill hell with you all!* — **Al-A'raaf (7:18)**
 <!-- quran-verse-end -->
 
 ---
