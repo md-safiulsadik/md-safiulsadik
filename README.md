@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HENCE, [O believer,] bear thou with patience what­ever they may say, and extol thy Sustainer’s limit­less glory and praise before the rising of the sun and before its setting;* — **Qaaf (50:39)**
+> 📖 *Behold, they [who refuse to accept it] devise many a false argument [to disprove its truth];* — **At-Taariq (86:15)**
 <!-- quran-verse-end -->
 
 ---
