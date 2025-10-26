@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [when] the earth yields up her burdens,* — **Az-Zalzala (99:2)**
+> 📖 *They will answer: “Limitless art Thou in Thy glory! Thou [alone] art close unto us, not they! Nay, [when they thought that they were worshipping us,] they were but [blindly] worshipping forces concealed from their senses; most of them believed in them.”* — **Saba (34:41)**
 <!-- quran-verse-end -->
 
 ---
