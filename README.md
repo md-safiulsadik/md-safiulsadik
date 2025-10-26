@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And God] said: "Go forth from here, disgraced and disowned! [And] as for such of them as follow thee - I will most certainly fill hell with you all!* — **Al-A'raaf (7:18)**
+> 📖 *The Night of Destiny is better than a thousand months:* — **Al-Qadr (97:3)**
 <!-- quran-verse-end -->
 
 ---
