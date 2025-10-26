@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
+> 📖 *Woe on that Day unto those who give the lie to the truth –* — **Al-Mutaffifin (83:10)**
 <!-- quran-verse-end -->
 
 ---
