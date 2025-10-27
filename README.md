@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, If Thou dost leave them, they will [always try to] lead astray those who worship Thee, and will give birth to nothing but wickedness and stubborn ingratitude.* — **Nooh (71:27)**
+> 📖 *and bear in mind thy Sustainer's name at morn and evening* — **Al-Insaan (76:25)**
 <!-- quran-verse-end -->
 
 ---
