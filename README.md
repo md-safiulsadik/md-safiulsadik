@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Night of Destiny is better than a thousand months:* — **Al-Qadr (97:3)**
+> 📖 *AND WHEN [the sons of Jacob] presented themselves before Joseph, he drew his brother [Benjamin] unto himself, saying [to him in secret]: "Behold, I am thy brother! So grieve thou not over their past doings!"* — **Yusuf (12:69)**
 <!-- quran-verse-end -->
 
 ---
