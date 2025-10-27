@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:45)**
+> 📖 *On that [night] was made clear, in wisdom, the distinction between all things [good and evil]* — **Ad-Dukhaan (44:4)**
 <!-- quran-verse-end -->
 
 ---
