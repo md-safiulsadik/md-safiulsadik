@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *until he was but two bow-lengths away, or even nearer.* — **An-Najm (53:9)**
+> 📖 *SAY: “Call upon those [beings] whom you imagine [to be endowed with divine powers] beside God: they have not an atom’s weight of power either in the heavens or on earth, nor have they any share in [governing] either, nor does He [choose to] have any helper from among them.”* — **Saba (34:22)**
 <!-- quran-verse-end -->
 
 ---
