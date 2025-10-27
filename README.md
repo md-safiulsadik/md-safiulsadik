@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Night of Destiny is better than a thousand months:* — **Al-Qadr (97:3)**
+> 📖 *whereas all who strive against Our messages, seeking to defeat their purpose, shall be given over to suffering.* — **Saba (34:38)**
 <!-- quran-verse-end -->
 
 ---
