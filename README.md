@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas those who are bent on denying the truth of Our messages – they are such as have lost themselves in evil,* — **Al-Balad (90:19)**
+> 📖 *The Night of Destiny is better than a thousand months:* — **Al-Qadr (97:3)**
 <!-- quran-verse-end -->
 
 ---
