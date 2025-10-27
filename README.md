@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and bear in mind thy Sustainer's name at morn and evening* — **Al-Insaan (76:25)**
+> 📖 *obeying its Sustainer, as in truth it must;* — **Al-Inshiqaaq (84:2)**
 <!-- quran-verse-end -->
 
 ---
