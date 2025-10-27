@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and from the evil of the black darkness whenever it descends,* — **Al-Falaq (113:3)**
+> 📖 *and none can bear witness between us and you as God does: we were, for certain, unaware of your worshipping [us].* — **Yunus (10:29)**
 <!-- quran-verse-end -->
 
 ---
