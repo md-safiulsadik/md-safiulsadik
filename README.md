@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is they who follow the guidance [that comes to them] from their Sustainer; and it is they, they who shall attain to a happy state!* — **Luqman (31:5)**
+> 📖 *But, verily, for those who are bent on doing evil, there is suffering in store [even] closer at hand than that [supreme suffering in the hereafter]: but most of them are not aware of it.* — **At-Tur (52:47)**
 <!-- quran-verse-end -->
 
 ---
