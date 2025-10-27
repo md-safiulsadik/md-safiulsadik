@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas all who strive against Our messages, seeking to defeat their purpose, shall be given over to suffering.* — **Saba (34:38)**
+> 📖 *It is they who follow the guidance [that comes to them] from their Sustainer; and it is they, they who shall attain to a happy state!* — **Luqman (31:5)**
 <!-- quran-verse-end -->
 
 ---
