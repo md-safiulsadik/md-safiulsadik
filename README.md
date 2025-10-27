@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that [night] was made clear, in wisdom, the distinction between all things [good and evil]* — **Ad-Dukhaan (44:4)**
+> 📖 *for, behold, If Thou dost leave them, they will [always try to] lead astray those who worship Thee, and will give birth to nothing but wickedness and stubborn ingratitude.* — **Nooh (71:27)**
 <!-- quran-verse-end -->
 
 ---
