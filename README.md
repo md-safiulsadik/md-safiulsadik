@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, I did know that [one day] I would have to face my account!* — **Al-Haaqqa (69:20)**
+> 📖 *and this land secure!* — **At-Tin (95:3)**
 <!-- quran-verse-end -->
 
 ---
