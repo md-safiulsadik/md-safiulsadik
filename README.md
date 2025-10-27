@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: “Call upon those [beings] whom you imagine [to be endowed with divine powers] beside God: they have not an atom’s weight of power either in the heavens or on earth, nor have they any share in [governing] either, nor does He [choose to] have any helper from among them.”* — **Saba (34:22)**
+> 📖 *Behold, I did know that [one day] I would have to face my account!* — **Al-Haaqqa (69:20)**
 <!-- quran-verse-end -->
 
 ---
