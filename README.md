@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And We have built above you seven firmaments,* — **An-Naba (78:12)**
+> 📖 *And, indeed, even before [the return of Moses] had Aaron said unto them: "O my people! You are but being tempted to evil by this [idol] -for, behold, your [only] Sustainer is the Most Gracious! Follow me, then, and obey my bidding!"* — **Taa-Haa (20:90)**
 <!-- quran-verse-end -->
 
 ---
