@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when We cleft the sea before you, and thus saved you and caused Pharaoh's people to drown before your very eyes;* — **Al-Baqara (2:50)**
+> 📖 *Verily, as for those who have attained to faith [in this divine writ], and those who follow the Jewish faith, and the Sabians, and the Christians, and the Magians, [on the one hand,] and those who are bent on ascribing divinity to aught but God, [on the other,] verily, God will decide between them on Resurrection Day: for, behold, God is witness unto everything.* — **Al-Hajj (22:17)**
 <!-- quran-verse-end -->
 
 ---
