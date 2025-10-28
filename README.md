@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, he did not believe in God, the Tremendous,* — **Al-Haaqqa (69:33)**
+> 📖 *She exclaimed: "Verily, 'I seek refuge from thee with the Most Gracious! [Approach me not] if thou art conscious of Him!"* — **Maryam (19:18)**
 <!-- quran-verse-end -->
 
 ---
