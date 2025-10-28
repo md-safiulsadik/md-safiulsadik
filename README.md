@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and feels no urge to feed the needy.* — **Al-Maa'un (107:3)**
+> 📖 *and when We cleft the sea before you, and thus saved you and caused Pharaoh's people to drown before your very eyes;* — **Al-Baqara (2:50)**
 <!-- quran-verse-end -->
 
 ---
