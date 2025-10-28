@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [thus] He displays His wonders before you: which, then, of God’s wonders can you still deny?* — **Ghafir (40:81)**
+> 📖 *[resting on couches, they will look up [to God]:* — **Al-Mutaffifin (83:23)**
 <!-- quran-verse-end -->
 
 ---
