@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so [the man] had fruit in abundance. And [one day] he said to his friend, bandying words with him, "More wealth have I than thou, and mightier am I as regards [the number and power of my] followers!"* — **Al-Kahf (18:34)**
+> 📖 *Nay, verily, this is an admonition –* — **Al-Muddaththir (74:54)**
 <!-- quran-verse-end -->
 
 ---
