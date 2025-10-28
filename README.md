@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, indeed, even before [the return of Moses] had Aaron said unto them: "O my people! You are but being tempted to evil by this [idol] -for, behold, your [only] Sustainer is the Most Gracious! Follow me, then, and obey my bidding!"* — **Taa-Haa (20:90)**
+> 📖 *And, verily, [the essence of] this [revelation] is indeed found in the ancient books of divine wisdom [as well].* — **Ash-Shu'araa (26:196)**
 <!-- quran-verse-end -->
 
 ---
