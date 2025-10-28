@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They answered: “Hast thou come to seduce us away from our gods? Bring, then, upon us that [doom] with which thou threaten us, if thou art a man of truth!”* — **Al-Ahqaf (46:22)**
+> 📖 *has imparted this Qur’an [unto man].* — **Ar-Rahmaan (55:2)**
 <!-- quran-verse-end -->
 
 ---
