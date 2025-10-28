@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, verily, this is an admonition –* — **Al-Muddaththir (74:54)**
+> 📖 *AND [some people assert], "They remained in their cave three hundred years"; and some have added nine [to that number].* — **Al-Kahf (18:25)**
 <!-- quran-verse-end -->
 
 ---
