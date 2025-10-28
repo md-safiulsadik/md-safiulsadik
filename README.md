@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Does he, then, think that no one has power over him?* — **Al-Balad (90:5)**
+> 📖 *And We have built above you seven firmaments,* — **An-Naba (78:12)**
 <!-- quran-verse-end -->
 
 ---
