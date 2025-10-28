@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O MAN! What is it that lures thee away from thy bountiful Sustainer,* — **Al-Infitaar (82:6)**
+> 📖 *He it is who has made the sun a [source of] radiant light and the moon a light [reflected], and has determined for it phases so that you might know how to compute the years and to measure [time]. None of this has God created without [an inner] truth. Clearly does He spell out these messages unto people of [innate] knowledge:* — **Yunus (10:5)**
 <!-- quran-verse-end -->
 
 ---
