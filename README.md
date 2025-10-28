@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [some people assert], "They remained in their cave three hundred years"; and some have added nine [to that number].* — **Al-Kahf (18:25)**
+> 📖 *And [thus] He displays His wonders before you: which, then, of God’s wonders can you still deny?* — **Ghafir (40:81)**
 <!-- quran-verse-end -->
 
 ---
