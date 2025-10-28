@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but [as it was,] his Sustainer had elected him and placed him among the righteous.* — **Al-Qalam (68:50)**
+> 📖 *They answered: “Hast thou come to seduce us away from our gods? Bring, then, upon us that [doom] with which thou threaten us, if thou art a man of truth!”* — **Al-Ahqaf (46:22)**
 <!-- quran-verse-end -->
 
 ---
