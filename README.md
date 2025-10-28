@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, verily, [the essence of] this [revelation] is indeed found in the ancient books of divine wisdom [as well].* — **Ash-Shu'araa (26:196)**
+> 📖 *and feels no urge to feed the needy.* — **Al-Maa'un (107:3)**
 <!-- quran-verse-end -->
 
 ---
