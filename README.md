@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [thereupon Joseph] said unto the one of the two whom he considered saved: "Mention me unto thy lord [when thou art free]!" But Satan caused him to forget to mention [Joseph] to his lord, and so he remained in prison a few [more] years.* — **Yusuf (12:42)**
+> 📖 *O MAN! What is it that lures thee away from thy bountiful Sustainer,* — **Al-Infitaar (82:6)**
 <!-- quran-verse-end -->
 
 ---
