@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[resting on couches, they will look up [to God]:* — **Al-Mutaffifin (83:23)**
+> 📖 *Does he, then, think that no one has power over him?* — **Al-Balad (90:5)**
 <!-- quran-verse-end -->
 
 ---
