@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, as for those who have attained to faith [in this divine writ], and those who follow the Jewish faith, and the Sabians, and the Christians, and the Magians, [on the one hand,] and those who are bent on ascribing divinity to aught but God, [on the other,] verily, God will decide between them on Resurrection Day: for, behold, God is witness unto everything.* — **Al-Hajj (22:17)**
+> 📖 *but [as it was,] his Sustainer had elected him and placed him among the righteous.* — **Al-Qalam (68:50)**
 <!-- quran-verse-end -->
 
 ---
