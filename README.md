@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *She exclaimed: "Verily, 'I seek refuge from thee with the Most Gracious! [Approach me not] if thou art conscious of Him!"* — **Maryam (19:18)**
+> 📖 *And how many a prophet did We send to people of olden times!* — **Az-Zukhruf (43:6)**
 <!-- quran-verse-end -->
 
 ---
