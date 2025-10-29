@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who are constant in prayer and dispense charity: for it is they, they who in their innermost are certain of the life to come!* — **Luqman (31:4)**
+> 📖 *In this [story], behold, there is a message [unto men], even though most of them will not be­lieve [in it].* — **Ash-Shu'araa (26:174)**
 <!-- quran-verse-end -->
 
 ---
