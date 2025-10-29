@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And he prayed:] “O my Sustainer! Bestow upon me the gift of [a son who shall be] one of the righteous!” –* — **As-Saaffaat (37:100)**
+> 📖 *Say: “Neither shall you be called to account for whatever we may have become guilty of, nor shall we be called to account for whatever you are doing.”* — **Saba (34:25)**
 <!-- quran-verse-end -->
 
 ---
