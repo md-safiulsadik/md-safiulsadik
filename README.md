@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for him who believes and does righteous deeds - he will have the ultimate good [of the life to come] as his reward; and [as for us,] we shall make binding on him [only] that which is easy to fulfill."* — **Al-Kahf (18:88)**
+> 📖 *CONSIDER the fig and the olive,* — **At-Tin (95:1)**
 <!-- quran-verse-end -->
 
 ---
