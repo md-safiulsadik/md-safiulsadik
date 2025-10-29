@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Will you invoke Baal and forsake [God,] the best of artisans -* — **As-Saaffaat (37:125)**
+> 📖 *Taste it - thou who [on earth] hast considered thyself so mighty, so noble!* — **Ad-Dukhaan (44:49)**
 <!-- quran-verse-end -->
 
 ---
