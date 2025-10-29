@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and shade extended,* — **Al-Waaqia (56:30)**
+> 📖 *there is none who could avert it.* — **At-Tur (52:8)**
 <!-- quran-verse-end -->
 
 ---
