@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [seeing that] unto Him is due all praise in the heavens and on earth, [glorify Him] in the afternoon as well, and when you enter upon the hour of noon.* — **Ar-Room (30:18)**
+> 📖 *Hast thou considered whether he may [not] be giving the lie to the truth and turning his back [upon it]?* — **Al-Alaq (96:13)**
 <!-- quran-verse-end -->
 
 ---
