@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the fig and the olive,* — **At-Tin (95:1)**
+> 📖 *the Day when none of their scheming will be of the least avail to them, and they will receive no succour.* — **At-Tur (52:46)**
 <!-- quran-verse-end -->
 
 ---
