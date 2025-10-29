@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Guide us the straight way.* — **Al-Faatiha (1:6)**
+> 📖 *[And he prayed:] “O my Sustainer! Bestow upon me the gift of [a son who shall be] one of the righteous!” –* — **As-Saaffaat (37:100)**
 <!-- quran-verse-end -->
 
 ---
