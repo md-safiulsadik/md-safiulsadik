@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] some faces will on that Day shine with bliss,* — **Al-Ghaashiya (88:8)**
+> 📖 *who are constant in prayer and dispense charity: for it is they, they who in their innermost are certain of the life to come!* — **Luqman (31:4)**
 <!-- quran-verse-end -->
 
 ---
