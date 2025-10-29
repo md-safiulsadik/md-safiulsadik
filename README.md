@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Neither shall you be called to account for whatever we may have become guilty of, nor shall we be called to account for whatever you are doing.”* — **Saba (34:25)**
+> 📖 *Will you invoke Baal and forsake [God,] the best of artisans -* — **As-Saaffaat (37:125)**
 <!-- quran-verse-end -->
 
 ---
