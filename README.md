@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In this [story], behold, there is a message [unto men], even though most of them will not be­lieve [in it].* — **Ash-Shu'araa (26:174)**
+> 📖 *O YOU who have attained to faith! When you are told, “Make room for one another in your collective life”, do make room: [and in return,] God will make room for you [in His grace]. And whenever you are told, “Rise up [for a good deed]”, do rise up; [and] God will exalt by [many] degrees those of you who have attained to faith and, [above all,] such as have been vouchsafed [true] knowledge: for God is fully aware of all that you do.* — **Al-Mujaadila (58:11)**
 <!-- quran-verse-end -->
 
 ---
