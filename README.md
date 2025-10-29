@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *there is none who could avert it.* — **At-Tur (52:8)**
+> 📖 *[And] some faces will on that Day shine with bliss,* — **Al-Ghaashiya (88:8)**
 <!-- quran-verse-end -->
 
 ---
