@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the Day when none of their scheming will be of the least avail to them, and they will receive no succour.* — **At-Tur (52:46)**
+> 📖 *And, indeed, [to the same end] We sent forth Noah and Abraham [as Our message-bearers], and established prophethood and revelation among their descendants; and some of them were on the right way, but many were iniquitous.* — **Al-Hadid (57:26)**
 <!-- quran-verse-end -->
 
 ---
