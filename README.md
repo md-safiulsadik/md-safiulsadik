@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and, behold I preached to them in public; and I spoke to them secretly, in private;* — **Nooh (71:9)**
+> 📖 *[At His behest] the sun and the moon run their appointed courses;* — **Ar-Rahmaan (55:5)**
 <!-- quran-verse-end -->
 
 ---
