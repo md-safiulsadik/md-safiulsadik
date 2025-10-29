@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Taste it - thou who [on earth] hast considered thyself so mighty, so noble!* — **Ad-Dukhaan (44:49)**
+> 📖 *and [seeing that] unto Him is due all praise in the heavens and on earth, [glorify Him] in the afternoon as well, and when you enter upon the hour of noon.* — **Ar-Room (30:18)**
 <!-- quran-verse-end -->
 
 ---
