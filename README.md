@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[At His behest] the sun and the moon run their appointed courses;* — **Ar-Rahmaan (55:5)**
+> 📖 *and when the graves are overturned –* — **Al-Infitaar (82:4)**
 <!-- quran-verse-end -->
 
 ---
