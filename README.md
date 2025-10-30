@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Night of Destiny is better than a thousand months:* — **Al-Qadr (97:3)**
+> 📖 *O MAN! What is it that lures thee away from thy bountiful Sustainer,* — **Al-Infitaar (82:6)**
 <!-- quran-verse-end -->
 
 ---
