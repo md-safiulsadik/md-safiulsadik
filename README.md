@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the night as it runs its course!* — **Al-Fajr (89:4)**
+> 📖 *It is such as these whom God rejects, and whom He makes deaf [to the voice of truth], and whose eyes He blinds [to its sight]!* — **Muhammad (47:23)**
 <!-- quran-verse-end -->
 
 ---
