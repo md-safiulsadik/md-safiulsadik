@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But never does God grant a delay to a human being when his term has come; and God is fully aware of all that you do.* — **Al-Munaafiqoon (63:11)**
+> 📖 *Consider the night as it runs its course!* — **Al-Fajr (89:4)**
 <!-- quran-verse-end -->
 
 ---
