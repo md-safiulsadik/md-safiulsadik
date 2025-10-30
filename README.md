@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, if you could but understand [it] with an understanding [born] of certainty,* — **At-Takaathur (102:5)**
+> 📖 *But those who were conscious of their Sus­tainer will be urged on in throngs towards paradise till, when they reach it, they shall find its gates wide- open; and its keepers will say unto them, “Peace be upon you! Well have you done: enter, then, this [paradise], herein to abide!”* — **Az-Zumar (39:73)**
 <!-- quran-verse-end -->
 
 ---
