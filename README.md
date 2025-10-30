@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NO CALAMITY can ever befall the earth, and nei­ther your own selves, unless it be [laid down] in Our decree before We bring it into being: verily, all this is easy for God.* — **Al-Hadid (57:22)**
+> 📖 *"He begets not, and neither is He begotten;* — **Al-Ikhlaas (112:3)**
 <!-- quran-verse-end -->
 
 ---
