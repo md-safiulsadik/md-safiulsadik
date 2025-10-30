@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the earth and the mountains shall be lifted up and crushed with a single stroke!* — **Al-Haaqqa (69:14)**
+> 📖 *NO CALAMITY can ever befall the earth, and nei­ther your own selves, unless it be [laid down] in Our decree before We bring it into being: verily, all this is easy for God.* — **Al-Hadid (57:22)**
 <!-- quran-verse-end -->
 
 ---
