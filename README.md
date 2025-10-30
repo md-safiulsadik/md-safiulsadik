@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, he who shall have done an atom's weight of good, shall behold it;* — **Az-Zalzala (99:7)**
+> 📖 *And withal, there has come unto them many a tiding that should have restrained [their arrogance]:* — **Al-Qamar (54:4)**
 <!-- quran-verse-end -->
 
 ---
