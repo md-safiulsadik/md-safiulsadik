@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O MAN! What is it that lures thee away from thy bountiful Sustainer,* — **Al-Infitaar (82:6)**
+> 📖 *for what crime she had been slain,* — **At-Takwir (81:9)**
 <!-- quran-verse-end -->
 
 ---
