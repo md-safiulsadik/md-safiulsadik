@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Hence,] O you who are bent on denying the truth, make no [empty] excuses today: [in the life to come] you shall be but recompensed for what you were doing [in this world].* — **At-Tahrim (66:7)**
+> 📖 *For, they claimed that there are powers that could rival God, and so they strayed from His path. Say: "Enjoy yourselves [in this world], but, verily, the fire will be your journey's end!"* — **Ibrahim (14:30)**
 <!-- quran-verse-end -->
 
 ---
