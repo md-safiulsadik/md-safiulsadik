@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! When you are told, “Make room for one another in your collective life”, do make room: [and in return,] God will make room for you [in His grace]. And whenever you are told, “Rise up [for a good deed]”, do rise up; [and] God will exalt by [many] degrees those of you who have attained to faith and, [above all,] such as have been vouchsafed [true] knowledge: for God is fully aware of all that you do.* — **Al-Mujaadila (58:11)**
+> 📖 *And, finally, [O Muhammad,] We have set thee on a way by which the purpose [of faith] may be fulfilled: so follow thou this [way], and follow not the likes and dislikes of those who do not know [the truth].* — **Al-Jaathiya (45:18)**
 <!-- quran-verse-end -->
 
 ---
