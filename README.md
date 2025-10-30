@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And withal, there has come unto them many a tiding that should have restrained [their arrogance]:* — **Al-Qamar (54:4)**
+> 📖 *and cushions ranged,* — **Al-Ghaashiya (88:15)**
 <!-- quran-verse-end -->
 
 ---
