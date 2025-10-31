@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nor is this [message] the word of any satanic force accursed.* — **At-Takwir (81:25)**
+> 📖 *the Day when they shall come forth in haste from their graves, as if racing towards a goal-post,* — **Al-Ma'aarij (70:43)**
 <!-- quran-verse-end -->
 
 ---
