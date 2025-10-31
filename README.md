@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said He: "O Adam, convey unto them the names of these [things]." And as soon as [Adam] had conveyed unto them their names, [God] said: "Did I not say unto you, `Verily, I alone know the hidden reality of the heavens and the earth, and know all that you bring into the open and all. that you would conceal'?"* — **Al-Baqara (2:33)**
+> 📖 *and verily, It is for Us to call them to account.* — **Al-Ghaashiya (88:26)**
 <!-- quran-verse-end -->
 
 ---
