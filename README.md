@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[To both kinds of your enemies, O believers, is bound to happen] the like of [what happened to] those who, a short while before them, had to taste the evil that came from their own doings, with [yet more] grievous suffering awaiting them [in the life to come]:* — **Al-Hashr (59:15)**
+> 📖 *His is the dominion over the heavens and the earth; and all things go back unto God [as their source].* — **Al-Hadid (57:5)**
 <!-- quran-verse-end -->
 
 ---
