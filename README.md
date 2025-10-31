@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, finally, [O Muhammad,] We have set thee on a way by which the purpose [of faith] may be fulfilled: so follow thou this [way], and follow not the likes and dislikes of those who do not know [the truth].* — **Al-Jaathiya (45:18)**
+> 📖 *"'And [so it happened] that we reached out towards heaven: but we found it filled with mighty guards and flames,* — **Al-Jinn (72:8)**
 <!-- quran-verse-end -->
 
 ---
