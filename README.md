@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Satan has gained mastery over them, and has caused them to remain oblivious of the remem­brance of God. Such as these are Satan’s partisans: oh, verily, it is they, the partisans of Satan, who will truly be the losers!* — **Al-Mujaadila (58:19)**
+> 📖 *Said He: "O Adam, convey unto them the names of these [things]." And as soon as [Adam] had conveyed unto them their names, [God] said: "Did I not say unto you, `Verily, I alone know the hidden reality of the heavens and the earth, and know all that you bring into the open and all. that you would conceal'?"* — **Al-Baqara (2:33)**
 <!-- quran-verse-end -->
 
 ---
