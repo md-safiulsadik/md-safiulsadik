@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that Day, [erstwhile] friends will be foes unto one another - [all] save the God-conscious.* — **Az-Zukhruf (43:67)**
+> 📖 *Satan has gained mastery over them, and has caused them to remain oblivious of the remem­brance of God. Such as these are Satan’s partisans: oh, verily, it is they, the partisans of Satan, who will truly be the losers!* — **Al-Mujaadila (58:19)**
 <!-- quran-verse-end -->
 
 ---
