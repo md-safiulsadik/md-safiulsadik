@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Art thou not aware that it is God who has made subservient to you all that is on earth, and the ships that sail through the sea at His behest - and [that it is He who] holds the celestial bodies [in their orbits], so that they may not fall upon the earth otherwise than by His leave? Verily, God is most compassionate towards men, a dispenser of grace –* — **Al-Hajj (22:65)**
+> 📖 *And what could make thee conceive what it is, that Night of Destiny?* — **Al-Qadr (97:2)**
 <!-- quran-verse-end -->
 
 ---
