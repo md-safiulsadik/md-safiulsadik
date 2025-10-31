@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *not of ease, for all who [now] deny the truth!* — **Al-Muddaththir (74:10)**
+> 📖 *wherein there are ordinances of ever-true soundness and clarity.* — **Al-Bayyina (98:3)**
 <!-- quran-verse-end -->
 
 ---
