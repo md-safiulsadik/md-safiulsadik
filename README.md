@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *His is the dominion over the heavens and the earth; and all things go back unto God [as their source].* — **Al-Hadid (57:5)**
+> 📖 *On that Day, [erstwhile] friends will be foes unto one another - [all] save the God-conscious.* — **Az-Zukhruf (43:67)**
 <!-- quran-verse-end -->
 
 ---
