@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what it is, that Night of Destiny?* — **Al-Qadr (97:2)**
+> 📖 *On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.* — **Az-Zalzala (99:6)**
 <!-- quran-verse-end -->
 
 ---
