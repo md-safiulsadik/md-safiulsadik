@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"'And [so it happened] that we reached out towards heaven: but we found it filled with mighty guards and flames,* — **Al-Jinn (72:8)**
+> 📖 *Nor is this [message] the word of any satanic force accursed.* — **At-Takwir (81:25)**
 <!-- quran-verse-end -->
 
 ---
