@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the Day when they shall come forth in haste from their graves, as if racing towards a goal-post,* — **Al-Ma'aarij (70:43)**
+> 📖 *AND AFTER them We gave rise to new genera­tions:* — **Al-Muminoon (23:42)**
 <!-- quran-verse-end -->
 
 ---
