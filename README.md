@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *till, when they come close to it, their hearing and their sight and their [very] skins will bear witness against them, speaking of what they were doing [on earth].* — **Fussilat (41:20)**
+> 📖 *Say unto those bedouin who stayed behind: “In time you will be called upon [to fight] against people of great prowess in war: you will have to fight against them [until you die] or they surrender. And then, if you heed [that call], God will bestow on you a goodly reward; but if you turn away as you turned away this time, He will chastise you with grievous chastisement.”* — **Al-Fath (48:16)**
 <!-- quran-verse-end -->
 
 ---
