@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the earth, bursting forth with plants!* — **At-Taariq (86:12)**
+> 📖 *and man cries out, "What has happened to her?" -* — **Az-Zalzala (99:3)**
 <!-- quran-verse-end -->
 
 ---
