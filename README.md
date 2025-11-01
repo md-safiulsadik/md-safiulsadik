@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But never does God grant a delay to a human being when his term has come; and God is fully aware of all that you do.* — **Al-Munaafiqoon (63:11)**
+> 📖 *And [it shall be offered, too, unto the poor from among] those who, before them, had their abode in this realm and in faith - [those] who love all that come to them in search of refuge, and who harbour in their hearts no grudge for whatever the others may have been given, but rather give them preference over themselves, even though poverty be their own lot: for, such as from their own covetousness are saved - it is they, they that shall attain to a happy state!* — **Al-Hashr (59:9)**
 <!-- quran-verse-end -->
 
 ---
