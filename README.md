@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, the vilest creatures in the sight of God are those who are bent on denying the truth and therefore do not believe.* — **Al-Anfaal (8:55)**
+> 📖 *and the earth, bursting forth with plants!* — **At-Taariq (86:12)**
 <!-- quran-verse-end -->
 
 ---
