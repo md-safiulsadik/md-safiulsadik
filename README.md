@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas he whose weight is light in the balance* — **Al-Qaari'a (101:8)**
+> 📖 *Verily, [all] this has indeed been [said] in the earlier revelations –* — **Al-A'laa (87:18)**
 <!-- quran-verse-end -->
 
 ---
