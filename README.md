@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And well do We know that thy bosom is constricted by the [blasphemous] things that they say:* — **Al-Hijr (15:97)**
+> 📖 *And what could make thee conceive what that that mode inescapable will be?* — **Al-Mutaffifin (83:8)**
 <!-- quran-verse-end -->
 
 ---
