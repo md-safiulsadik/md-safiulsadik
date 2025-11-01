@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:16)**
+> 📖 *Hence, [O sorcerers of Egypt,] decide upon the scheme which you will pursue, and then come forward in one single body: for, indeed, he who prevails today shall prosper indeed!"* — **Taa-Haa (20:64)**
 <!-- quran-verse-end -->
 
 ---
