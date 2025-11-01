@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Pay heed unto God, and pay heed unto the Apostle.” And if you turn away [from the Apostle, know that] he will have to answer only for whatever he has been charged with, and you, for what you have been charged with; but if you pay heed unto him, you will be on the right way. Withal, the Apostle is not bound to do more than clearly deliver the message [entrust­ed to him].* — **An-Noor (24:54)**
+> 📖 *and when thou seest [anything that is] there thou wilt see [only] bliss and a realm transcendent* — **Al-Insaan (76:20)**
 <!-- quran-verse-end -->
 
 ---
