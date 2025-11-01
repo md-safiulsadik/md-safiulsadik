@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, [all] this has indeed been [said] in the earlier revelations –* — **Al-A'laa (87:18)**
+> 📖 *CONSIDER the heavens and that which comes in the night!* — **At-Taariq (86:1)**
 <!-- quran-verse-end -->
 
 ---
