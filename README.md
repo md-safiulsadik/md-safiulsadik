@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and most certainly shall We cause you to dwell on earth [long] after they have passed away: this is [My promise] unto all who stand in awe of My presence, and stand in awe of My warning!"* — **Ibrahim (14:14)**
+> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:16)**
 <!-- quran-verse-end -->
 
 ---
