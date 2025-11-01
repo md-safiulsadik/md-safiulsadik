@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when thou seest [anything that is] there thou wilt see [only] bliss and a realm transcendent* — **Al-Insaan (76:20)**
+> 📖 *And what could make thee conceive what it is that comes in the night?* — **At-Taariq (86:2)**
 <!-- quran-verse-end -->
 
 ---
