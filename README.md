@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SUCH is the suffering [with which We try some people in this world]; but greater by far will be the suffering [which sinners shall have to bear] in the life to come - if they but knew it!* — **Al-Qalam (68:33)**
+> 📖 *Verily, the vilest creatures in the sight of God are those who are bent on denying the truth and therefore do not believe.* — **Al-Anfaal (8:55)**
 <!-- quran-verse-end -->
 
 ---
