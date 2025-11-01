@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And before God prostrate themselves, willingly or unwillingly, all [things and beings] that are in the heavens and on earth, as do their shadows in the mornings and the evenings.* — **Ar-Ra'd (13:15)**
+> 📖 *whereas he whose weight is light in the balance* — **Al-Qaari'a (101:8)**
 <!-- quran-verse-end -->
 
 ---
