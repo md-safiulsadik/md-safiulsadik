@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SO THAT the Quraysh might remain secure,* — **Quraish (106:1)**
+> 📖 *And before God prostrate themselves, willingly or unwillingly, all [things and beings] that are in the heavens and on earth, as do their shadows in the mornings and the evenings.* — **Ar-Ra'd (13:15)**
 <!-- quran-verse-end -->
 
 ---
