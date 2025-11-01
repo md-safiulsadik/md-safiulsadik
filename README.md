@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the heavens and that which comes in the night!* — **At-Taariq (86:1)**
+> 📖 *[Whereupon] he prayed: “O my Sustainer! Behold, my people have given me the lie:* — **Ash-Shu'araa (26:117)**
 <!-- quran-verse-end -->
 
 ---
