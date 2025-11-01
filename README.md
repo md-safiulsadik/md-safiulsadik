@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Whereupon] he prayed: “O my Sustainer! Behold, my people have given me the lie:* — **Ash-Shu'araa (26:117)**
+> 📖 *And well do We know that thy bosom is constricted by the [blasphemous] things that they say:* — **Al-Hijr (15:97)**
 <!-- quran-verse-end -->
 
 ---
