@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND, INDEED, [O Muhammad,] We did vouchsafe revelation unto Moses [as well]: so be not in doubt of [thy] having met with the same [truth in the revelation vouchsafed to thee]. And [just as] We caused that [earlier revelation] to be a guidance for the children of Israel,* — **As-Sajda (32:23)**
+> 📖 *And Moses added: "If you should [ever] deny the truth-you and whoever else lives on earth, all of you-[know that,] verily, God is indeed self-sufficient, ever to be praised!"* — **Ibrahim (14:8)**
 <!-- quran-verse-end -->
 
 ---
