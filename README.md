@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[saying, in their hearts,] "We feed you for the sake of God alone: we desire no recompense from you, nor thanks:* — **Al-Insaan (76:9)**
+> 📖 *[and] who incessantly persevere in their prayer* — **Al-Ma'aarij (70:23)**
 <!-- quran-verse-end -->
 
 ---
