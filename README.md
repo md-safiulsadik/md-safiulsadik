@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and so, whoever is willing may remember Him* — **Abasa (80:12)**
+> 📖 *Answered he: “This [wealth] has been given to me only by virtue of the knowledge that is in me!” Did he not know that God had destroyed [the arrogant of] many a generation that preceded him - people who were greater than he in power, and richer in what they had amassed? But such as are lost in sin may not be asked about, their sins.* — **Al-Qasas (28:78)**
 <!-- quran-verse-end -->
 
 ---
