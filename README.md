@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then, if it be His will, He shall raise him again to life,* — **Abasa (80:22)**
+> 📖 *[and,] impelled by your arrogance, you would talk senselessly far into the night.”* — **Al-Muminoon (23:67)**
 <!-- quran-verse-end -->
 
 ---
