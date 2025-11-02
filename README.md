@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And We brought the children of Israel across the sea; and thereupon Pharaoh and his hosts pursued them with vehement insolence and tyranny, until [they were overwhelmed by the waters of the sea. And] when he was about to drown, [Pharaoh] exclaimed: "I have come to believe that there is no deity save Him in whom the children of Israel believe, and I am of those who surrender themselves unto Him!"* — **Yunus (10:90)**
+> 📖 *and then, if it be His will, He shall raise him again to life,* — **Abasa (80:22)**
 <!-- quran-verse-end -->
 
 ---
