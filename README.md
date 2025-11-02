@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But never does God grant a delay to a human being when his term has come; and God is fully aware of all that you do.* — **Al-Munaafiqoon (63:11)**
+> 📖 *[and so,] behold, We let loose upon them a deadly tempest; and only Lot ’s kinsfolk did We save at the break of dawn,* — **Al-Qamar (54:34)**
 <!-- quran-verse-end -->
 
 ---
