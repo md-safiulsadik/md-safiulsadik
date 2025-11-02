@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Go all over the earth and behold how [wondrously] He has created [man] in the first in­stance: and thus, too, will God bring into being your second life for, verily, God has the power to will anything!* — **Al-Ankaboot (29:20)**
+> 📖 *and the moon, as it grows to its fullness:* — **Al-Inshiqaaq (84:18)**
 <!-- quran-verse-end -->
 
 ---
