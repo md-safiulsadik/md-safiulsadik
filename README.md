@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O you who have attained to faith! Turn unto God in sincere repentance: it may well be that your Sustainer will efface from you your bad deeds, and will admit you into gardens through which running waters flow, on a Day on which God will not shame the Prophet and those who share his faith: their light will spread rapidly before them, and on their right; [and] they will pray: "O our Sustainer! Cause this our light to shine for us forever, and forgive us our sins: for, verily, Thou hast the power to will anything!"* — **At-Tahrim (66:8)**
+> 📖 *But in the end, when he [who has thus sinned] appears before us [on Judgment Day], he will say [to his other self], “Would that between me and thee there had been the distance of east and west!” for, evil indeed [has proved] that other self!* — **Az-Zukhruf (43:38)**
 <!-- quran-verse-end -->
 
 ---
