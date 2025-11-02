@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which smote them with stone-hard blows of chastisement pre-ordained,* — **Al-Fil (105:4)**
+> 📖 *And, verily, nearness to Us awaits him [in the life to come], and the most beauteous of all goals!* — **Saad (38:40)**
 <!-- quran-verse-end -->
 
 ---
