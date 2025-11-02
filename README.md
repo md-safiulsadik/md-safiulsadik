@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and so,] behold, We let loose upon them a deadly tempest; and only Lot ’s kinsfolk did We save at the break of dawn,* — **Al-Qamar (54:34)**
+> 📖 *verily, with every hardship comes ease!* — **Ash-Sharh (94:6)**
 <!-- quran-verse-end -->
 
 ---
