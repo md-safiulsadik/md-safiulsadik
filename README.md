@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But in the end, when he [who has thus sinned] appears before us [on Judgment Day], he will say [to his other self], “Would that between me and thee there had been the distance of east and west!” for, evil indeed [has proved] that other self!* — **Az-Zukhruf (43:38)**
+> 📖 *that had weighed so heavily on thy back?* — **Ash-Sharh (94:3)**
 <!-- quran-verse-end -->
 
 ---
