@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereafter We reduce him to the lowest of low* — **At-Tin (95:5)**
+> 📖 *and so, whoever is willing may remember Him* — **Abasa (80:12)**
 <!-- quran-verse-end -->
 
 ---
