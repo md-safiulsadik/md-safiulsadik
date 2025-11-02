@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the moon, as it grows to its fullness:* — **Al-Inshiqaaq (84:18)**
+> 📖 *AND, INDEED, [O Muhammad,] We did vouchsafe revelation unto Moses [as well]: so be not in doubt of [thy] having met with the same [truth in the revelation vouchsafed to thee]. And [just as] We caused that [earlier revelation] to be a guidance for the children of Israel,* — **As-Sajda (32:23)**
 <!-- quran-verse-end -->
 
 ---
