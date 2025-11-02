@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Answered he: “This [wealth] has been given to me only by virtue of the knowledge that is in me!” Did he not know that God had destroyed [the arrogant of] many a generation that preceded him - people who were greater than he in power, and richer in what they had amassed? But such as are lost in sin may not be asked about, their sins.* — **Al-Qasas (28:78)**
+> 📖 *which smote them with stone-hard blows of chastisement pre-ordained,* — **Al-Fil (105:4)**
 <!-- quran-verse-end -->
 
 ---
