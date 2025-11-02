@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and] who incessantly persevere in their prayer* — **Al-Ma'aarij (70:23)**
+> 📖 *Verily, thy Sustainer alone is fully aware as to who has strayed from His path, Just as He alone is fully aware of those who have found the right way.* — **Al-Qalam (68:7)**
 <!-- quran-verse-end -->
 
 ---
