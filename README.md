@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And Moses added: "If you should [ever] deny the truth-you and whoever else lives on earth, all of you-[know that,] verily, God is indeed self-sufficient, ever to be praised!"* — **Ibrahim (14:8)**
+> 📖 *[saying, in their hearts,] "We feed you for the sake of God alone: we desire no recompense from you, nor thanks:* — **Al-Insaan (76:9)**
 <!-- quran-verse-end -->
 
 ---
