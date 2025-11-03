@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yea indeed! His Sustainer did see all that was in him!* — **Al-Inshiqaaq (84:15)**
+> 📖 *Most loathsome is it in the sight of God that you say what you do not do!* — **As-Saff (61:3)**
 <!-- quran-verse-end -->
 
 ---
