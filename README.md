@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *unless it be to an apostle whom He has been pleased to elect [there for]: and then He sends forth [the forces of heaven] to watch over him in whatever lies open before him and in what is beyond his ken –* — **Al-Jinn (72:27)**
+> 📖 *For, whenever Our messages are conveyed to such a one, he turns away in his arrogance as though he had not heard them - as though there were deafness in his ears. Give him, then, the tiding of grievous suffering [in the life to come].* — **Luqman (31:7)**
 <!-- quran-verse-end -->
 
 ---
