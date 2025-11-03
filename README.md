@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BUT AS FOR man, whenever his Sustainer tries him by His generosity and by letting him enjoy a life of ease, he says, "My Sustainer has been [justly] generous towards me";* — **Al-Fajr (89:15)**
+> 📖 *NONE BUT THOSE who are bent on denying the truth would call God’s messages in question. But let it not deceive thee that they seem to be able to do as they please on earth:* — **Ghafir (40:4)**
 <!-- quran-verse-end -->
 
 ---
