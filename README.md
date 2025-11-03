@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Not one of the communities that We destroyed in bygone times would ever believe [their prophets]: will these, then, [be more willing to] believe?* — **Al-Anbiyaa (21:6)**
+> 📖 *wherein there are ordinances of ever-true soundness and clarity.* — **Al-Bayyina (98:3)**
 <!-- quran-verse-end -->
 
 ---
