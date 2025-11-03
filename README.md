@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BUT FOR THOSE who of their Sustainer’s Presence stand in fear, two gardens [of paradise are readied] -* — **Ar-Rahmaan (55:46)**
+> 📖 *Not one of the communities that We destroyed in bygone times would ever believe [their prophets]: will these, then, [be more willing to] believe?* — **Al-Anbiyaa (21:6)**
 <!-- quran-verse-end -->
 
 ---
