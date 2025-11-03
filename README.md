@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Most loathsome is it in the sight of God that you say what you do not do!* — **As-Saff (61:3)**
+> 📖 *and [of] many war-gains which they would achieve: for God is indeed almighty, wise.* — **Al-Fath (48:19)**
 <!-- quran-verse-end -->
 
 ---
