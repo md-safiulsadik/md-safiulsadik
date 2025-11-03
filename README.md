@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and,] impelled by your arrogance, you would talk senselessly far into the night.”* — **Al-Muminoon (23:67)**
+> 📖 *BUT AS FOR man, whenever his Sustainer tries him by His generosity and by letting him enjoy a life of ease, he says, "My Sustainer has been [justly] generous towards me";* — **Al-Fajr (89:15)**
 <!-- quran-verse-end -->
 
 ---
