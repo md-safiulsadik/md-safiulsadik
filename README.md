@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *IT IS NOT [conceivable] that such as are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God should ever be abandoned [by Him] ere there comes unto them the [full] evidence of the truth:* — **Al-Bayyina (98:1)**
+> 📖 *and yet, they choose to worship [imaginary] deities instead of Him! Say [O Prophet]: “Produce an evidence for what you are claiming: this is a reminder [unceasingly voiced] by those who are with me, just as it was a reminder [voiced] by those who came before me.” But nay, most of them do not know the truth, and so they stubbornly turn away [from it]* — **Al-Anbiyaa (21:24)**
 <!-- quran-verse-end -->
 
 ---
