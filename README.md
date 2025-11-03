@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NONE BUT THOSE who are bent on denying the truth would call God’s messages in question. But let it not deceive thee that they seem to be able to do as they please on earth:* — **Ghafir (40:4)**
+> 📖 *THESE ARE MESSAGES of the divine writ, full of wisdom,* — **Luqman (31:2)**
 <!-- quran-verse-end -->
 
 ---
