@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and yet, they choose to worship [imaginary] deities instead of Him! Say [O Prophet]: “Produce an evidence for what you are claiming: this is a reminder [unceasingly voiced] by those who are with me, just as it was a reminder [voiced] by those who came before me.” But nay, most of them do not know the truth, and so they stubbornly turn away [from it]* — **Al-Anbiyaa (21:24)**
+> 📖 *and We saved them and their people from the awesome calamity [of bondage],* — **As-Saaffaat (37:115)**
 <!-- quran-verse-end -->
 
 ---
