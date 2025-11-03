@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, behold, with every hardship comes ease:* — **Ash-Sharh (94:5)**
+> 📖 *Verily, those who [despite all evidence] are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God - will find themselves in the fire of hell, therein to abide: they are the worst of all creatures.* — **Al-Bayyina (98:6)**
 <!-- quran-verse-end -->
 
 ---
