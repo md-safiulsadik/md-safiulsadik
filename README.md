@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and We saved them and their people from the awesome calamity [of bondage],* — **As-Saaffaat (37:115)**
+> 📖 *and [when] the earth yields up her burdens,* — **Az-Zalzala (99:2)**
 <!-- quran-verse-end -->
 
 ---
