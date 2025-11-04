@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[The brothers] replied: "Its requital? He in whose camel-pack [the cup] is found-he shall be [enslaved as] a requital thereof! Thus do we [ourselves] requite the doers of [such] wrong.* — **Yusuf (12:75)**
+> 📖 *the while We rained a rain [of destruction] upon the others: and dire is such rain upon all who let themselves be warned [to no avail]* — **An-Naml (27:58)**
 <!-- quran-verse-end -->
 
 ---
