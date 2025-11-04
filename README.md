@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, [O believers,] it is you who are called upon to spend freely in God’s cause: but [even] among you are such as turn out to be niggardly! And yet, he who acts niggardly [in God’s cause] is but niggardly towards his own self: for God is indeed self-sufficient, whereas you stand in need [of Him]; and if you turn away [from Him], He will cause other people to take your place, and they will not be the likes of you!* — **Muhammad (47:38)**
+> 📖 *In these [gardens] will be mates of modest gaze, whom neither man nor invisible being will have touched ere then.* — **Ar-Rahmaan (55:56)**
 <!-- quran-verse-end -->
 
 ---
