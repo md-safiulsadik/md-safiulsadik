@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and feels no urge to feed the needy.* — **Al-Maa'un (107:3)**
+> 📖 *"Indeed, no needy person shall enter it today [and come] upon you [unawares],"* — **Al-Qalam (68:24)**
 <!-- quran-verse-end -->
 
 ---
