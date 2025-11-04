@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the while We rained a rain [of destruction] upon the others: and dire is such rain upon all who let themselves be warned [to no avail]* — **An-Naml (27:58)**
+> 📖 *Behold, [O believers,] it is you who are called upon to spend freely in God’s cause: but [even] among you are such as turn out to be niggardly! And yet, he who acts niggardly [in God’s cause] is but niggardly towards his own self: for God is indeed self-sufficient, whereas you stand in need [of Him]; and if you turn away [from Him], He will cause other people to take your place, and they will not be the likes of you!* — **Muhammad (47:38)**
 <!-- quran-verse-end -->
 
 ---
