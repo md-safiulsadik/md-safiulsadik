@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He will say, "Oh, would that I had. provided beforehand for my life [to come]!"* — **Al-Fajr (89:24)**
+> 📖 *O followers of earlier revelation! Why do you deny the truth of God's messages to which you yourselves bear witness?* — **Aal-i-Imraan (3:70)**
 <!-- quran-verse-end -->
 
 ---
