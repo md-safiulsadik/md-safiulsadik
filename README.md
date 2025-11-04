@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DO MEN THINK that on their [mere] saying, “We have attained to faith”, they will be left to themselves, and will not be put to a test?* — **Al-Ankaboot (29:2)**
+> 📖 *thus We requited them for their having denied the truth. But do We ever requite [thus] any but the utterly ingrate?* — **Saba (34:17)**
 <!-- quran-verse-end -->
 
 ---
