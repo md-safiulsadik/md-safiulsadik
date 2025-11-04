@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In these [gardens] will be mates of modest gaze, whom neither man nor invisible being will have touched ere then.* — **Ar-Rahmaan (55:56)**
+> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
 <!-- quran-verse-end -->
 
 ---
