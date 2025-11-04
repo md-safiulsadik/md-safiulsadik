@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yea indeed! His Sustainer did see all that was in him!* — **Al-Inshiqaaq (84:15)**
+> 📖 *WHEN THE HYPOCRITES come unto thee, they say, "We bear witness that thou art indeed God's Apostle!" But God knows that thou art truly His Apostle; and He bears witness that the hypocrites are indeed false [in their declaration of faith].* — **Al-Munaafiqoon (63:1)**
 <!-- quran-verse-end -->
 
 ---
