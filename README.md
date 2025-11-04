@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"Indeed, no needy person shall enter it today [and come] upon you [unawares],"* — **Al-Qalam (68:24)**
+> 📖 *Or do they say, “We are a group united, [and therefore] bound to prevail”?* — **Al-Qamar (54:44)**
 <!-- quran-verse-end -->
 
 ---
