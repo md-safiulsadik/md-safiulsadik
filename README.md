@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *EXHORT, then, [O Prophet, all men:] for, by thy Sustainer’s grace, thou art neither a soothsayer nor a madman.* — **At-Tur (52:29)**
+> 📖 *and feels no urge to feed the needy.* — **Al-Maa'un (107:3)**
 <!-- quran-verse-end -->
 
 ---
