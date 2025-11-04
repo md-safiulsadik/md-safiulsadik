@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thus We requited them for their having denied the truth. But do We ever requite [thus] any but the utterly ingrate?* — **Saba (34:17)**
+> 📖 *But as for those who are bent on denying the truth and on giving the lie to Our messages - they are destined for the fire, therein to abide: and how vile a journey’s end!* — **At-Taghaabun (64:10)**
 <!-- quran-verse-end -->
 
 ---
