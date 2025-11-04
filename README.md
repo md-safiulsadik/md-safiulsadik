@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said [the sorcerers]: "O Moses! Either thou throw (thy staff first], or we shall be the first to throw."* — **Taa-Haa (20:65)**
+> 📖 *[The brothers] replied: "Its requital? He in whose camel-pack [the cup] is found-he shall be [enslaved as] a requital thereof! Thus do we [ourselves] requite the doers of [such] wrong.* — **Yusuf (12:75)**
 <!-- quran-verse-end -->
 
 ---
