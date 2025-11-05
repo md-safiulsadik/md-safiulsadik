@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who has set up another deity beside God: cast him, then, cast him into suffering severe!”* — **Qaaf (50:26)**
+> 📖 *for what crime she had been slain,* — **At-Takwir (81:9)**
 <!-- quran-verse-end -->
 
 ---
