@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or dost thou [O Muhammad] ask of them any worldly recompense? But [they ought to know that] recompense from thy Sustainer is best, since He is the best of providers!* — **Al-Muminoon (23:72)**
+> 📖 *"and from the evil of all human beings bent on occult endeavours,* — **Al-Falaq (113:4)**
 <!-- quran-verse-end -->
 
 ---
