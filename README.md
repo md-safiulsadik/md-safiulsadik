@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, finally, [O Muhammad,] We have set thee on a way by which the purpose [of faith] may be fulfilled: so follow thou this [way], and follow not the likes and dislikes of those who do not know [the truth].* — **Al-Jaathiya (45:18)**
+> 📖 *But, verily, thy Sustainer knows all that their hearts conceal as well as all that they bring into the open:* — **An-Naml (27:74)**
 <!-- quran-verse-end -->
 
 ---
