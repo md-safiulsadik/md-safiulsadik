@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But, verily, thy Sustainer knows all that their hearts conceal as well as all that they bring into the open:* — **An-Naml (27:74)**
+> 📖 *For, unto him who shall have transgressed the bounds of what is right,* — **An-Naazi'aat (79:37)**
 <!-- quran-verse-end -->
 
 ---
