@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *far-reaching wisdom [was held out to them]: but [since] all warnings have been of no avail,* — **Al-Qamar (54:5)**
+> 📖 *and truly lost is he who buries it [in darkness].* — **Ash-Shams (91:10)**
 <!-- quran-verse-end -->
 
 ---
