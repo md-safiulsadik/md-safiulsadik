@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and even] when, towards the close of day, nobly-bred, swift-footed steeds were brought before him,* — **Saad (38:31)**
+> 📖 *"Hence, peace was upon me on the day when I was born, and [will be upon me] on the day of my death, and on the day when I shall be raised to life [again]!"* — **Maryam (19:33)**
 <!-- quran-verse-end -->
 
 ---
