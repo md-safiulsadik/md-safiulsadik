@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for what crime she had been slain,* — **At-Takwir (81:9)**
+> 📖 *[How could they?] Are thy Sustainer’s treasures with them? Or are they in charge [of destiny]?* — **At-Tur (52:37)**
 <!-- quran-verse-end -->
 
 ---
