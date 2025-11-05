@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *If you do not go forth to war [in God's cause], He will chastise you with grievous chastisement, and will place another people in your stead - whereas you shall in no wise harm Him: for, God has the power to will anything.* — **At-Tawba (9:39)**
+> 📖 *And, finally, [O Muhammad,] We have set thee on a way by which the purpose [of faith] may be fulfilled: so follow thou this [way], and follow not the likes and dislikes of those who do not know [the truth].* — **Al-Jaathiya (45:18)**
 <!-- quran-verse-end -->
 
 ---
