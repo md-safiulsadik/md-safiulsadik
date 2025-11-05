@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and truly lost is he who buries it [in darkness].* — **Ash-Shams (91:10)**
+> 📖 *who has set up another deity beside God: cast him, then, cast him into suffering severe!”* — **Qaaf (50:26)**
 <!-- quran-verse-end -->
 
 ---
