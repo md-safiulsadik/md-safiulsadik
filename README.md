@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *at a behest from Ourselves: for, verily, We have always been sending [Our messages of guidance]* — **Ad-Dukhaan (44:5)**
+> 📖 *and with Pharaoh of the [many] tent-poles?* — **Al-Fajr (89:10)**
 <!-- quran-verse-end -->
 
 ---
