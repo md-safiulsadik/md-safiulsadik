@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *does it make secure, until the rise of dawn.* — **Al-Qadr (97:5)**
+> 📖 *at a behest from Ourselves: for, verily, We have always been sending [Our messages of guidance]* — **Ad-Dukhaan (44:5)**
 <!-- quran-verse-end -->
 
 ---
