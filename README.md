@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *OH, the sudden calamity!* — **Al-Qaari'a (101:1)**
+> 📖 *and so we desired that their Sustainer grant them in his stead [a child] of greater purity than him, and closer [to them] in loving tenderness.* — **Al-Kahf (18:81)**
 <!-- quran-verse-end -->
 
 ---
