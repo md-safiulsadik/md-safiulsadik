@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And then, he whose weight [of good deeds] is heavy in the balance* — **Al-Qaari'a (101:6)**
+> 📖 *far-reaching wisdom [was held out to them]: but [since] all warnings have been of no avail,* — **Al-Qamar (54:5)**
 <!-- quran-verse-end -->
 
 ---
