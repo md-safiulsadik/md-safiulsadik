@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *If you offer up to God a goodly loan, He will amply repay you for it, and will forgive you your sins: for God is ever responsive to gratitude, forbearing,* — **At-Taghaabun (64:17)**
+> 📖 *If you do not go forth to war [in God's cause], He will chastise you with grievous chastisement, and will place another people in your stead - whereas you shall in no wise harm Him: for, God has the power to will anything.* — **At-Tawba (9:39)**
 <!-- quran-verse-end -->
 
 ---
