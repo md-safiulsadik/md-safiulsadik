@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *fully conscious of what they are doing to the believers,* — **Al-Burooj (85:7)**
+> 📖 *Or dost thou [O Muhammad] ask of them any worldly recompense? But [they ought to know that] recompense from thy Sustainer is best, since He is the best of providers!* — **Al-Muminoon (23:72)**
 <!-- quran-verse-end -->
 
 ---
