@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, [true] servants of the Most Gracious are [only] they who walk gently on earth, and who, whenever the foolish address them, reply with [words of] peace;* — **Al-Furqaan (25:63)**
+> 📖 *Consider the creation of the male and the female!* — **Al-Lail (92:3)**
 <!-- quran-verse-end -->
 
 ---
