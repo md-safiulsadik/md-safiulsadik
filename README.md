@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *No food for them save the bitterness of dry thorns,* — **Al-Ghaashiya (88:6)**
+> 📖 *behold, We have caused it to be a discourse in the Arabic tongue, so that you might encompass it with your reason.* — **Az-Zukhruf (43:3)**
 <!-- quran-verse-end -->
 
 ---
