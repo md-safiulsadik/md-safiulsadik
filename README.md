@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *behold, We have caused it to be a discourse in the Arabic tongue, so that you might encompass it with your reason.* — **Az-Zukhruf (43:3)**
+> 📖 *such being God’s way which has ever obtained in the past - and never wilt thou find any change in God’s way!* — **Al-Fath (48:23)**
 <!-- quran-verse-end -->
 
 ---
