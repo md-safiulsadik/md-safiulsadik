@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But [bear in mind that] neither your kinsfolk nor [even] your own children will be of any benefit to you on Resurrection Day, [for then] He will decide between you [on your merit alone]: and God sees all that you do.* — **Al-Mumtahana (60:3)**
+> 📖 *and [sees] thy behaviour among those who prostrate themselves [before Him]:* — **Ash-Shu'araa (26:219)**
 <!-- quran-verse-end -->
 
 ---
