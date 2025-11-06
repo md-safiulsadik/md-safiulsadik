@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *such being God’s way which has ever obtained in the past - and never wilt thou find any change in God’s way!* — **Al-Fath (48:23)**
+> 📖 *Verily, they who have attained to faith, and they who have forsaken the domain of evil and are striving hard in God's cause - these it is who may look forward to God's grace: for God is much-forgiving, a dispenser of grace.* — **Al-Baqara (2:218)**
 <!-- quran-verse-end -->
 
 ---
