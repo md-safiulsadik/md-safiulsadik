@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, they who come after them pray: “O our Sustainer! Forgive us our sins, as well as those of our brethren who preceded us in faith, and let not our hearts entertain any unworthy thoughts or feelings against [any of] those who have attained to faith. O our Sustainer! Verily, Thou art compassionate, a dispenser of grace!”* — **Al-Hashr (59:10)**
+> 📖 *BEHOLD, the number of months, in the sight of God, is twelve months, [laid down] in God's decree on the day when He created the heavens and the earth; [and] out of these, four are sacred: this is the ever-true law [of God]. Do not, then, sin against yourselves with regard to these [months]. And fight against those who ascribe divinity to aught beside God, all together-just as they fight against you, [O believers,] all together -and know that God is with those who are conscious of Him.* — **At-Tawba (9:36)**
 <!-- quran-verse-end -->
 
 ---
