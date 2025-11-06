@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, the number of months, in the sight of God, is twelve months, [laid down] in God's decree on the day when He created the heavens and the earth; [and] out of these, four are sacred: this is the ever-true law [of God]. Do not, then, sin against yourselves with regard to these [months]. And fight against those who ascribe divinity to aught beside God, all together-just as they fight against you, [O believers,] all together -and know that God is with those who are conscious of Him.* — **At-Tawba (9:36)**
+> 📖 *For, God’s are all the forces of the heavens and the earth; and God is indeed almighty, truly wise!* — **Al-Fath (48:7)**
 <!-- quran-verse-end -->
 
 ---
