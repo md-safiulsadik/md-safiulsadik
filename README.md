@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *All that lives on earth or in the heavens is bound to pass away:* — **Ar-Rahmaan (55:26)**
+> 📖 *And how many a township have We destroyed because it had been immersed in evildoing - and now they [all] lie deserted, with their roofs caved in! And how many a well lies abandoned, and how many a castle that [once] stood high!* — **Al-Hajj (22:45)**
 <!-- quran-verse-end -->
 
 ---
