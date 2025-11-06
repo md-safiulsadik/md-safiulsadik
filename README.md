@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"He begets not, and neither is He begotten;* — **Al-Ikhlaas (112:3)**
+> 📖 *All that lives on earth or in the heavens is bound to pass away:* — **Ar-Rahmaan (55:26)**
 <!-- quran-verse-end -->
 
 ---
