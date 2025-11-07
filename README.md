@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and We have set a barrier before them and a barrier behind them, and We have enshrouded them in veils so that they cannot see:* — **Yaseen (36:9)**
+> 📖 *What, then, is amiss with them that they will not believe [in a life to come]?* — **Al-Inshiqaaq (84:20)**
 <!-- quran-verse-end -->
 
 ---
