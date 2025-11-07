@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *About the awesome tiding [of resurrection],* — **An-Naba (78:2)**
+> 📖 *They have made their oaths a cover [for their falseness], and thus they turn others away from the Path of God. Evil indeed is all that they are wont to do:* — **Al-Munaafiqoon (63:2)**
 <!-- quran-verse-end -->
 
 ---
