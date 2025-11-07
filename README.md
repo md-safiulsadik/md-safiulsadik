@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet [even Solomon had to die; but] when We decreed that he should die, nothing showed them that he was dead except an earthworm that gnawed away his staff. And when he fell to the ground, those invisible beings [subservient to him] saw clearly that, had they but understood the reality which was be­yond the reach of their perception, they would not have continued [to toil] in the shameful suffering [of servitude]* — **Saba (34:14)**
+> 📖 *AND LO! Thy Sustainer said unto the angels: "Behold, I am about to establish upon earth one who shall inherit it." They said: "Wilt Thou place on it such as will spread corruption thereon and shed blood -whereas it is we who extol Thy limitless glory, and praise Thee, and hallow Thy name?" [God] answered: "Verily, I know that which you do not know."* — **Al-Baqara (2:30)**
 <!-- quran-verse-end -->
 
 ---
