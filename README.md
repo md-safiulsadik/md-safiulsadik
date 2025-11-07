@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the heavens, ever-revolving,* — **At-Taariq (86:11)**
+> 📖 *since its [blissful] shades will come down low over them, and low will hang down its clusters of fruit, most easy to reach.* — **Al-Insaan (76:14)**
 <!-- quran-verse-end -->
 
 ---
