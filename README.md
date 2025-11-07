@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And His alone is all majesty in the heavens and on earth; and He alone is almighty, truly wise!* — **Al-Jaathiya (45:37)**
+> 📖 *and We have set a barrier before them and a barrier behind them, and We have enshrouded them in veils so that they cannot see:* — **Yaseen (36:9)**
 <!-- quran-verse-end -->
 
 ---
