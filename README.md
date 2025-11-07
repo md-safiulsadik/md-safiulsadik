@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They have made their oaths a cover [for their falseness], and thus they turn others away from the Path of God. Evil indeed is all that they are wont to do:* — **Al-Munaafiqoon (63:2)**
+> 📖 *They who are bent on denying the truth claim that they will never be raised from the dead! Say: "Yea, by my Sustainer! Most surely will you be raised from the dead, and then, most surely, will you be made to understand what you did [in life]! For, easy is this for God!"* — **At-Taghaabun (64:7)**
 <!-- quran-verse-end -->
 
 ---
