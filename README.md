@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *since its [blissful] shades will come down low over them, and low will hang down its clusters of fruit, most easy to reach.* — **Al-Insaan (76:14)**
+> 📖 *BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.* — **Al-Qadr (97:1)**
 <!-- quran-verse-end -->
 
 ---
