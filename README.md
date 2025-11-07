@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and you love wealth with boundless love!* — **Al-Fajr (89:20)**
+> 📖 *And His alone is all majesty in the heavens and on earth; and He alone is almighty, truly wise!* — **Al-Jaathiya (45:37)**
 <!-- quran-verse-end -->
 
 ---
