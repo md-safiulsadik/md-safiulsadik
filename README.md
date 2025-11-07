@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *not of ease, for all who [now] deny the truth!* — **Al-Muddaththir (74:10)**
+> 📖 *if they could but find a place of refuge, or any cavern, or a crevice [in the earth], they would turn towards it in headlong haste.* — **At-Tawba (9:57)**
 <!-- quran-verse-end -->
 
 ---
