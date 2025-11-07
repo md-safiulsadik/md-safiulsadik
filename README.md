@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For He [it is who, after creating the earth,] placed firm mountains on it, [towering] above its surface, and bestowed [so many] blessings on it, and equitably apportioned its means of subsistence to all who would seek it: [and all this He created] in four aeons.* — **Fussilat (41:10)**
+> 📖 *And so they gave him the lie: and thereupon We destroyed them. In this [story], behold, there is a message [unto men], even though most of them will not believe [in it].* — **Ash-Shu'araa (26:139)**
 <!-- quran-verse-end -->
 
 ---
