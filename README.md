@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, they who have attained to faith, and they who have forsaken the domain of evil and are striving hard in God's cause - these it is who may look forward to God's grace: for God is much-forgiving, a dispenser of grace.* — **Al-Baqara (2:218)**
+> 📖 *For He [it is who, after creating the earth,] placed firm mountains on it, [towering] above its surface, and bestowed [so many] blessings on it, and equitably apportioned its means of subsistence to all who would seek it: [and all this He created] in four aeons.* — **Fussilat (41:10)**
 <!-- quran-verse-end -->
 
 ---
