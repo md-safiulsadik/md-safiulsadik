@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, distant from it shall remain he who is truly conscious of God:* — **Al-Lail (92:17)**
+> 📖 *and you love wealth with boundless love!* — **Al-Fajr (89:20)**
 <!-- quran-verse-end -->
 
 ---
