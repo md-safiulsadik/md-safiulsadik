@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, indeed, [to the same end] We sent forth Noah and Abraham [as Our message-bearers], and established prophethood and revelation among their descendants; and some of them were on the right way, but many were iniquitous.* — **Al-Hadid (57:26)**
+> 📖 *Taste it - thou who [on earth] hast considered thyself so mighty, so noble!* — **Ad-Dukhaan (44:49)**
 <!-- quran-verse-end -->
 
 ---
