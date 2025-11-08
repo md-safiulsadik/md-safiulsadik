@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SO THAT the Quraysh might remain secure,* — **Quraish (106:1)**
+> 📖 *behold, men look upon that [reckoning] as something far away –* — **Al-Ma'aarij (70:6)**
 <!-- quran-verse-end -->
 
 ---
