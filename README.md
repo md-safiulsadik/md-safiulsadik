@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when I have formed him fully and breathed into him of My spirit, fall you down before him in prostration!”* — **Saad (38:72)**
+> 📖 *SO THAT the Quraysh might remain secure,* — **Quraish (106:1)**
 <!-- quran-verse-end -->
 
 ---
