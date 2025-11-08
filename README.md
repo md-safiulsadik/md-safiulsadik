@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Lo! It is you who [are prepared to] love them, but they will not love you, although you believe in all of the revelation. And when they meet you, they assert, "We believe [as you believe]"; but when they find themselves alone, they gnaw their fingers in rage against you. Say: "Perish in your rage! Behold, God has full knowledge of what is in the hearts [of men]!"* — **Aal-i-Imraan (3:119)**
+> 📖 *avoiding all people because of the [alleged] evil of the glad tiding which he has received, [and debating within himself:] Shall he keep this [child] despite the contempt [which he feels for it]-or shall he bury it in the dust? Old, evil indeed is whatever they decide!* — **An-Nahl (16:59)**
 <!-- quran-verse-end -->
 
 ---
