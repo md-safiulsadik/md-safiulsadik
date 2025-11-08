@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! No men shall deride [other] men: it may well be that those [whom they deride] are better than themselves; and no women [shall deride other] women: it may well be that those [whom they deride] are better than them­selves. And neither shall you defame one another, nor insult one another by [opprobrious] epithets: evil is all imputation of iniquity after [one has attained to] faith; and they who [become guilty thereof and] do not repent - it is they, they who are evildoers!* — **Al-Hujuraat (49:11)**
+> 📖 *Lo! It is you who [are prepared to] love them, but they will not love you, although you believe in all of the revelation. And when they meet you, they assert, "We believe [as you believe]"; but when they find themselves alone, they gnaw their fingers in rage against you. Say: "Perish in your rage! Behold, God has full knowledge of what is in the hearts [of men]!"* — **Aal-i-Imraan (3:119)**
 <!-- quran-verse-end -->
 
 ---
