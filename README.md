@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Taste it - thou who [on earth] hast considered thyself so mighty, so noble!* — **Ad-Dukhaan (44:49)**
+> 📖 *But, then, did those [beings] whom they had chosen to worship as deities beside God, hoping that they would bring them nearer [to Him], help them [in the end]? Nay, they forsook them: for that [alleged divinity] was but an outcome of their self-delusion and all their false imagery.* — **Al-Ahqaf (46:28)**
 <!-- quran-verse-end -->
 
 ---
