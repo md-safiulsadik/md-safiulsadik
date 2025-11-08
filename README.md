@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *avoiding all people because of the [alleged] evil of the glad tiding which he has received, [and debating within himself:] Shall he keep this [child] despite the contempt [which he feels for it]-or shall he bury it in the dust? Old, evil indeed is whatever they decide!* — **An-Nahl (16:59)**
+> 📖 *who has given them food against hunger, and made them safe from danger.* — **Quraish (106:4)**
 <!-- quran-verse-end -->
 
 ---
