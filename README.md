@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They who are bent on denying the truth claim that they will never be raised from the dead! Say: "Yea, by my Sustainer! Most surely will you be raised from the dead, and then, most surely, will you be made to understand what you did [in life]! For, easy is this for God!"* — **At-Taghaabun (64:7)**
+> 📖 *but as for those who abandon themselves to wrongdoing - they are indeed but fuel for [the fires of] hell!’"* — **Al-Jinn (72:15)**
 <!-- quran-verse-end -->
 
 ---
