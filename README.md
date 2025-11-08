@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now those who have been vouchsafed revelation aforetime did break up their unity [of faith] after such an evidence of the truth had come to them.* — **Al-Bayyina (98:4)**
+> 📖 *and truly lost is he who buries it [in darkness].* — **Ash-Shams (91:10)**
 <!-- quran-verse-end -->
 
 ---
