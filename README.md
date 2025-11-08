@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, We create man in the best conformation;* — **At-Tin (95:4)**
+> 📖 *You are to believe in God and His Apostle, and to strive hard in God's cause with your possessions and your lives: this is for your own good - if you but knew it!* — **As-Saff (61:11)**
 <!-- quran-verse-end -->
 
 ---
