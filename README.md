@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But if any of you devoutly obeys God and His Apostle and does good deeds, on her shall We bestow her reward twice-over: for We shall have readied for her a most excellent sustenance [in the life to come].* — **Al-Ahzaab (33:31)**
+> 📖 *a sovereign doer of whatever He wills.* — **Al-Burooj (85:16)**
 <!-- quran-verse-end -->
 
 ---
