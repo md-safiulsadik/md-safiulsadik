@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND HE it is who has given freedom of movement to the two great bodies of water – the one sweet and thirst-allaying, and the other salty and bitter - and yet has wrought between them a barrier and a forbidding ban.* — **Al-Furqaan (25:53)**
+> 📖 *Therefore, the orphan shalt thou never wrong,* — **Ad-Dhuhaa (93:9)**
 <!-- quran-verse-end -->
 
 ---
