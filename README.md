@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Had it not been for a decree from God that had already gone forth, there would indeed have befallen you a tremendous chastisement on account of all [the captives] that you took.* — **Al-Anfaal (8:68)**
+> 📖 *AND HE it is who has given freedom of movement to the two great bodies of water – the one sweet and thirst-allaying, and the other salty and bitter - and yet has wrought between them a barrier and a forbidding ban.* — **Al-Furqaan (25:53)**
 <!-- quran-verse-end -->
 
 ---
