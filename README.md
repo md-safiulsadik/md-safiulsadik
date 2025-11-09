@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Therefore, the orphan shalt thou never wrong,* — **Ad-Dhuhaa (93:9)**
+> 📖 *But if any of you devoutly obeys God and His Apostle and does good deeds, on her shall We bestow her reward twice-over: for We shall have readied for her a most excellent sustenance [in the life to come].* — **Al-Ahzaab (33:31)**
 <!-- quran-verse-end -->
 
 ---
