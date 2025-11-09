@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *As it is, they say [mockingly]: “O our Sus­tainer! Hasten on to us our share [of punishment even] before the Day of Reckoning!”* — **Saad (38:16)**
+> 📖 *therein to abide: [and] how goodly an abode and [how high] a station!* — **Al-Furqaan (25:76)**
 <!-- quran-verse-end -->
 
 ---
