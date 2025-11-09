@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *with goblets, and ewers, and cups filled with water from unsullied springs* — **Al-Waaqia (56:18)**
+> 📖 *Verily, in the creation of the heavens and the earth, and in the succession of night and day, there are indeed messages for all who are endowed with insight,* — **Aal-i-Imraan (3:190)**
 <!-- quran-verse-end -->
 
 ---
