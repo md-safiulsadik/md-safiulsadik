@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *a sovereign doer of whatever He wills.* — **Al-Burooj (85:16)**
+> 📖 *with goblets, and ewers, and cups filled with water from unsullied springs* — **Al-Waaqia (56:18)**
 <!-- quran-verse-end -->
 
 ---
