@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and, withal, deny all assistance [to their fellow-men]!* — **Al-Maa'un (107:7)**
+> 📖 *with darkness overspread:* — **Abasa (80:41)**
 <!-- quran-verse-end -->
 
 ---
