@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet, they who are bent on denying the truth persist in giving it the lie:* — **Al-Burooj (85:19)**
+> 📖 *And when Our messengers came unto Lot, he was sorely grieved on their account, seeing that it was beyond his power to shield them; but they said: “Fear not, and grieve not! Behold, we shall save thee and thy household - all but thy wife: she will indeed be among those that stay behind.* — **Al-Ankaboot (29:33)**
 <!-- quran-verse-end -->
 
 ---
