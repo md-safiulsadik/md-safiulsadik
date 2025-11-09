@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, in the creation of the heavens and the earth, and in the succession of night and day, there are indeed messages for all who are endowed with insight,* — **Aal-i-Imraan (3:190)**
+> 📖 *[to which] they who had [once] been arrogant will reply, “Behold, we are all in it [together]! Verily, God has judged between His creatures!”* — **Ghafir (40:48)**
 <!-- quran-verse-end -->
 
 ---
