@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *as thy Sustainer will have inspired her to do!* — **Az-Zalzala (99:5)**
+> 📖 *and the night when it grows still and dark.* — **Ad-Dhuhaa (93:2)**
 <!-- quran-verse-end -->
 
 ---
