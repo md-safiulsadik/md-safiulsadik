@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither will you [ever] worship that which I worship.* — **Al-Kaafiroon (109:5)**
+> 📖 *NOW, INDEED, We create man out of the essence of clay,* — **Al-Muminoon (23:12)**
 <!-- quran-verse-end -->
 
 ---
