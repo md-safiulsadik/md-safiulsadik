@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[O you who believe!] God has promised you many war-gains which you shall yet achieve; and He has vouchsafed you these [worldly gains] well in advance, and has stayed from you the hands of [hostile] people, so that this [your inner strength] may become a symbol to the believers [who will come after you], and that He may guide you all on a straight way.* — **Al-Fath (48:20)**
+> 📖 *[Moses] exclaimed: "That [was the place] which we were seeking!, And the two turned back, retracing their footsetps,* — **Al-Kahf (18:64)**
 <!-- quran-verse-end -->
 
 ---
