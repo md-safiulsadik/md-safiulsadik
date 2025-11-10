@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and none of you could have saved him!* — **Al-Haaqqa (69:47)**
+> 📖 *Yet [remember:] whatever [spoils taken] from the enemy God has turned over to His Apostle, you did not have to spur horse or riding-camel for its sake: but God gives His apostles mastery over whomever He wills - for God has the power to will anything.* — **Al-Hashr (59:6)**
 <!-- quran-verse-end -->
 
 ---
