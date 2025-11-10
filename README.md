@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Herein, behold, lies a message indeed for all who fear the suffering [which may befall them] in the life to come, (and are conscious of the coming of] that Day on which all mankind shall be gathered together-that Day [of Judgment] which shall be witnessed [by all that ever lived],* — **Hud (11:103)**
+> 📖 *in sublime almightiness enthroned,* — **Al-Burooj (85:15)**
 <!-- quran-verse-end -->
 
 ---
