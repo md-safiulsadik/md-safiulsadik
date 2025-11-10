@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *YOU ARE OBSESSED by greed for more and more* — **At-Takaathur (102:1)**
+> 📖 *for when he does become aware of any of Our messages, he makes them a target of his mockery! For all such there is shameful suffering in store.* — **Al-Jaathiya (45:9)**
 <!-- quran-verse-end -->
 
 ---
