@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or do they say, “He has invented all this”? Say [O Muhammad]: “Had I invented it, you would not be of the least help to me against God. He is fully aware of that [slander] into which you so reck­lessly plunge: enough is He as a witness between me and you! And [withal,] He alone is truly-forgiving, a true dispenser of grace.”* — **Al-Ahqaf (46:8)**
+> 📖 *The bestowal from on high of this divine writ issues, beyond any doubt, from the Sustainer of all the worlds:* — **As-Sajda (32:2)**
 <!-- quran-verse-end -->
 
 ---
