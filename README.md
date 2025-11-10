@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O MANKIND! A manifestation of the truth has now come unto you from your Sustainer, and We have sent down unto you a clear light.* — **An-Nisaa (4:174)**
+> 📖 *And in the succession of night and day, and in the means of subsistence which God sends down from the skies, giving life thereby to the earth after it had been lifeless, and in the change of the winds: [in all this] there are messages for people who use their reason.* — **Al-Jaathiya (45:5)**
 <!-- quran-verse-end -->
 
 ---
