@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Verily, my Sustainer hurls the truth [against all that is false] He who fully knows all the things that are beyond the reach of a created being’s perception!”* — **Saba (34:48)**
+> 📖 *O YOU who have attained to faith! Why do you say one thing and do another?* — **As-Saff (61:2)**
 <!-- quran-verse-end -->
 
 ---
