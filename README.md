@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Were I to go astray, I would but go astray [due to my own self, and] to the hurt of myself; but if I am on the right path, it is but by virtue of what my Sustainer reveals unto me: for, verily, He is all-hearing, ever-near!”* — **Saba (34:50)**
+> 📖 *on that Day man will [clearly] remember all that he has ever wrought;* — **An-Naazi'aat (79:35)**
 <!-- quran-verse-end -->
 
 ---
