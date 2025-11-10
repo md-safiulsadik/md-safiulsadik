@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and has made the mountains firm:* — **An-Naazi'aat (79:32)**
+> 📖 *Say: “Verily, my Sustainer hurls the truth [against all that is false] He who fully knows all the things that are beyond the reach of a created being’s perception!”* — **Saba (34:48)**
 <!-- quran-verse-end -->
 
 ---
