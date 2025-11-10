@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thereupon We caused [other of] Our apostles to follow in their footsteps; and [in the course of time] We caused them to be followed by Jesus, the son of Mary, upon whom We bestowed the Gospel; and in the hearts of those who [truly] followed him We engendered compassion and mercy. But as for monastic asceticism - We did not enjoin it upon them: they invented it themselves out of a desire for God’s goodly acceptance. But then, they did not [always] observe it as it ought to have been observed: and so We granted their recompense unto such of them as had [truly] attained to faith, whereas many of them became iniquitous.* — **Al-Hadid (57:27)**
+> 📖 *Or do they say, “He has invented all this”? Say [O Muhammad]: “Had I invented it, you would not be of the least help to me against God. He is fully aware of that [slander] into which you so reck­lessly plunge: enough is He as a witness between me and you! And [withal,] He alone is truly-forgiving, a true dispenser of grace.”* — **Al-Ahqaf (46:8)**
 <!-- quran-verse-end -->
 
 ---
