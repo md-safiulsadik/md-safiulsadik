@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *IT IS NOT of God's ordaining that certain kinds of cattle should be marked out by superstition and set aside from the use of man; yet those who are bent on denying the truth attribute their own lying inventions to God. And most of them never use their reason:* — **Al-Maaida (5:103)**
+> 📖 *Now as for the Thamud - they were destroyed by a violent upheaval [of the earth];* — **Al-Haaqqa (69:5)**
 <!-- quran-verse-end -->
 
 ---
