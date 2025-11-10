@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And in the succession of night and day, and in the means of subsistence which God sends down from the skies, giving life thereby to the earth after it had been lifeless, and in the change of the winds: [in all this] there are messages for people who use their reason.* — **Al-Jaathiya (45:5)**
+> 📖 *[O you who believe!] God has promised you many war-gains which you shall yet achieve; and He has vouchsafed you these [worldly gains] well in advance, and has stayed from you the hands of [hostile] people, so that this [your inner strength] may become a symbol to the believers [who will come after you], and that He may guide you all on a straight way.* — **Al-Fath (48:20)**
 <!-- quran-verse-end -->
 
 ---
