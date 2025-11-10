@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now as for the Thamud - they were destroyed by a violent upheaval [of the earth];* — **Al-Haaqqa (69:5)**
+> 📖 *in sublime almightiness enthroned,* — **Al-Burooj (85:15)**
 <!-- quran-verse-end -->
 
 ---
