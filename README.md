@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for when he does become aware of any of Our messages, he makes them a target of his mockery! For all such there is shameful suffering in store.* — **Al-Jaathiya (45:9)**
+> 📖 *Say: “Were I to go astray, I would but go astray [due to my own self, and] to the hurt of myself; but if I am on the right path, it is but by virtue of what my Sustainer reveals unto me: for, verily, He is all-hearing, ever-near!”* — **Saba (34:50)**
 <!-- quran-verse-end -->
 
 ---
