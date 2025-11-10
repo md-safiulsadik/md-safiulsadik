@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on that Day man will [clearly] remember all that he has ever wrought;* — **An-Naazi'aat (79:35)**
+> 📖 *O MANKIND! A manifestation of the truth has now come unto you from your Sustainer, and We have sent down unto you a clear light.* — **An-Nisaa (4:174)**
 <!-- quran-verse-end -->
 
 ---
