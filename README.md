@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so We made subservient to him the wind, so that it gently sped at his behest whithersoever he willed,* — **Saad (38:36)**
+> 📖 *for God makes [His] messages clear unto you - and God is all-knowing, Wise!* — **An-Noor (24:18)**
 <!-- quran-verse-end -->
 
 ---
