@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [God has willed] to impose suffering [in the life to come] on the hypocrites, both men and women, and on those who ascribe divinity to aught beside Him, both men and women: all who entertain evil thoughts about God. Evil encompasses them from all sides, and God’s condemnation rests upon them; and He has rejected them [from His grace], and has readied hell for them: and how evil a journey’s end!* — **Al-Fath (48:6)**
+> 📖 *[Whenever] He sends down water from the sky, and [once-dry] river-beds are running high according to their measure, the stream carries scum on its surface; and, likewise, from that [metal] which they smelt in the fire in order to make ornaments or utensils, [there rises] scum. In this way does God set forth the parable of truth and falsehood: for, as far as the scum is concerned, it passes away as [does all] dross; but that which is of benefit to man abides on earth. In this way does God set forth the parables* — **Ar-Ra'd (13:17)**
 <!-- quran-verse-end -->
 
 ---
