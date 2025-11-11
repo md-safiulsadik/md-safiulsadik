@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but [in the life to come such as] he shall indeed be abandoned to crushing torment!* — **Al-Humaza (104:4)**
+> 📖 *and then he looks and sees that [companion of his] in the midst of the blazing fire,* — **As-Saaffaat (37:55)**
 <!-- quran-verse-end -->
 
 ---
