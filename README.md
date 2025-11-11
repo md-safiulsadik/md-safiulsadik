@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for God makes [His] messages clear unto you - and God is all-knowing, Wise!* — **An-Noor (24:18)**
+> 📖 *Yet God has full knowledge of what they conceal [in their hearts].* — **Al-Inshiqaaq (84:23)**
 <!-- quran-verse-end -->
 
 ---
