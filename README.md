@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Those unto whom We have vouchsafed the divine writ [and who] follow it as it ought to be followed -it is they who [truly] believe in it; whereas all who choose to deny its truth -it is they, they who are the losers!* — **Al-Baqara (2:121)**
+> 📖 *And so We made subservient to him the wind, so that it gently sped at his behest whithersoever he willed,* — **Saad (38:36)**
 <!-- quran-verse-end -->
 
 ---
