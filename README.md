@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The bestowal from on high of this divine writ issues, beyond any doubt, from the Sustainer of all the worlds:* — **As-Sajda (32:2)**
+> 📖 *Say thou, [O Prophet:] "Knowledge thereof rests with God alone; and I am only a plain warner."* — **Al-Mulk (67:26)**
 <!-- quran-verse-end -->
 
 ---
