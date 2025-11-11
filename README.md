@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But they will be told:] “Cry not in supplication today: for, behold, you shall not he succoured by Us!* — **Al-Muminoon (23:65)**
+> 📖 *if He so wills, He stills the wind, and then they lie motion­less on the sea’s surface - [and] herein, behold, there are messages indeed for all who are wholly patient in adversity and deeply grateful [to God];* — **Ash-Shura (42:33)**
 <!-- quran-verse-end -->
 
 ---
