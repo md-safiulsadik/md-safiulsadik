@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AS FOR THOSE who are bent on denying the truth and on barring [others] from the path of God - all their [good] deeds will He let go to waste;* — **Muhammad (47:1)**
+> 📖 *Those unto whom We have vouchsafed the divine writ [and who] follow it as it ought to be followed -it is they who [truly] believe in it; whereas all who choose to deny its truth -it is they, they who are the losers!* — **Al-Baqara (2:121)**
 <!-- quran-verse-end -->
 
 ---
