@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Whereupon Pharaoh said: “O you nobles! I did not know that you could have any deity other than myself Well, then, O Haman, kindle me a fire for [baking bricks of] clay, and then build me a lofty tower, that haply I may have a look at the god of Moses although, behold, I am convinced that he is of those who [always] tell lies!”* — **Al-Qasas (28:38)**
+> 📖 *AS FOR THOSE who are bent on denying the truth and on barring [others] from the path of God - all their [good] deeds will He let go to waste;* — **Muhammad (47:1)**
 <!-- quran-verse-end -->
 
 ---
