@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say thou, [O Prophet:] "Knowledge thereof rests with God alone; and I am only a plain warner."* — **Al-Mulk (67:26)**
+> 📖 *[But they will be told:] “Cry not in supplication today: for, behold, you shall not he succoured by Us!* — **Al-Muminoon (23:65)**
 <!-- quran-verse-end -->
 
 ---
