@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then he looks and sees that [companion of his] in the midst of the blazing fire,* — **As-Saaffaat (37:55)**
+> 📖 *Now surely, unto Pharaoh’s folk [too] came such warnings;* — **Al-Qamar (54:41)**
 <!-- quran-verse-end -->
 
 ---
