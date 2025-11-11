@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Has He not found thee an orphan, and given thee shelter?* — **Ad-Dhuhaa (93:6)**
+> 📖 *God, save whom there is no deity - the Sustainer, in awesome almightiness enthroned!”* — **An-Naml (27:26)**
 <!-- quran-verse-end -->
 
 ---
