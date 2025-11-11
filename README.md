@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet God has full knowledge of what they conceal [in their hearts].* — **Al-Inshiqaaq (84:23)**
+> 📖 *Nay, but [in the life to come such as] he shall indeed be abandoned to crushing torment!* — **Al-Humaza (104:4)**
 <!-- quran-verse-end -->
 
 ---
