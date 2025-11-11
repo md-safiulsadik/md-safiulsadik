@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said a bold one of the invisible beings [subject to Solomon]: “I shall bring it to thee ere thou rise from thy council-seat - for, behold, I am powerful enough to do it, [and] worthy of trust!”* — **An-Naml (27:39)**
+> 📖 *toiling [under burdens of sin], worn out [by fear],* — **Al-Ghaashiya (88:3)**
 <!-- quran-verse-end -->
 
 ---
