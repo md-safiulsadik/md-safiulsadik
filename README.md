@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But if the truth were in accord with their own likes and dislikes, the heavens and the earth would surely have fallen into ruin, and all that lives in them [would long ago have perished]! Nay, [in this divine writ] We have conveyed unto them all that they ought to bear in mind: and from this their reminder they [heedlessly] turn away!* — **Al-Muminoon (23:71)**
+> 📖 *Has He not found thee an orphan, and given thee shelter?* — **Ad-Dhuhaa (93:6)**
 <!-- quran-verse-end -->
 
 ---
