@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"'And God has made the earth a wide expanse for you,* — **Nooh (71:19)**
+> 📖 *Considering all this - could there be, to anyone endowed with reason, a [more] solemn evidence of the truth?* — **Al-Fajr (89:5)**
 <!-- quran-verse-end -->
 
 ---
