@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is they who say [to their compatriots], "Do not spend anything on those who are with God's Apostle, so that they [may be forced to] leave." However, unto God belong the treasures of the heavens and the earth: but this truth the hypocrites cannot grasp.* — **Al-Munaafiqoon (63:7)**
+> 📖 *AND IT IS We who have built the universe with [Our creative] power; and, verily, it is We who are steadily expanding it.* — **Adh-Dhaariyat (51:47)**
 <!-- quran-verse-end -->
 
 ---
