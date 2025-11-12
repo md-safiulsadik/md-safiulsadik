@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He it is who has made the earth easy to live upon: go about, then, in all its regions, and partake the sustenance which He provides: but [always bear in mind that] unto Him you shall be resurrected.* — **Al-Mulk (67:15)**
+> 📖 *HE IT IS who displays before you the lightning, to give rise to [both] fear and hope, and calls heavy clouds into being;* — **Ar-Ra'd (13:12)**
 <!-- quran-verse-end -->
 
 ---
