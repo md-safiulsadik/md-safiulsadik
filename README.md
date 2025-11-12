@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and from the evil of the envious when he envies."* — **Al-Falaq (113:5)**
+> 📖 *and everything [that man does], be it small or great, is recorded [with God].* — **Al-Qamar (54:53)**
 <!-- quran-verse-end -->
 
 ---
