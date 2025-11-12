@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Woe, on that Day unto those who give the lie to the truth!* — **Al-Mursalaat (77:24)**
+> 📖 *It is they who say [to their compatriots], "Do not spend anything on those who are with God's Apostle, so that they [may be forced to] leave." However, unto God belong the treasures of the heavens and the earth: but this truth the hypocrites cannot grasp.* — **Al-Munaafiqoon (63:7)**
 <!-- quran-verse-end -->
 
 ---
