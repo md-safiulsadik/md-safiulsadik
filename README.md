@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[In the life to come] he shall have to endure a fire fiercely glowing;* — **Al-Masad (111:3)**
+> 📖 *"'And God has made the earth a wide expanse for you,* — **Nooh (71:19)**
 <!-- quran-verse-end -->
 
 ---
