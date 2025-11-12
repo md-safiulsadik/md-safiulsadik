@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Oh, verily, they who are close to God - no fear need they have, and neither shall they grieve:* — **Yunus (10:62)**
+> 📖 *Woe, on that Day unto those who give the lie to the truth!* — **Al-Mursalaat (77:24)**
 <!-- quran-verse-end -->
 
 ---
