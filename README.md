@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] they say, "Indeed, when we return to the City [we,] the ones most worthy of honour will surely drive out therefrom those most contemptible ones!" However, all honour belongs to God, and [thus] to His Apostle and those who believe [in God]: but of this the hypocrites are not aware.* — **Al-Munaafiqoon (63:8)**
+> 📖 *And those [beings] whom some invoke beside God have it not in their power to intercede [on Judgment Day] for any but such as have [in their lifetime] borne witness to the truth, and have been aware [that God is one and unique].* — **Az-Zukhruf (43:86)**
 <!-- quran-verse-end -->
 
 ---
