@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, do not invoke, side by side with God, anything that can neither benefit thee nor harm thee: for, behold, if thou do it, thou wilt surely be among the evildoers!* — **Yunus (10:106)**
+> 📖 *AND UNTO GOD belongs the dominion over the heavens and the earth: and God has the power to will anything.* — **Aal-i-Imraan (3:189)**
 <!-- quran-verse-end -->
 
 ---
