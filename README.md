@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *an apostle from God, conveying [unto them] revelations blest with purity,* — **Al-Bayyina (98:2)**
+> 📖 *Oh, verily, they who are close to God - no fear need they have, and neither shall they grieve:* — **Yunus (10:62)**
 <!-- quran-verse-end -->
 
 ---
