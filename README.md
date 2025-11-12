@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND UNTO GOD belongs the dominion over the heavens and the earth: and God has the power to will anything.* — **Aal-i-Imraan (3:189)**
+> 📖 *AND DO NOT think that God is unaware of what the evildoers are doing: He but grants them respite until the Day when their eyes will stare in horror,* — **Ibrahim (14:42)**
 <!-- quran-verse-end -->
 
 ---
