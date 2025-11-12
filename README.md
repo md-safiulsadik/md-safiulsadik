@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HE IT IS who displays before you the lightning, to give rise to [both] fear and hope, and calls heavy clouds into being;* — **Ar-Ra'd (13:12)**
+> 📖 *And thine inner self purify!* — **Al-Muddaththir (74:4)**
 <!-- quran-verse-end -->
 
 ---
