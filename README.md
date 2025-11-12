@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, verily, He alone is all-hearing, all-knowing!* — **Ash-Shu'araa (26:220)**
+> 📖 *[In the life to come] he shall have to endure a fire fiercely glowing;* — **Al-Masad (111:3)**
 <!-- quran-verse-end -->
 
 ---
