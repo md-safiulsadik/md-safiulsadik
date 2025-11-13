@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and vines and edible plants,* — **Abasa (80:28)**
+> 📖 *for, verily, God Himself is the Provider of all sustenance, the Lord of all might, the Eternal!* — **Adh-Dhaariyat (51:58)**
 <!-- quran-verse-end -->
 
 ---
