@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *he will in time pray for utter destruction:* — **Al-Inshiqaaq (84:11)**
+> 📖 *Unto God belongs all that is in the heavens and on earth. Verily, God alone is self-sufficient, the One to whom all praise is due!* — **Luqman (31:26)**
 <!-- quran-verse-end -->
 
 ---
