@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but only out of a longing for the countenance of his Sustainer, the All-Highest:* — **Al-Lail (92:20)**
+> 📖 *and vines and edible plants,* — **Abasa (80:28)**
 <!-- quran-verse-end -->
 
 ---
