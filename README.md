@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or do they say, “We are a group united, [and therefore] bound to prevail”?* — **Al-Qamar (54:44)**
+> 📖 *in mind will keep it he who stands in awe [of God],* — **Al-A'laa (87:10)**
 <!-- quran-verse-end -->
 
 ---
