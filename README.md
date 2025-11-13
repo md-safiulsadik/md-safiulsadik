@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Unto God belongs all that is in the heavens and on earth. Verily, God alone is self-sufficient, the One to whom all praise is due!* — **Luqman (31:26)**
+> 📖 *Indeed, the truth deny they who say, "Behold, God is the Christ, son of Mary." Say: "And who could have prevailed with God in any way had it been His will to destroy the Christ, son of Mary, and his mother, and everyone who is on earth-all of them? For, God's is the dominion over the heavens and the earth and all that is between them; He creates what He wills: and God has the power to will anything!"* — **Al-Maaida (5:17)**
 <!-- quran-verse-end -->
 
 ---
