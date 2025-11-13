@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *you would indeed, most surely, behold the blazing fire [of hell]!* — **At-Takaathur (102:6)**
+> 📖 *O men! Behold, We have created you all out of a male and a female, and have made you into nations and tribes, so that you might come to know one another. Verily, the noblest of you in the sight of God is the one who is most deeply conscious of Him. Behold, God is all-knowing, all-aware.* — **Al-Hujuraat (49:13)**
 <!-- quran-verse-end -->
 
 ---
