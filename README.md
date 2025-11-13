@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And leave Me alone [to deal] with those who give the lie to the truth - those who enjoy the blessings of life [without any thought of God] - and bear thou with them for a little while:* — **Al-Muzzammil (73:11)**
+> 📖 *They who are bent on denying the truth claim that they will never be raised from the dead! Say: "Yea, by my Sustainer! Most surely will you be raised from the dead, and then, most surely, will you be made to understand what you did [in life]! For, easy is this for God!"* — **At-Taghaabun (64:7)**
 <!-- quran-verse-end -->
 
 ---
