@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He who, out of His bounty, has made us alight in this abode of life enduring, wherein no struggle can assail us, and wherein no weariness can touch us!”* — **Faatir (35:35)**
+> 📖 *It is such as these whom God rejects, and whom He makes deaf [to the voice of truth], and whose eyes He blinds [to its sight]!* — **Muhammad (47:23)**
 <!-- quran-verse-end -->
 
 ---
