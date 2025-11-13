@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is such as these whom God rejects, and whom He makes deaf [to the voice of truth], and whose eyes He blinds [to its sight]!* — **Muhammad (47:23)**
+> 📖 *And so she said to his sister, “Follow him” - and [the girl] watched him from afar, while they [who had taken him in] were not aware of it,* — **Al-Qasas (28:11)**
 <!-- quran-verse-end -->
 
 ---
