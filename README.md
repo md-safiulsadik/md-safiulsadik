@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And after a time, Noah] said: "O my Sustainer! Verily, I have been calling unto my people night and day* — **Nooh (71:5)**
+> 📖 *He who, out of His bounty, has made us alight in this abode of life enduring, wherein no struggle can assail us, and wherein no weariness can touch us!”* — **Faatir (35:35)**
 <!-- quran-verse-end -->
 
 ---
