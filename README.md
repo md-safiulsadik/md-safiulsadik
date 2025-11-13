@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And those [beings] whom some invoke beside God have it not in their power to intercede [on Judgment Day] for any but such as have [in their lifetime] borne witness to the truth, and have been aware [that God is one and unique].* — **Az-Zukhruf (43:86)**
+> 📖 *but only out of a longing for the countenance of his Sustainer, the All-Highest:* — **Al-Lail (92:20)**
 <!-- quran-verse-end -->
 
 ---
