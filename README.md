@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *in mind will keep it he who stands in awe [of God],* — **Al-A'laa (87:10)**
+> 📖 *But he who does not respond to God’s call can never elude [Him] on earth, nor can he has any protector against Him [in the life to come]: all such are most obviously lost in error.”* — **Al-Ahqaf (46:32)**
 <!-- quran-verse-end -->
 
 ---
