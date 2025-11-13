@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Indeed, the truth deny they who say, "Behold, God is the Christ, son of Mary." Say: "And who could have prevailed with God in any way had it been His will to destroy the Christ, son of Mary, and his mother, and everyone who is on earth-all of them? For, God's is the dominion over the heavens and the earth and all that is between them; He creates what He wills: and God has the power to will anything!"* — **Al-Maaida (5:17)**
+> 📖 *AND YET, they attribute to Him offspring from among some of the beings created by Him! Verily, most obviously bereft of all gratitude is man!* — **Az-Zukhruf (43:15)**
 <!-- quran-verse-end -->
 
 ---
