@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But does man not bear in mind that We have created him aforetime out of nothing?* — **Maryam (19:67)**
+> 📖 *until certainty came upon us [in death]."* — **Al-Muddaththir (74:47)**
 <!-- quran-verse-end -->
 
 ---
