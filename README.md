@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And He alone is truly-forgiving, all-embracing in His love,* — **Al-Burooj (85:14)**
+> 📖 *since He will grant them their just rewards, and give them yet more out of His bounty: for, verily, He is much-forgiving, ever-responsive to gratitude.* — **Faatir (35:30)**
 <!-- quran-verse-end -->
 
 ---
