@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Bring me ingots of iron!" Then, after he had [piled up the iron and] filled the gap between the two mountain-sides, he said: "[Light a fire and] ply your bellows!" At length, when he had made it [glow like] fire, he commanded: "Bring me molten copper which I may pour upon it."* — **Al-Kahf (18:96)**
+> 📖 *And We streng­thened his dominion, and bestowed upon him wisdom and sagacity in judgment.* — **Saad (38:20)**
 <!-- quran-verse-end -->
 
 ---
