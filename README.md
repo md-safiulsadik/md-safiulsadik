@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *until certainty came upon us [in death]."* — **Al-Muddaththir (74:47)**
+> 📖 *Has He not found thee an orphan, and given thee shelter?* — **Ad-Dhuhaa (93:6)**
 <!-- quran-verse-end -->
 
 ---
