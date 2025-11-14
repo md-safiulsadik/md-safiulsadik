@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"'And [so it happened] that we reached out towards heaven: but we found it filled with mighty guards and flames,* — **Al-Jinn (72:8)**
+> 📖 *And He alone is truly-forgiving, all-embracing in His love,* — **Al-Burooj (85:14)**
 <!-- quran-verse-end -->
 
 ---
