@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the moon, as it grows to its fullness:* — **Al-Inshiqaaq (84:18)**
+> 📖 *till the Day the time whereof is known [only to Me].”* — **Saad (38:81)**
 <!-- quran-verse-end -->
 
 ---
