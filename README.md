@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is God who sends forth the winds [of hope], so that they raise a cloud - whereupon He spreads it over the skies as He wills, and causes it to break up so that thou seest rain issue from within it: and as soon as He causes it to fall upon whomever He wills of His servants - lo! they rejoice,* — **Ar-Room (30:48)**
+> 📖 *That which rests with God is best for you, if you but believe [in Him]! However, I am not your keeper."* — **Hud (11:86)**
 <!-- quran-verse-end -->
 
 ---
