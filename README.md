@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *since He will grant them their just rewards, and give them yet more out of His bounty: for, verily, He is much-forgiving, ever-responsive to gratitude.* — **Faatir (35:30)**
+> 📖 *And found thee in want, and given thee sufficiency?* — **Ad-Dhuhaa (93:8)**
 <!-- quran-verse-end -->
 
 ---
