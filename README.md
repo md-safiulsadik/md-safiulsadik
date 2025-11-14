@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And found thee in want, and given thee sufficiency?* — **Ad-Dhuhaa (93:8)**
+> 📖 *and, behold, this is indeed a most solemn affirmation, if you but knew it!* — **Al-Waaqia (56:76)**
 <!-- quran-verse-end -->
 
 ---
