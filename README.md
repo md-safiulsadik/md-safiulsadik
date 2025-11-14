@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *those who want only to be seen and praised,* — **Al-Maa'un (107:6)**
+> 📖 *Indeed, the truth deny they who say, "Behold, God is the third of a trinity" - seeing that there is no deity whatever save the One God. And unless they desist from this their assertion, grievous suffering is bound to befall such of them as are bent on denying the truth.* — **Al-Maaida (5:73)**
 <!-- quran-verse-end -->
 
 ---
