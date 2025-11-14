@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *That which rests with God is best for you, if you but believe [in Him]! However, I am not your keeper."* — **Hud (11:86)**
+> 📖 *"'And [so it happened] that we reached out towards heaven: but we found it filled with mighty guards and flames,* — **Al-Jinn (72:8)**
 <!-- quran-verse-end -->
 
 ---
