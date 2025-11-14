@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Lord of the Day of Judgment!* — **Al-Faatiha (1:4)**
+> 📖 *and the moon, as it grows to its fullness:* — **Al-Inshiqaaq (84:18)**
 <!-- quran-verse-end -->
 
 ---
