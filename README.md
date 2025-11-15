@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, behold, do We reward the doers of good;* — **Al-Mursalaat (77:44)**
+> 📖 *those who deny the truth. [Know, then, that] nothing can ward it off,* — **Al-Ma'aarij (70:2)**
 <!-- quran-verse-end -->
 
 ---
