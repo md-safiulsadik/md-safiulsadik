@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “It is God who gives you life, and then causes you to die; and in the end He will gather you together on Resurrection Day, [the coming of] which is beyond all doubt - but most human beings under­stand it not.”* — **Al-Jaathiya (45:26)**
+> 📖 *But nay, by thy Sustainer! They do not [really] believe unless they make thee [O Prophet] a judge of all on which they disagree among themselves, and then find in their hearts no bar to an acceptance of thy decision and give themselves up [to it] in utter self-surrender.* — **An-Nisaa (4:65)**
 <!-- quran-verse-end -->
 
 ---
