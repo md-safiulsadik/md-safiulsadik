@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for him whose record shall be given to him behind his back;* — **Al-Inshiqaaq (84:10)**
+> 📖 *And thou canst see many of them vie with one another in sinning and tyrannical conduct and in their swallowing of all that is evil.* — **Al-Maaida (5:62)**
 <!-- quran-verse-end -->
 
 ---
