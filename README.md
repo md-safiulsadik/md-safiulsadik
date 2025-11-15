@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But,] behold, the God-conscious will find themselves amid gardens and springs,* — **Adh-Dhaariyat (51:15)**
+> 📖 *until such a time as Gog and Magog are let loose [upon the world] and swarm down from every corner [of the earth],* — **Al-Anbiyaa (21:96)**
 <!-- quran-verse-end -->
 
 ---
