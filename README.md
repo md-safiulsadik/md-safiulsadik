@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *until such a time as Gog and Magog are let loose [upon the world] and swarm down from every corner [of the earth],* — **Al-Anbiyaa (21:96)**
+> 📖 *Is not He, then; able to bring the dead back to life?* — **Al-Qiyaama (75:40)**
 <!-- quran-verse-end -->
 
 ---
