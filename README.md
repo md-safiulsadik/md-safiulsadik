@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Do they not know that God knows [all] their hidden thoughts and their secret confabulations, and that God knows fully all the things that are beyond the reach of human perception'?* — **At-Tawba (9:78)**
+> 📖 *the Sustainer of the heavens and the earth and of all that is between them, and the Sustainer of all the points of sunrise!* — **As-Saaffaat (37:5)**
 <!-- quran-verse-end -->
 
 ---
