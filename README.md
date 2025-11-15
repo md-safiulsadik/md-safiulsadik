@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And God will say:] “O you servants of Mine! No fear need you have today, and neither shall you grieve –* — **Az-Zukhruf (43:68)**
+> 📖 *Nay, if you could but understand [it] with an understanding [born] of certainty,* — **At-Takaathur (102:5)**
 <!-- quran-verse-end -->
 
 ---
