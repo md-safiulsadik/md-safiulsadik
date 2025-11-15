@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thou canst see many of them vie with one another in sinning and tyrannical conduct and in their swallowing of all that is evil.* — **Al-Maaida (5:62)**
+> 📖 *for you and for your animals to enjoy.* — **Abasa (80:32)**
 <!-- quran-verse-end -->
 
 ---
