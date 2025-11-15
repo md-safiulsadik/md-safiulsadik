@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *those who deny the truth. [Know, then, that] nothing can ward it off,* — **Al-Ma'aarij (70:2)**
+> 📖 *VERILY, as for him who shall appear before his Sustainer [on Judgment Day] lost in sin - his [portion], behold, shall be hell: he will neither die therein nor live;* — **Taa-Haa (20:74)**
 <!-- quran-verse-end -->
 
 ---
