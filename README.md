@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the Sustainer of the heavens and the earth and of all that is between them, and the Sustainer of all the points of sunrise!* — **As-Saaffaat (37:5)**
+> 📖 *He is God, the Creator, the Maker who shapes all forms and appearances! His [alone] are the attributes of perfection. All that is in the heavens and on earth extols His limitless glory: for He alone is almighty, truly wise!* — **Al-Hashr (59:24)**
 <!-- quran-verse-end -->
 
 ---
