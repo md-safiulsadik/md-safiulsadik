@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, if you could but understand [it] with an understanding [born] of certainty,* — **At-Takaathur (102:5)**
+> 📖 *Do they not know that God knows [all] their hidden thoughts and their secret confabulations, and that God knows fully all the things that are beyond the reach of human perception'?* — **At-Tawba (9:78)**
 <!-- quran-verse-end -->
 
 ---
