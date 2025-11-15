@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, as for him who shall appear before his Sustainer [on Judgment Day] lost in sin - his [portion], behold, shall be hell: he will neither die therein nor live;* — **Taa-Haa (20:74)**
+> 📖 *and you love wealth with boundless love!* — **Al-Fajr (89:20)**
 <!-- quran-verse-end -->
 
 ---
