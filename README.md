@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Is not He, then; able to bring the dead back to life?* — **Al-Qiyaama (75:40)**
+> 📖 *Is not God the most just of judges?* — **At-Tin (95:8)**
 <!-- quran-verse-end -->
 
 ---
