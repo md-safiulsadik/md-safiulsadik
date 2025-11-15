@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He is God, the Creator, the Maker who shapes all forms and appearances! His [alone] are the attributes of perfection. All that is in the heavens and on earth extols His limitless glory: for He alone is almighty, truly wise!* — **Al-Hashr (59:24)**
+> 📖 *[But,] behold, the God-conscious will find themselves amid gardens and springs,* — **Adh-Dhaariyat (51:15)**
 <!-- quran-verse-end -->
 
 ---
