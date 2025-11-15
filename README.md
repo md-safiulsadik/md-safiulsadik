@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and you love wealth with boundless love!* — **Al-Fajr (89:20)**
+> 📖 *[And God will say:] “O you servants of Mine! No fear need you have today, and neither shall you grieve –* — **Az-Zukhruf (43:68)**
 <!-- quran-verse-end -->
 
 ---
