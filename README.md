@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *to the end that He may reward those who believe and do right­eous deeds: [for] it is they whom forgiveness of sins awaits, and a most excellent sustenance* — **Saba (34:4)**
+> 📖 *and who give food - however great be their own want of it - unto the needy, and the orphan, and the captive,* — **Al-Insaan (76:8)**
 <!-- quran-verse-end -->
 
 ---
