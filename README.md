@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thou seest people enter God's religion in hosts,* — **An-Nasr (110:2)**
+> 📖 *until you go down to your graves.* — **At-Takaathur (102:2)**
 <!-- quran-verse-end -->
 
 ---
