@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and on that Day you will most surely be called to account for [what you did with] the boon of life!* — **At-Takaathur (102:8)**
+> 📖 *But then, is he that goes along with his face close to the ground better guided than he that walks upright on a straight way?* — **Al-Mulk (67:22)**
 <!-- quran-verse-end -->
 
 ---
