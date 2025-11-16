@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But then, is he that goes along with his face close to the ground better guided than he that walks upright on a straight way?* — **Al-Mulk (67:22)**
+> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:40)**
 <!-- quran-verse-end -->
 
 ---
