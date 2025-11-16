@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DO, THEN, they [who deny resurrection] never gaze at the clouds pregnant with water, [and observe] how they are created?* — **Al-Ghaashiya (88:17)**
+> 📖 *For so it is that against every prophet We have set up enemies from among those who are lost in sin: yet none can guide and give succour as thy Sustainer does!* — **Al-Furqaan (25:31)**
 <!-- quran-verse-end -->
 
 ---
