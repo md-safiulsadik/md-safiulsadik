@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, [be patient,] even though they who are bent on denying the truth would all but kill thee with their eyes whenever they hear this reminder, and [though] they say, "[As for Muhammad,] behold, most surely he is a madman!"* — **Al-Qalam (68:51)**
+> 📖 *and [when] the earth yields up her burdens,* — **Az-Zalzala (99:2)**
 <!-- quran-verse-end -->
 
 ---
