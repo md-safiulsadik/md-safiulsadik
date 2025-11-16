@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:40)**
+> 📖 *[Moses] answered: "Knowledge thereof rests with my Sustainer [alone, and is laid down] in His decree; my Sustainer does not err, and neither does He forget."* — **Taa-Haa (20:52)**
 <!-- quran-verse-end -->
 
 ---
