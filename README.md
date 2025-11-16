@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said [Abraham]: “And what [else] may you have in view, O you [heavenly] messengers?”* — **Adh-Dhaariyat (51:31)**
+> 📖 *Verily, those who have attained to faith and do good works, and are constant in prayer, and dispense charity - they shall have their reward with their Sustainer, and no fear need they have, and neither shall they grieve.* — **Al-Baqara (2:277)**
 <!-- quran-verse-end -->
 
 ---
