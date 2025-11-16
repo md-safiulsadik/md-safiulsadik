@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For so it is that against every prophet We have set up enemies from among those who are lost in sin: yet none can guide and give succour as thy Sustainer does!* — **Al-Furqaan (25:31)**
+> 📖 *and on that Day you will most surely be called to account for [what you did with] the boon of life!* — **At-Takaathur (102:8)**
 <!-- quran-verse-end -->
 
 ---
