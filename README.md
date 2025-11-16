@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, do not invoke, side by side with God, anything that can neither benefit thee nor harm thee: for, behold, if thou do it, thou wilt surely be among the evildoers!* — **Yunus (10:106)**
+> 📖 *to the end that He may reward those who believe and do right­eous deeds: [for] it is they whom forgiveness of sins awaits, and a most excellent sustenance* — **Saba (34:4)**
 <!-- quran-verse-end -->
 
 ---
