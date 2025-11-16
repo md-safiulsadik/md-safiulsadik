@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Moses] answered: "Knowledge thereof rests with my Sustainer [alone, and is laid down] in His decree; my Sustainer does not err, and neither does He forget."* — **Taa-Haa (20:52)**
+> 📖 *Said [Abraham]: “And what [else] may you have in view, O you [heavenly] messengers?”* — **Adh-Dhaariyat (51:31)**
 <!-- quran-verse-end -->
 
 ---
