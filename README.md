@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, [O Prophet,] as for those who call thee from without thy private apartments - most of them do not use their reason:* — **Al-Hujuraat (49:4)**
+> 📖 *Thus, do not invoke, side by side with God, anything that can neither benefit thee nor harm thee: for, behold, if thou do it, thou wilt surely be among the evildoers!* — **Yunus (10:106)**
 <!-- quran-verse-end -->
 
 ---
