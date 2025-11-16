@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *until you go down to your graves.* — **At-Takaathur (102:2)**
+> 📖 *shall be engulfed by an abyss.* — **Al-Qaari'a (101:9)**
 <!-- quran-verse-end -->
 
 ---
