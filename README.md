@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *shall be engulfed by an abyss.* — **Al-Qaari'a (101:9)**
+> 📖 *Hence, [be patient,] even though they who are bent on denying the truth would all but kill thee with their eyes whenever they hear this reminder, and [though] they say, "[As for Muhammad,] behold, most surely he is a madman!"* — **Al-Qalam (68:51)**
 <!-- quran-verse-end -->
 
 ---
