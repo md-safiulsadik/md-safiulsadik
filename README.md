@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and, withal, deny all assistance [to their fellow-men]!* — **Al-Maa'un (107:7)**
+> 📖 *in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen* — **Al-Qadr (97:4)**
 <!-- quran-verse-end -->
 
 ---
