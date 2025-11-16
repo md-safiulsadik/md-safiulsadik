@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who give food - however great be their own want of it - unto the needy, and the orphan, and the captive,* — **Al-Insaan (76:8)**
+> 📖 *"'And God has made the earth a wide expanse for you,* — **Nooh (71:19)**
 <!-- quran-verse-end -->
 
 ---
