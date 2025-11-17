@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They will say: “Oh, woe unto us! Who has roused us from our sleep [of death]?” [Whereupon they will be told:] “This is what the Most Gracious has promised! And His message-bearers spoke the truth!”* — **Yaseen (36:52)**
+> 📖 *[Know this,] so that you may not despair over whatever [good] has escaped you nor exult [unduly] over whatever [good] has come to you: for, God does not love any of those who, out of self-conceit, act in a boastful manner –* — **Al-Hadid (57:23)**
 <!-- quran-verse-end -->
 
 ---
