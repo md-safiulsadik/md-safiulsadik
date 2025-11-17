@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas he whose weight is light in the balance* — **Al-Qaari'a (101:8)**
+> 📖 *and then giving forth a reminder,* — **Al-Mursalaat (77:5)**
 <!-- quran-verse-end -->
 
 ---
