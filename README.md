@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Grant Thy forgiveness unto me, and my parents, and all the believers, on the Day on which the [last] reckoning will come to pass!"* — **Ibrahim (14:41)**
+> 📖 *Nay, [O believers,] you arouse in their bosoms a fear more intense than [even their fear of] God: this, because they are people who fail to grasp the truth.* — **Al-Hashr (59:13)**
 <!-- quran-verse-end -->
 
 ---
