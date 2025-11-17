@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware of how those who would always dissemble [their real feelings] speak to their truth-denying brethren from among the followers of earlier revelation: “If you are driven away, we shall most certainly go forth with you, and shall never pay heed to anyone against you; and if war is waged against you, we shall most certainly come to your succour.” But God bears witness that they are most flagrantly lying:* — **Al-Hashr (59:11)**
+> 📖 *on the Day when the earth and the mountains will be convulsed and the mountains will [crumble and] become like a sand-dune on the move!* — **Al-Muzzammil (73:14)**
 <!-- quran-verse-end -->
 
 ---
