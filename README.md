@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, [O believers,] you arouse in their bosoms a fear more intense than [even their fear of] God: this, because they are people who fail to grasp the truth.* — **Al-Hashr (59:13)**
+> 📖 *They will say: “Oh, woe unto us! Who has roused us from our sleep [of death]?” [Whereupon they will be told:] “This is what the Most Gracious has promised! And His message-bearers spoke the truth!”* — **Yaseen (36:52)**
 <!-- quran-verse-end -->
 
 ---
