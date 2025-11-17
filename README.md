@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *witnessed~ by all who have [ever] been drawn close unto God.* — **Al-Mutaffifin (83:21)**
+> 📖 *whereas by His words God proves the truth to be true, however hateful this may be to those who are lost in sin!"* — **Yunus (10:82)**
 <!-- quran-verse-end -->
 
 ---
