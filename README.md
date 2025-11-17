@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, those who have attained to faith and do good works, and are constant in prayer, and dispense charity - they shall have their reward with their Sustainer, and no fear need they have, and neither shall they grieve.* — **Al-Baqara (2:277)**
+> 📖 *and [to cause this message to spread] from them unto other people as soon as they come into contact with them: for He alone is almighty, truly wise!* — **Al-Jumu'a (62:3)**
 <!-- quran-verse-end -->
 
 ---
