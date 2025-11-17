@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [I call to witness] parent and offspring:* — **Al-Balad (90:3)**
+> 📖 *WHEN GOD'S SUCCOUR comes, and victory,* — **An-Nasr (110:1)**
 <!-- quran-verse-end -->
 
 ---
