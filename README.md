@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and man cries out, "What has happened to her?" -* — **Az-Zalzala (99:3)**
+> 📖 *Grant Thy forgiveness unto me, and my parents, and all the believers, on the Day on which the [last] reckoning will come to pass!"* — **Ibrahim (14:41)**
 <!-- quran-verse-end -->
 
 ---
