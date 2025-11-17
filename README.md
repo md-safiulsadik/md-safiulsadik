@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas by His words God proves the truth to be true, however hateful this may be to those who are lost in sin!"* — **Yunus (10:82)**
+> 📖 *“O my dear son! Be constant in prayer, and enjoin the doing of what is right and forbid the doing of what is wrong, and bear in patience whatever [ill] may befall thee: this, behold, is something to set one’s heart upon!* — **Luqman (31:17)**
 <!-- quran-verse-end -->
 
 ---
