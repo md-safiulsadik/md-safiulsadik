@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on the Day when the earth and the mountains will be convulsed and the mountains will [crumble and] become like a sand-dune on the move!* — **Al-Muzzammil (73:14)**
+> 📖 *[And] they will reply: “[All this power belongs] to God.” Say: ‘How, then, can you be so deluded?”* — **Al-Muminoon (23:89)**
 <!-- quran-verse-end -->
 
 ---
