@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[for, resting in paradise] on couches, they will look on [and say to themselves]:* — **Al-Mutaffifin (83:35)**
+> 📖 *that you may worship none but God-for, verily, I fear lest suffering befall you on a grievous Day!"* — **Hud (11:26)**
 <!-- quran-verse-end -->
 
 ---
