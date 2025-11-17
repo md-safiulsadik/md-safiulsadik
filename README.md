@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] they will reply: “[All this power belongs] to God.” Say: ‘How, then, can you be so deluded?”* — **Al-Muminoon (23:89)**
+> 📖 *witnessed~ by all who have [ever] been drawn close unto God.* — **Al-Mutaffifin (83:21)**
 <!-- quran-verse-end -->
 
 ---
