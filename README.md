@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"God the Eternal, the Uncaused Cause of All Being.* — **Al-Ikhlaas (112:2)**
+> 📖 *and [I call to witness] parent and offspring:* — **Al-Balad (90:3)**
 <!-- quran-verse-end -->
 
 ---
