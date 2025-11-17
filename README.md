@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what that Judgment Day will be?* — **Al-Infitaar (82:17)**
+> 📖 *And once again: What could make thee conceive what that Judgment Day will be?* — **Al-Infitaar (82:18)**
 <!-- quran-verse-end -->
 
 ---
