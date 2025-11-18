@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[For Him,] the creation of you all and the resurrection of you all is but like [the creation and resurrection of] a single soul: for, verily, God is all-hearing, all-seeing.* — **Luqman (31:28)**
+> 📖 *and thereafter We reduce him to the lowest of low* — **At-Tin (95:5)**
 <!-- quran-verse-end -->
 
 ---
