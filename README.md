@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Satan has gained mastery over them, and has caused them to remain oblivious of the remem­brance of God. Such as these are Satan’s partisans: oh, verily, it is they, the partisans of Satan, who will truly be the losers!* — **Al-Mujaadila (58:19)**
+> 📖 *upon their faces thou wilt see the brightness of bliss.* — **Al-Mutaffifin (83:24)**
 <!-- quran-verse-end -->
 
 ---
