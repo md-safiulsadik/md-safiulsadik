@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware how God sets forth the parable of a good word? [It is] like a good tree, firmly rooted, [reaching out] with its branches towards the sky,* — **Ibrahim (14:24)**
+> 📖 *Satan has gained mastery over them, and has caused them to remain oblivious of the remem­brance of God. Such as these are Satan’s partisans: oh, verily, it is they, the partisans of Satan, who will truly be the losers!* — **Al-Mujaadila (58:19)**
 <!-- quran-verse-end -->
 
 ---
