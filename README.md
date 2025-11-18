@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say thou: “Wait, [then,] hopefully; behold, I, too, shall hopefully wait with you!”* — **At-Tur (52:31)**
+> 📖 *Those who lived before them did, too, devise many a blasphemy -whereupon God visited with destruction all that they had ever built, [striking] at its very foundations, so that the roof fell in upon them from above and suffering befell them without their having perceived whence it came.* — **An-Nahl (16:26)**
 <!-- quran-verse-end -->
 
 ---
