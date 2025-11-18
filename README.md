@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He alone grants life and deals death; and unto Him you all must return.* — **Yunus (10:56)**
+> 📖 *Have they, then, never beheld the birds above them, spreading their wings and drawing them in? None but the Most Gracious upholds them: for, verily, He keeps all things in His sight.* — **Al-Mulk (67:19)**
 <!-- quran-verse-end -->
 
 ---
