@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *verily, We shall suffice thee against all who [now] deride [this message - all]* — **Al-Hijr (15:95)**
+> 📖 *[It will occur] on the Day when men will be like moths swarming in confusion,* — **Al-Qaari'a (101:4)**
 <!-- quran-verse-end -->
 
 ---
