@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And once again: What could make thee conceive what that Judgment Day will be?* — **Al-Infitaar (82:18)**
+> 📖 *[For Him,] the creation of you all and the resurrection of you all is but like [the creation and resurrection of] a single soul: for, verily, God is all-hearing, all-seeing.* — **Luqman (31:28)**
 <!-- quran-verse-end -->
 
 ---
