@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And We caused Jesus, the son of Mary, to follow in the footsteps of those [earlier prophets], confirming the truth of whatever there still remained of the Torah; and We vouchsafed unto him the Gospel, wherein there was guidance and light, confirming the truth of whatever there still remained of the Torah, and as a guidance and admonition unto the God-conscious.* — **Al-Maaida (5:46)**
+> 📖 *He alone grants life and deals death; and unto Him you all must return.* — **Yunus (10:56)**
 <!-- quran-verse-end -->
 
 ---
