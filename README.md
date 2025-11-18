@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAD WE bestowed this Qur’an from on high upon a mountain, thou wouldst indeed see it humbling itself, breaking asunder for awe of God. And [all] such parables We propound unto men, so that they might [learn to] think.* — **Al-Hashr (59:21)**
+> 📖 *However, ere [We condemn them to] that supreme suffering, We shall most certainly let them taste of a suffering closer at hand, so that they might [repent and] mend their ways.* — **As-Sajda (32:21)**
 <!-- quran-verse-end -->
 
 ---
