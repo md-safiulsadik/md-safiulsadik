@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, if you could but understand [it] with an understanding [born] of certainty,* — **At-Takaathur (102:5)**
+> 📖 *Say thou: “Wait, [then,] hopefully; behold, I, too, shall hopefully wait with you!”* — **At-Tur (52:31)**
 <!-- quran-verse-end -->
 
 ---
