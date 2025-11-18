@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Have they, then, never beheld the birds above them, spreading their wings and drawing them in? None but the Most Gracious upholds them: for, verily, He keeps all things in His sight.* — **Al-Mulk (67:19)**
+> 📖 *verily, We shall suffice thee against all who [now] deride [this message - all]* — **Al-Hijr (15:95)**
 <!-- quran-verse-end -->
 
 ---
