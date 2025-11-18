@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thou wilt surely find that, of all people, the most hostile to those who believe [in this divine writ] are the Jews as well as those who are bent on ascribing divinity to aught beside God; and thou wilt surely find that, of all people, they who say, "Behold, we are Christians," come closest to feeling affection for those who believe [in this divine writ]: this is so because there are priests and monks among them, and because these are not given to arrogance.* — **Al-Maaida (5:82)**
+> 📖 *Nay, if you could but understand [it] with an understanding [born] of certainty,* — **At-Takaathur (102:5)**
 <!-- quran-verse-end -->
 
 ---
