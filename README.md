@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Why do not their men of God and their rabbis forbid them to make sinful assertions and to swallow all that is evil? Vile indeed is what they contrive!* — **Al-Maaida (5:63)**
+> 📖 *And We caused Jesus, the son of Mary, to follow in the footsteps of those [earlier prophets], confirming the truth of whatever there still remained of the Torah; and We vouchsafed unto him the Gospel, wherein there was guidance and light, confirming the truth of whatever there still remained of the Torah, and as a guidance and admonition unto the God-conscious.* — **Al-Maaida (5:46)**
 <!-- quran-verse-end -->
 
 ---
