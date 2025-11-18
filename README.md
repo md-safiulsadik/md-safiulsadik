@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *upon their faces thou wilt see the brightness of bliss.* — **Al-Mutaffifin (83:24)**
+> 📖 *[saying, in their hearts,] "We feed you for the sake of God alone: we desire no recompense from you, nor thanks:* — **Al-Insaan (76:9)**
 <!-- quran-verse-end -->
 
 ---
