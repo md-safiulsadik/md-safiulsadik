@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And from the wind-driven clouds We send down waters pouring in abundance,* — **An-Naba (78:14)**
+> 📖 *and him that seeks [thy] help shalt thou never chide,* — **Ad-Dhuhaa (93:10)**
 <!-- quran-verse-end -->
 
 ---
