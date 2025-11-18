@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Those who lived before them did, too, devise many a blasphemy -whereupon God visited with destruction all that they had ever built, [striking] at its very foundations, so that the roof fell in upon them from above and suffering befell them without their having perceived whence it came.* — **An-Nahl (16:26)**
+> 📖 *ART THOU NOT aware how God sets forth the parable of a good word? [It is] like a good tree, firmly rooted, [reaching out] with its branches towards the sky,* — **Ibrahim (14:24)**
 <!-- quran-verse-end -->
 
 ---
