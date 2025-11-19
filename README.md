@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *LEAVE Me alone [to deal] with him whom I have created alone,* — **Al-Muddaththir (74:11)**
+> 📖 *Verily, We create man in the best conformation;* — **At-Tin (95:4)**
 <!-- quran-verse-end -->
 
 ---
