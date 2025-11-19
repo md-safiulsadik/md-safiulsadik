@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "Verily, my Sustainer has forbidden only shameful deeds, be they open or secret, and [every kind of] sinning, and unjustified envy, and the ascribing of divinity to aught beside Him - since He has never bestowed any warrant therefor from on high and the attributing unto God of aught of which you have no knowledge."* — **Al-A'raaf (7:33)**
+> 📖 *And, indeed, [even] before thy time have apostles been derided - but those who scoffed at them were [in the end] overwhelmed by the very thing which they were wont to deride.* — **Al-An'aam (6:10)**
 <!-- quran-verse-end -->
 
 ---
