@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and unto thy Sustainer turn with love.* — **Ash-Sharh (94:8)**
+> 📖 *although God's apostle had told them, "It is a she-camel belonging to God, so let her drink [and do her no harm]!"* — **Ash-Shams (91:13)**
 <!-- quran-verse-end -->
 
 ---
