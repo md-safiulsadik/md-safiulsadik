@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"'What is amiss with you that you cannot look forward to God's majesty,* — **Nooh (71:13)**
+> 📖 *None the less man chooses to deny what lies ahead of him,* — **Al-Qiyaama (75:5)**
 <!-- quran-verse-end -->
 
 ---
