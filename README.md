@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, indeed, [even] before thy time have apostles been derided - but those who scoffed at them were [in the end] overwhelmed by the very thing which they were wont to deride.* — **Al-An'aam (6:10)**
+> 📖 *LEAVE Me alone [to deal] with him whom I have created alone,* — **Al-Muddaththir (74:11)**
 <!-- quran-verse-end -->
 
 ---
