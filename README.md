@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *as for those who attained to faith and did righteous deeds, they shall be made happy in a garden of delight;* — **Ar-Room (30:15)**
+> 📖 *Say: "Verily, my Sustainer has forbidden only shameful deeds, be they open or secret, and [every kind of] sinning, and unjustified envy, and the ascribing of divinity to aught beside Him - since He has never bestowed any warrant therefor from on high and the attributing unto God of aught of which you have no knowledge."* — **Al-A'raaf (7:33)**
 <!-- quran-verse-end -->
 
 ---
