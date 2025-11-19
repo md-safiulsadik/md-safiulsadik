@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *although God's apostle had told them, "It is a she-camel belonging to God, so let her drink [and do her no harm]!"* — **Ash-Shams (91:13)**
+> 📖 *When they are cast into that [hell], they will hear its breath indrawing as it boils up,* — **Al-Mulk (67:7)**
 <!-- quran-verse-end -->
 
 ---
