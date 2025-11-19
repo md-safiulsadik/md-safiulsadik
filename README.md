@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[For this] We shall brand him with indelible disgrace!* — **Al-Qalam (68:16)**
+> 📖 *and save us, by Thy grace, from people who deny the truth!"* — **Yunus (10:86)**
 <!-- quran-verse-end -->
 
 ---
