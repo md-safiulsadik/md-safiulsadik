@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, We create man in the best conformation;* — **At-Tin (95:4)**
+> 📖 *Fully aware are We of what they [who deny resurrection] do say; and thou canst by no means force them [to believe in it]. Yet none the less, remind, through this Qur’an, all such as may fear My warning.* — **Qaaf (50:45)**
 <!-- quran-verse-end -->
 
 ---
