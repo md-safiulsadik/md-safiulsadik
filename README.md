@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the mountains will be like fluffy tufts of wool....* — **Al-Qaari'a (101:5)**
+> 📖 *"'What is amiss with you that you cannot look forward to God's majesty,* — **Nooh (71:13)**
 <!-- quran-verse-end -->
 
 ---
