@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *None the less man chooses to deny what lies ahead of him,* — **Al-Qiyaama (75:5)**
+> 📖 *[For this] We shall brand him with indelible disgrace!* — **Al-Qalam (68:16)**
 <!-- quran-verse-end -->
 
 ---
