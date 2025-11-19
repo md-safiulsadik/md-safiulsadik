@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then, behold, they shall enter the blazing fire* — **Al-Mutaffifin (83:16)**
+> 📖 *Enter this [paradise] in peace; this is the Day on which life abiding begins!”* — **Qaaf (50:34)**
 <!-- quran-verse-end -->
 
 ---
