@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *with darkness overspread:* — **Abasa (80:41)**
+> 📖 *Yea, everyone of them claims that he [himself] ought to have been given revelations unfolded!* — **Al-Muddaththir (74:52)**
 <!-- quran-verse-end -->
 
 ---
