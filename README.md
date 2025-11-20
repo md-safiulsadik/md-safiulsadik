@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *GO ON towards that [resurrection] which you were wont to call a lie!* — **Al-Mursalaat (77:29)**
+> 📖 *They answered: "Hast thou come to us [with the demand] that we worship God alone, and give up all that our forefathers were wont to worship? Bring about, then, that [punishment] with which thou hast threatened us, if thou art a man of truth!"* — **Al-A'raaf (7:70)**
 <!-- quran-verse-end -->
 
 ---
