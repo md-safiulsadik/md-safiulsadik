@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yea, everyone of them claims that he [himself] ought to have been given revelations unfolded!* — **Al-Muddaththir (74:52)**
+> 📖 *with fruit thereon, and palm trees with sheathed clusters [of dates],* — **Ar-Rahmaan (55:11)**
 <!-- quran-verse-end -->
 
 ---
