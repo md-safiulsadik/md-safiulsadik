@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and which they shall not [be able to] evade.* — **Al-Infitaar (82:16)**
+> 📖 *and verily, It is for Us to call them to account.* — **Al-Ghaashiya (88:26)**
 <!-- quran-verse-end -->
 
 ---
