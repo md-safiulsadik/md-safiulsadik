@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And whether We show thee [in this world something of what We hold in store for those [deniers of the truth], or whether We cause thee to die [before that retribution takes place - know that, in the end], it is unto Us that they must return; and God is witness to all that they do.* — **Yunus (10:46)**
+> 📖 *“And [God says:] ‘We have enjoined upon man goodness towards his parents: his mother bore him by bearing strain upon strain, and his utter dependence on her lasted two years: [hence, O man,] be grateful towards Me and towards thy parents, [and remember that] with Me is all journeys’ end.* — **Luqman (31:14)**
 <!-- quran-verse-end -->
 
 ---
