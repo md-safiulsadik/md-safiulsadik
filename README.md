@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now whatever calamity may befall you [on Judgment Day] will be an outcome of what your own hands have wrought, although He pardons much;* — **Ash-Shura (42:30)**
+> 📖 *Behold, We shall bestow upon thee a weighty message –* — **Al-Muzzammil (73:5)**
 <!-- quran-verse-end -->
 
 ---
