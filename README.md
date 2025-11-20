@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Our Sustainer will bring us all together [on Judgment Day], and then He will lay open the truth between us, in justice - for He alone is the One who opens all truth, the All-Knowing!”* — **Saba (34:26)**
+> 📖 *He it is who has made the earth a cradle for you, and has provided for you ways [of livelihood] thereon, so that you might follow the right path.* — **Az-Zukhruf (43:10)**
 <!-- quran-verse-end -->
 
 ---
