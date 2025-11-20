@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Fight thou, then, in God's cause - since thou art but responsible for thine own self - and inspire the believers to overcome all fear of death. God may well curb the might of those who are bent on denying the truth: for God is stronger in might, and stronger in ability to deter.* — **An-Nisaa (4:84)**
+> 📖 *Say: “Our Sustainer will bring us all together [on Judgment Day], and then He will lay open the truth between us, in justice - for He alone is the One who opens all truth, the All-Knowing!”* — **Saba (34:26)**
 <!-- quran-verse-end -->
 
 ---
