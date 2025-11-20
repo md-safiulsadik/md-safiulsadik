@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and verily, It is for Us to call them to account.* — **Al-Ghaashiya (88:26)**
+> 📖 *and is not – however little you may [be prepared to] believe it - the word of a poet;* — **Al-Haaqqa (69:41)**
 <!-- quran-verse-end -->
 
 ---
