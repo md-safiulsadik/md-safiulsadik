@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and is not – however little you may [be prepared to] believe it - the word of a poet;* — **Al-Haaqqa (69:41)**
+> 📖 *with fruit thereon, and palm trees with sheathed clusters [of dates],* — **Ar-Rahmaan (55:11)**
 <!-- quran-verse-end -->
 
 ---
