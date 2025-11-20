@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They answered: "Hast thou come to us [with the demand] that we worship God alone, and give up all that our forefathers were wont to worship? Bring about, then, that [punishment] with which thou hast threatened us, if thou art a man of truth!"* — **Al-A'raaf (7:70)**
+> 📖 *And whether We show thee [in this world something of what We hold in store for those [deniers of the truth], or whether We cause thee to die [before that retribution takes place - know that, in the end], it is unto Us that they must return; and God is witness to all that they do.* — **Yunus (10:46)**
 <!-- quran-verse-end -->
 
 ---
