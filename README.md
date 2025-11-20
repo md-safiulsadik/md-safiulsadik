@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He it is who has made the earth a cradle for you, and has provided for you ways [of livelihood] thereon, so that you might follow the right path.* — **Az-Zukhruf (43:10)**
+> 📖 *WHEN THE SUN is shrouded in darkness,* — **At-Takwir (81:1)**
 <!-- quran-verse-end -->
 
 ---
