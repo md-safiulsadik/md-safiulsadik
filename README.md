@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“And [God says:] ‘We have enjoined upon man goodness towards his parents: his mother bore him by bearing strain upon strain, and his utter dependence on her lasted two years: [hence, O man,] be grateful towards Me and towards thy parents, [and remember that] with Me is all journeys’ end.* — **Luqman (31:14)**
+> 📖 *and then went arrogantly back to what he had come from.* — **Al-Qiyaama (75:33)**
 <!-- quran-verse-end -->
 
 ---
