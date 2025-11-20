@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"God the Eternal, the Uncaused Cause of All Being.* — **Al-Ikhlaas (112:2)**
+> 📖 *Avoid thou, therefore, those who turn away from all remembrance of Us and care for no more than the life of this world,* — **An-Najm (53:29)**
 <!-- quran-verse-end -->
 
 ---
