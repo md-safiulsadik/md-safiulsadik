@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *with fruit thereon, and palm trees with sheathed clusters [of dates],* — **Ar-Rahmaan (55:11)**
+> 📖 *And [on that Day] thou wilt see all people kneeling down [in humility]: all people will be called upon to [face] their record: “Today you shall be requited for all that you ever did!* — **Al-Jaathiya (45:28)**
 <!-- quran-verse-end -->
 
 ---
