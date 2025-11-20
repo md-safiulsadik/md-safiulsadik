@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then went arrogantly back to what he had come from.* — **Al-Qiyaama (75:33)**
+> 📖 *and which they shall not [be able to] evade.* — **Al-Infitaar (82:16)**
 <!-- quran-verse-end -->
 
 ---
