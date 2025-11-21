@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Remember that day] when you were at the near end of the valley [of Badr], and they were at its farthest end, while the caravan was below you. And if you had known that a battle was to take place, you would indeed have refused to accept the challenge: but [the battle was brought about none the less,] so that God might accomplish a thing [which He willed] to be done, [and] that he who would perish might perish in clear evidence of the truth, and that he who would remain alive might live in clear evidence of the truth. And, behold, God is indeed all-hearing, all-knowing.* — **Al-Anfaal (8:42)**
+> 📖 *Yet [even Solomon had to die; but] when We decreed that he should die, nothing showed them that he was dead except an earthworm that gnawed away his staff. And when he fell to the ground, those invisible beings [subservient to him] saw clearly that, had they but understood the reality which was be­yond the reach of their perception, they would not have continued [to toil] in the shameful suffering [of servitude]* — **Saba (34:14)**
 <!-- quran-verse-end -->
 
 ---
