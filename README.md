@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And withal,] the eye did not waver, nor yet did it stray:* — **An-Najm (53:17)**
+> 📖 *rushing to assault at morn,* — **Al-Aadiyaat (100:3)**
 <!-- quran-verse-end -->
 
 ---
