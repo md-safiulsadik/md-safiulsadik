@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The way of those upon whom Thou hast bestowed Thy blessings, not of those who have been condemned [by Thee], nor of those who go astray!* — **Al-Faatiha (1:7)**
+> 📖 *notwithstanding that we were established in positions [which we had thought well-suited] to listening to [whatever secrets might be in] it: and anyone who now [or ever] tries to listen will [likewise] find a flame lying in wait for him!* — **Al-Jinn (72:9)**
 <!-- quran-verse-end -->
 
 ---
