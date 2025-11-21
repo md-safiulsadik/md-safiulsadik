@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But,] verily for the God-conscious there is supreme fulfilment in store:* — **An-Naba (78:31)**
+> 📖 *Say: “Is it, then, something other than God that you bid me to worship, O you who are unaware [of right and wrong]?”* — **Az-Zumar (39:64)**
 <!-- quran-verse-end -->
 
 ---
