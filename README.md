@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then he frowns and glares,* — **Al-Muddaththir (74:22)**
+> 📖 *Nay, pay thou no heed to him, but prostrate thyself [before God] and draw close [unto Him]!* — **Al-Alaq (96:19)**
 <!-- quran-verse-end -->
 
 ---
