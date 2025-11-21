@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, He let loose upon them great swarms of flying creatures* — **Al-Fil (105:3)**
+> 📖 *and then he frowns and glares,* — **Al-Muddaththir (74:22)**
 <!-- quran-verse-end -->
 
 ---
