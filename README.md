@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, pay thou no heed to him, but prostrate thyself [before God] and draw close [unto Him]!* — **Al-Alaq (96:19)**
+> 📖 *And, indeed, [O Muhammad, even] before thy time have [God’s] apostles been derided - but those who scoffed at them were [in the end] overwhelmed by the very thing which they had been wont to deride.* — **Al-Anbiyaa (21:41)**
 <!-- quran-verse-end -->
 
 ---
