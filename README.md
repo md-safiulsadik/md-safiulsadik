@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, indeed, [O Muhammad, even] before thy time have [God’s] apostles been derided - but those who scoffed at them were [in the end] overwhelmed by the very thing which they had been wont to deride.* — **Al-Anbiyaa (21:41)**
+> 📖 *“O my people! Yours is the dominion today, [and] most eminent are you on earth: but who will rescue us from God’s punishment, once it befalls us?” Said Pharaoh: “I but want to make you see what I see myself; and I would never make you follow any path but that of rectitude!”* — **Ghafir (40:29)**
 <!-- quran-verse-end -->
 
 ---
