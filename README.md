@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Ta. Sin. Mim.* — **Al-Qasas (28:1)**
+> 📖 *and neither do you worship that which I worship!* — **Al-Kaafiroon (109:3)**
 <!-- quran-verse-end -->
 
 ---
