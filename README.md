@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *from changing the nature of your existence and bringing you into being [anew] in a manner [as yet] unknown to you.* — **Al-Waaqia (56:61)**
+> 📖 *[And withal,] the eye did not waver, nor yet did it stray:* — **An-Najm (53:17)**
 <!-- quran-verse-end -->
 
 ---
