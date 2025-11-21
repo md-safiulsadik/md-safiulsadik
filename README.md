@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And who could be more wicked than they who attribute their own lying inventions to God or give the lie to His messages? Whatever has been decreed to be their lot [in life] will be theirs -till there shall come _ unto them Our messengers to cause them to die, [and] shall say, "Where, now, are those beings whom you were wont to invoke beside God?" And [those sinners] will reply, "They have forsaken us!" -and [thus] they will bear witness against themselves that they had been denying the truth.* — **Al-A'raaf (7:37)**
+> 📖 *for, if they had the patience [to wait] until thou come forth to them [of thine own accord], it would be for their own good. Still, God is much forgiving, a dispenser of grace.* — **Al-Hujuraat (49:5)**
 <!-- quran-verse-end -->
 
 ---
