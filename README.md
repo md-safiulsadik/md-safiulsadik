@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but [man] has never yet fulfilled what He has enjoined upon him!* — **Abasa (80:23)**
+> 📖 *Thus, indeed, most of the people of old went astray before them,* — **As-Saaffaat (37:71)**
 <!-- quran-verse-end -->
 
 ---
