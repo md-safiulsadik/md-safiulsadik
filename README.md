@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And who could be more wicked than they who attribute their own lying inventions to God or give the lie to His messages? Verily, those who are lost in sin will never attain to a happy state -* — **Yunus (10:17)**
+> 📖 *And what could make thee conceive what it is that comes in the night?* — **At-Taariq (86:2)**
 <!-- quran-verse-end -->
 
 ---
