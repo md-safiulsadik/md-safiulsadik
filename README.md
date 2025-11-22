@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *truly did he see some of the most profound of his Sustainer’s symbols.* — **An-Najm (53:18)**
+> 📖 *"Now place thy hand within thy armpit: it will come forth [shining] white, without blemish, as another sign [of Our grace],* — **Taa-Haa (20:22)**
 <!-- quran-verse-end -->
 
 ---
