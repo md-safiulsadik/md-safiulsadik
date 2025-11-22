@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
+> 📖 *and will reward them for all their patience in adversity with a garden [of bliss] and with [garments of] silk.* — **Al-Insaan (76:12)**
 <!-- quran-verse-end -->
 
 ---
