@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And from the wind-driven clouds We send down waters pouring in abundance,* — **An-Naba (78:14)**
+> 📖 *And yet thou didst commit that [heinous] deed of thine, and [hast thus shown that] thou art one of the ingrate!”* — **Ash-Shu'araa (26:19)**
 <!-- quran-verse-end -->
 
 ---
