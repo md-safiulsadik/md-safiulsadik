@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"Now place thy hand within thy armpit: it will come forth [shining] white, without blemish, as another sign [of Our grace],* — **Taa-Haa (20:22)**
+> 📖 *for, suffering in hell awaits all who are [thus] bent on blaspheming against their Sustainer: and how vile a journey's end!* — **Al-Mulk (67:6)**
 <!-- quran-verse-end -->
 
 ---
