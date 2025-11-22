@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Have you [really] given thought to what it is that you invoke instead of God? Show me what these [beings or forces] have created anywhere on earth! Or had they, perchance, a share in [creating] the heavens? [If so,] bring me any divine writ pre­ceding this one, or any [other] vestige of knowledge - if what you claim is true!”* — **Al-Ahqaf (46:4)**
+> 📖 *and divest him of all that he is [now] speaking of: for [on Judgment Day] he will appear before Us in a lonely state.* — **Maryam (19:80)**
 <!-- quran-verse-end -->
 
 ---
