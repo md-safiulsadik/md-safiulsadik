@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and will reward them for all their patience in adversity with a garden [of bliss] and with [garments of] silk.* — **Al-Insaan (76:12)**
+> 📖 *he has been created out of a seminal fluid* — **At-Taariq (86:6)**
 <!-- quran-verse-end -->
 
 ---
