@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *secure in their winter and summer journeys,* — **Quraish (106:2)**
+> 📖 *truly did he see some of the most profound of his Sustainer’s symbols.* — **An-Najm (53:18)**
 <!-- quran-verse-end -->
 
 ---
