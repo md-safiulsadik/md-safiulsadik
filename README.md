@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, suffering in hell awaits all who are [thus] bent on blaspheming against their Sustainer: and how vile a journey's end!* — **Al-Mulk (67:6)**
+> 📖 *WOE unto every slanderer, fault-finder!* — **Al-Humaza (104:1)**
 <!-- quran-verse-end -->
 
 ---
