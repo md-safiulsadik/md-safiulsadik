@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and divest him of all that he is [now] speaking of: for [on Judgment Day] he will appear before Us in a lonely state.* — **Maryam (19:80)**
+> 📖 *And yet, they who are bent on denying the truth persist in giving it the lie:* — **Al-Burooj (85:19)**
 <!-- quran-verse-end -->
 
 ---
