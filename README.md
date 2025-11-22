@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *he has been created out of a seminal fluid* — **At-Taariq (86:6)**
+> 📖 *And once again: Nay, but in time they will come to understand!* — **An-Naba (78:5)**
 <!-- quran-verse-end -->
 
 ---
