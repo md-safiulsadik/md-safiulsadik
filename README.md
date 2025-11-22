@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and casts forth whatever is in it, and becomes utterly void,* — **Al-Inshiqaaq (84:4)**
+> 📖 *Hence, warn them of that Day which draws ever nearer, when the hearts will chokingly come up to the throats: no loving friend will the evildoers have, nor any intercessor who would be heeded:* — **Ghafir (40:18)**
 <!-- quran-verse-end -->
 
 ---
