@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet, they who are bent on denying the truth persist in giving it the lie:* — **Al-Burooj (85:19)**
+> 📖 *and casts forth whatever is in it, and becomes utterly void,* — **Al-Inshiqaaq (84:4)**
 <!-- quran-verse-end -->
 
 ---
