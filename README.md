@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what it is that comes in the night?* — **At-Taariq (86:2)**
+> 📖 *Nay, but [man] has never yet fulfilled what He has enjoined upon him!* — **Abasa (80:23)**
 <!-- quran-verse-end -->
 
 ---
