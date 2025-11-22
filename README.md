@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WOE unto every slanderer, fault-finder!* — **Al-Humaza (104:1)**
+> 📖 *His is the dominion over the heavens and the earth; He grants life and deals death; and He has the power to will anything.* — **Al-Hadid (57:2)**
 <!-- quran-verse-end -->
 
 ---
