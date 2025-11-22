@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet thou didst commit that [heinous] deed of thine, and [hast thus shown that] thou art one of the ingrate!”* — **Ash-Shu'araa (26:19)**
+> 📖 *secure in their winter and summer journeys,* — **Quraish (106:2)**
 <!-- quran-verse-end -->
 
 ---
