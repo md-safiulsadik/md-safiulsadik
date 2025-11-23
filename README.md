@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And Lot, [too, was inspired by Us] when he said unto his people: “Verily, you commit abominations such as none in all the world has ever committed before you!* — **Al-Ankaboot (29:28)**
+> 📖 *extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.* — **An-Nasr (110:3)**
 <!-- quran-verse-end -->
 
 ---
