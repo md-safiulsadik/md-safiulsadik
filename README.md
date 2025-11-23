@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and leave the sea becalmed [between thee and Pharaoh’s men]: for, verily, they are a host destined to be drowned!”* — **Ad-Dukhaan (44:24)**
+> 📖 *For on that Day neither man nor invisible being will be asked about his sins.* — **Ar-Rahmaan (55:39)**
 <!-- quran-verse-end -->
 
 ---
