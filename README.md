@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, verily, this [Qur’an] is a reminder to all the God-conscious!* — **Al-Haaqqa (69:48)**
+> 📖 *and when heaven is laid bare,* — **At-Takwir (81:11)**
 <!-- quran-verse-end -->
 
 ---
