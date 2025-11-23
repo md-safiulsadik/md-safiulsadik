@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *it is they who are destined for paradise, therein to abide as a reward for all that they have done.* — **Al-Ahqaf (46:14)**
+> 📖 *And Lot, [too, was inspired by Us] when he said unto his people: “Verily, you commit abominations such as none in all the world has ever committed before you!* — **Al-Ankaboot (29:28)**
 <!-- quran-verse-end -->
 
 ---
