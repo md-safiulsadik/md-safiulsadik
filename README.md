@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who has given them food against hunger, and made them safe from danger.* — **Quraish (106:4)**
+> 📖 *and leave the sea becalmed [between thee and Pharaoh’s men]: for, verily, they are a host destined to be drowned!”* — **Ad-Dukhaan (44:24)**
 <!-- quran-verse-end -->
 
 ---
