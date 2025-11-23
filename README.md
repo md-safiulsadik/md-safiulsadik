@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *a servant [of God] from praying?* — **Al-Alaq (96:10)**
+> 📖 *[and] there will be thrones [of happiness] raised high,* — **Al-Ghaashiya (88:13)**
 <!-- quran-verse-end -->
 
 ---
