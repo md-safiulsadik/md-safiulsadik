@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *His is the dominion over the heavens and the earth; He grants life and deals death; and He has the power to will anything.* — **Al-Hadid (57:2)**
+> 📖 *And, verily, this [Qur’an] is a reminder to all the God-conscious!* — **Al-Haaqqa (69:48)**
 <!-- quran-verse-end -->
 
 ---
