@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that you might walk thereon on spacious paths.’"* — **Nooh (71:20)**
+> 📖 *a servant [of God] from praying?* — **Al-Alaq (96:10)**
 <!-- quran-verse-end -->
 
 ---
