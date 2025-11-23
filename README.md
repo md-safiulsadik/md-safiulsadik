@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.* — **An-Nasr (110:3)**
+> 📖 *and so God has graced us with His favour, and has warded off from us all suffering through the scorching winds [of frustration].* — **At-Tur (52:27)**
 <!-- quran-verse-end -->
 
 ---
