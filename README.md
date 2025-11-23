@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and] there will be thrones [of happiness] raised high,* — **Al-Ghaashiya (88:13)**
+> 📖 *it is they who are destined for paradise, therein to abide as a reward for all that they have done.* — **Al-Ahqaf (46:14)**
 <!-- quran-verse-end -->
 
 ---
