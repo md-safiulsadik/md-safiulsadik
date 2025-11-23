@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thus, too, [O Muhammad,] have We revealed unto thee a life-giving message, [coming] at Our behest. [Ere this message came unto thee,] thou didst not know what revelation is, nor what faith [implies]: but [now] We have caused this [message] to be a light, whereby We guide whom We will of Our ser­vants: and, verily, [on the strength thereof] thou, too, shalt guide [men] onto the straight way –* — **Ash-Shura (42:52)**
+> 📖 *"and from the evil of all human beings bent on occult endeavours,* — **Al-Falaq (113:4)**
 <!-- quran-verse-end -->
 
 ---
