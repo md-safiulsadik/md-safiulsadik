@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet [thus it is] that whenever a servant of God stands up in prayer to Him, they [who are bent on denying the truth] would gladly overwhelm him with their crowds.* — **Al-Jinn (72:19)**
+> 📖 *Yet whenever We sent forth any apostle or prophet before thee, and he was hoping [that his warnings would be heeded], Satan would cast an asper­sion on his innermost aims: but God renders null and void whatever aspersion Satan may cast; and God makes His messages clear in and by themselves for God is all-knowing, wise.* — **Al-Hajj (22:52)**
 <!-- quran-verse-end -->
 
 ---
