@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *or is concerned with God-consciousness?* — **Al-Alaq (96:12)**
+> 📖 *[But] We know best what they will be saying when the most perceptive of them shall say, "You have spent [there] but one day!"* — **Taa-Haa (20:104)**
 <!-- quran-verse-end -->
 
 ---
