@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But] We know best what they will be saying when the most perceptive of them shall say, "You have spent [there] but one day!"* — **Taa-Haa (20:104)**
+> 📖 *What! Upon him alone from among all of us should a [divine] reminder have been bestowed from on high?” Nay, but it is My Own reminder that they distrust! Nay, they have not yet tasted the suffering which I do impose!* — **Saad (38:8)**
 <!-- quran-verse-end -->
 
 ---
