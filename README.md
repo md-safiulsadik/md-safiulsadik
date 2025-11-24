@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then We utterly destroyed the others,* — **Ash-Shu'araa (26:172)**
+> 📖 *Their reward [awaits them] with God: gardens of perpetual bliss, through which running waters flow, therein to abide beyond the count of time; well-pleased is God with them, and well-pleased are they with Him: all this awaits him who of his Sustainer stands in awe!.* — **Al-Bayyina (98:8)**
 <!-- quran-verse-end -->
 
 ---
