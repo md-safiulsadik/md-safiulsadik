@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THEY DESTROY [but] themselves, they who would ready a pit* — **Al-Burooj (85:4)**
+> 📖 *and then We utterly destroyed the others,* — **Ash-Shu'araa (26:172)**
 <!-- quran-verse-end -->
 
 ---
