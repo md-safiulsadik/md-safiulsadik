@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *this, because [they profess that] they have attained to faith, whereas [inwardly] they deny the truth - and so, a seal has been set on their hearts so that they can no longer understand [what is true and what false].* — **Al-Munaafiqoon (63:3)**
+> 📖 *When those youths took refuge in the cave, they prayed: "O our Sustainer! Bestow on us grace from Thyself, and endow us, whatever our [outward] condition, with consciousness of what is right!"* — **Al-Kahf (18:10)**
 <!-- quran-verse-end -->
 
 ---
