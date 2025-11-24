@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *IT IS NOT [conceivable] that such as are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God should ever be abandoned [by Him] ere there comes unto them the [full] evidence of the truth:* — **Al-Bayyina (98:1)**
+> 📖 *"O our Sustainer! Behold, we heard a voice call [us] unto faith, `Believe in your Sustainer!' - and so we came to believe. O our Sustainer! Forgive us, then, our sins, and efface our bad deeds; and let us die the death of the truly virtuous!* — **Aal-i-Imraan (3:193)**
 <!-- quran-verse-end -->
 
 ---
