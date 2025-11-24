@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And in the course of time We brought out [of Lot ’s city] such [few] believers as were there:* — **Adh-Dhaariyat (51:35)**
+> 📖 *THEY DESTROY [but] themselves, they who would ready a pit* — **Al-Burooj (85:4)**
 <!-- quran-verse-end -->
 
 ---
