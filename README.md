@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, [bear in mind] the Day on which He will say, "Call [now] unto those beings whom you imagined to have a share in My divinity!" - whereupon they will invoke them, but those [beings] will not respond to them: for We shall have placed between them an unbridgeable gulf.* — **Al-Kahf (18:52)**
+> 📖 *IT IS NOT [conceivable] that such as are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God should ever be abandoned [by Him] ere there comes unto them the [full] evidence of the truth:* — **Al-Bayyina (98:1)**
 <!-- quran-verse-end -->
 
 ---
