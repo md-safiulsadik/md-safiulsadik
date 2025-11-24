@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O You who have attained to faith! Follow not Satan’s footsteps: for he who follows Satan’s foot­steps [will find that], behold, he enjoins but deeds of abomination and all that runs counter to reason. And were it not for God’s favour upon you and His grace, not one of you would ever have remained pure. For [thus it is:] God who causes whomever He wills to grow in purity: for God is all-hearing, all-­knowing.* — **An-Noor (24:21)**
+> 📖 *he truly beheld [the angel - beheld] him on the clear horizon;* — **At-Takwir (81:23)**
 <!-- quran-verse-end -->
 
 ---
