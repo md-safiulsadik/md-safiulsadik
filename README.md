@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, those who turn their backs [on this mes­sage] after guidance has been vouchsafed to them, [do it because] Satan has embellished their fancies and filled them with false hopes:* — **Muhammad (47:25)**
+> 📖 *And thus it is: whenever We sent, before thy time, a warner to any community, those of its people who had lost themselves entirely in the pursuit of pleasures would always say, “Behold, we found our forefathers agreed on what to believe - and, verily, it is but in their footsteps that we follow!”* — **Az-Zukhruf (43:23)**
 <!-- quran-verse-end -->
 
 ---
