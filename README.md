@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"O our Sustainer! Behold, we heard a voice call [us] unto faith, `Believe in your Sustainer!' - and so we came to believe. O our Sustainer! Forgive us, then, our sins, and efface our bad deeds; and let us die the death of the truly virtuous!* — **Aal-i-Imraan (3:193)**
+> 📖 *VERILY, those who turn their backs [on this mes­sage] after guidance has been vouchsafed to them, [do it because] Satan has embellished their fancies and filled them with false hopes:* — **Muhammad (47:25)**
 <!-- quran-verse-end -->
 
 ---
