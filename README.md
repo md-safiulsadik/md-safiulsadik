@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *What! Upon him alone from among all of us should a [divine] reminder have been bestowed from on high?” Nay, but it is My Own reminder that they distrust! Nay, they have not yet tasted the suffering which I do impose!* — **Saad (38:8)**
+> 📖 *[derived from] a source [to be found] therein, whose name is "Seek Thy Way".* — **Al-Insaan (76:18)**
 <!-- quran-verse-end -->
 
 ---
