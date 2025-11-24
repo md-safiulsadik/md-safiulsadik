@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *he truly beheld [the angel - beheld] him on the clear horizon;* — **At-Takwir (81:23)**
+> 📖 *And in the course of time We brought out [of Lot ’s city] such [few] believers as were there:* — **Adh-Dhaariyat (51:35)**
 <!-- quran-verse-end -->
 
 ---
