@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, [O men,] you aim at most divergent ends!* — **Al-Lail (92:4)**
+> 📖 *or is concerned with God-consciousness?* — **Al-Alaq (96:12)**
 <!-- quran-verse-end -->
 
 ---
