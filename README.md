@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Tell My servants that I - I alone - am truly forgiving, a true dispenser of grace;* — **Al-Hijr (15:49)**
+> 📖 *and of thy Sustainer's blessings shalt thou [ever] speak.* — **Ad-Dhuhaa (93:11)**
 <!-- quran-verse-end -->
 
 ---
