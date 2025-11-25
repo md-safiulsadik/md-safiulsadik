@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[In the life to come] he shall have to endure a fire fiercely glowing;* — **Al-Masad (111:3)**
+> 📖 *Tell My servants that I - I alone - am truly forgiving, a true dispenser of grace;* — **Al-Hijr (15:49)**
 <!-- quran-verse-end -->
 
 ---
