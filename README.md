@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and of thy Sustainer's blessings shalt thou [ever] speak.* — **Ad-Dhuhaa (93:11)**
+> 📖 *WE SHALL teach thee, and thou wilt not forget [aught of what thou art taught],* — **Al-A'laa (87:6)**
 <!-- quran-verse-end -->
 
 ---
