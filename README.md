@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and brought about great corruption therein:* — **Al-Fajr (89:12)**
+> 📖 *And thus it is: if We let him taste ease and plenty after hardship has visited him, he is sure to say, "Gone is all affliction from me!"-for, behold, he is given to vain exultation, and glories only in himself.* — **Hud (11:10)**
 <!-- quran-verse-end -->
 
 ---
