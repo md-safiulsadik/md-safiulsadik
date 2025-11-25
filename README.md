@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *When those youths took refuge in the cave, they prayed: "O our Sustainer! Bestow on us grace from Thyself, and endow us, whatever our [outward] condition, with consciousness of what is right!"* — **Al-Kahf (18:10)**
+> 📖 *Yet [it has always happened] that certain kinds of humans would seek refuge with certain kinds of [such] invisible forces: but these only increased their confusion –* — **Al-Jinn (72:6)**
 <!-- quran-verse-end -->
 
 ---
