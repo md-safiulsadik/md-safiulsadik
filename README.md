@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thus it is: if We let him taste ease and plenty after hardship has visited him, he is sure to say, "Gone is all affliction from me!"-for, behold, he is given to vain exultation, and glories only in himself.* — **Hud (11:10)**
+> 📖 *And We shall let them be followed by those of later times:* — **Al-Mursalaat (77:17)**
 <!-- quran-verse-end -->
 
 ---
