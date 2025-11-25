@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[To both kinds of your enemies, O believers, is bound to happen] the like of [what happened to] those who, a short while before them, had to taste the evil that came from their own doings, with [yet more] grievous suffering awaiting them [in the life to come]:* — **Al-Hashr (59:15)**
+> 📖 *Said a bold one of the invisible beings [subject to Solomon]: “I shall bring it to thee ere thou rise from thy council-seat - for, behold, I am powerful enough to do it, [and] worthy of trust!”* — **An-Naml (27:39)**
 <!-- quran-verse-end -->
 
 ---
