@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And how could we not place our trust in God, seeing that it is He who has shown us the path which we are to follow? "Hence, we shall certainly bear with patience whatever hurt you may do us: for, all who have trust [in His existence] must place their trust in God [alone]!"* — **Ibrahim (14:12)**
+> 📖 *AND [even] before thy time, [O Muhammad,] We never sent [as Our apostles] any but [mortal] men, whom We inspired: and if you have not [yet] realized this, ask the followers of [earlier] revelation,"* — **An-Nahl (16:43)**
 <!-- quran-verse-end -->
 
 ---
