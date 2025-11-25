@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but this [divine writ] consists of messages clear to the hearts of all who are gifted with [innate] knowledge and none could knowingly reject Our messages unless it be such as would do wrong [to themselves].* — **Al-Ankaboot (29:49)**
+> 📖 *And what could make thee conceive what it is, that Night of Destiny?* — **Al-Qadr (97:2)**
 <!-- quran-verse-end -->
 
 ---
