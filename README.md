@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [even] before thy time, [O Muhammad,] We never sent [as Our apostles] any but [mortal] men, whom We inspired: and if you have not [yet] realized this, ask the followers of [earlier] revelation,"* — **An-Nahl (16:43)**
+> 📖 *and even demanded that he give up his guests [to them]: whereupon We deprived them of their sight [and thus told them, as it were]: “Taste, then, the suffering which I inflict when My warnings are disregarded!”* — **Al-Qamar (54:37)**
 <!-- quran-verse-end -->
 
 ---
