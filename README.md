@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And they were pursued in this world by [God's] rejection, and [shall finally be overtaken by it] on the Day of Resurrection. Oh, verily, [the tribe of] `Ad denied their Sustainer! Oh, away with the `Ad, the people of Hud!* — **Hud (11:60)**
+> 📖 *Nay, but this [divine writ] consists of messages clear to the hearts of all who are gifted with [innate] knowledge and none could knowingly reject Our messages unless it be such as would do wrong [to themselves].* — **Al-Ankaboot (29:49)**
 <!-- quran-verse-end -->
 
 ---
