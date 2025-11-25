@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And We shall let them be followed by those of later times:* — **Al-Mursalaat (77:17)**
+> 📖 *and the night as it darkly falls,* — **At-Takwir (81:17)**
 <!-- quran-verse-end -->
 
 ---
