@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WE SHALL teach thee, and thou wilt not forget [aught of what thou art taught],* — **Al-A'laa (87:6)**
+> 📖 *And they were pursued in this world by [God's] rejection, and [shall finally be overtaken by it] on the Day of Resurrection. Oh, verily, [the tribe of] `Ad denied their Sustainer! Oh, away with the `Ad, the people of Hud!* — **Hud (11:60)**
 <!-- quran-verse-end -->
 
 ---
