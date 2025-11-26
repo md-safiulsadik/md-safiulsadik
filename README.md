@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[then,] O man - thou [that] hast, verily, been toiling towards thy Sustainer in painful toil - then shalt thou meet Him!* — **Al-Inshiqaaq (84:6)**
+> 📖 *and [upon] Ishmael, and Elisha, and Jonah, and Lot. And every one of them did We favour above other people;* — **Al-An'aam (6:86)**
 <!-- quran-verse-end -->
 
 ---
