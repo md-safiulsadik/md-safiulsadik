@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *At that, a man came running from the farthest end of the city, [and] exclaimed: “O my people! Follow these message-bearers!* — **Yaseen (36:20)**
+> 📖 *Said he: “Knowledge [of when it is to befall you] rests with God alone: I but convey unto you the message with which I have been entrusted; but I see that you are people ignorant [of right and wrong]!”* — **Al-Ahqaf (46:23)**
 <!-- quran-verse-end -->
 
 ---
