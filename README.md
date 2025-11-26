@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He is the First and the Last, and the Outward as well as the Inward: and He has full knowledge of everything.* — **Al-Hadid (57:3)**
+> 📖 *On that [night] was made clear, in wisdom, the distinction between all things [good and evil]* — **Ad-Dukhaan (44:4)**
 <!-- quran-verse-end -->
 
 ---
