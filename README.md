@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet [above all else,] ask any of Our apostles whom We sent forth before thy time whether We have ever allowed that deities other than the Most Gracious be worshipped!* — **Az-Zukhruf (43:45)**
+> 📖 *NOW WHEN Jesus came [to his people] with all evidence of the truth, he said: “I have now come unto you with wisdom, and to make clear Unto you some of that on which you are at variance: hence, be conscious of God, and pay heed unto me.* — **Az-Zukhruf (43:63)**
 <!-- quran-verse-end -->
 
 ---
