@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Why do you say one thing and do another?* — **As-Saff (61:2)**
+> 📖 *"from the evil of aught that He has created,* — **Al-Falaq (113:2)**
 <!-- quran-verse-end -->
 
 ---
