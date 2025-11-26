@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [upon] Ishmael, and Elisha, and Jonah, and Lot. And every one of them did We favour above other people;* — **Al-An'aam (6:86)**
+> 📖 *At that, a man came running from the farthest end of the city, [and] exclaimed: “O my people! Follow these message-bearers!* — **Yaseen (36:20)**
 <!-- quran-verse-end -->
 
 ---
