@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that [night] was made clear, in wisdom, the distinction between all things [good and evil]* — **Ad-Dukhaan (44:4)**
+> 📖 *ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?* — **Al-Fil (105:1)**
 <!-- quran-verse-end -->
 
 ---
