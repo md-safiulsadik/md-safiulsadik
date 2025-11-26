@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But you cannot will it unless God wills [to show you that way]: for, behold, God is indeed all-seeing, wise.* — **Al-Insaan (76:30)**
+> 📖 *But [remember that an attempt at] requiting evil may, too, become an evil: hence, whoever par­dons [his foe] and makes peace, his reward rests with God - for, verily, He does not love evildoers.* — **Ash-Shura (42:40)**
 <!-- quran-verse-end -->
 
 ---
