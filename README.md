@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?* — **Al-Fil (105:1)**
+> 📖 *For, they who have attained to faith in God and His Apostle - it is they, they who uphold the truth, and they who bear witness [thereto] before God: [and so] they shall have their reward and their light! But as for those who are bent on denying the truth and on giving the lie to Our messages - it is they who are destined for the blazing fire!* — **Al-Hadid (57:19)**
 <!-- quran-verse-end -->
 
 ---
