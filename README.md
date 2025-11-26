@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And at the sky, how it is raised aloft?* — **Al-Ghaashiya (88:18)**
+> 📖 *[then,] O man - thou [that] hast, verily, been toiling towards thy Sustainer in painful toil - then shalt thou meet Him!* — **Al-Inshiqaaq (84:6)**
 <!-- quran-verse-end -->
 
 ---
