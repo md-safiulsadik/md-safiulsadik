@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"God the Eternal, the Uncaused Cause of All Being.* — **Al-Ikhlaas (112:2)**
+> 📖 *And if they turn away [from this truth] - behold, God has full knowledge of the spreaders of corruption.* — **Aal-i-Imraan (3:63)**
 <!-- quran-verse-end -->
 
 ---
