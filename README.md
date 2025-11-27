@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Does he, then, not know that God sees [all]?* — **Al-Alaq (96:14)**
+> 📖 *and be told: "This is the [very thing] to which you were wont to give the lie!"* — **Al-Mutaffifin (83:17)**
 <!-- quran-verse-end -->
 
 ---
