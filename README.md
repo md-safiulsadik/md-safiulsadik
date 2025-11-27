@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who keep together what God has bidden to be joined, and stand in awe of their Sustainer and fear the most evil reckoning [which awaits such as do not respond to Him];* — **Ar-Ra'd (13:21)**
+> 📖 *and so they say, [as it were:] “Our hearts are veiled from whatever thou callest us to, [O Muhammad,] and in our ears is deafness, and between us and thee is a barrier. Do, then, [whatever thou wilt, whereas,] behold, we shall do [as we have always done]!”* — **Fussilat (41:5)**
 <!-- quran-verse-end -->
 
 ---
