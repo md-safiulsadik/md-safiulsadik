@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, they unto whom We have vouchsafed this revelation rejoice at all that has been bestowed upon thee [O Prophet] from on high; but among the followers of other creeds there are such as deny the validity of some of it. Say [unto them, O Prophet]: "I have only been bidden to worship God, and not to ascribe divine. powers to aught beside Him: unto Him do I call [all mankind], and He is my goal!"* — **Ar-Ra'd (13:36)**
+> 📖 *and what will his wealth avail him when he goes down [to his grave]?* — **Al-Lail (92:11)**
 <!-- quran-verse-end -->
 
 ---
