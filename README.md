@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But [remember that an attempt at] requiting evil may, too, become an evil: hence, whoever par­dons [his foe] and makes peace, his reward rests with God - for, verily, He does not love evildoers.* — **Ash-Shura (42:40)**
+> 📖 *And His alone is all majesty in the heavens and on earth; and He alone is almighty, truly wise!* — **Al-Jaathiya (45:37)**
 <!-- quran-verse-end -->
 
 ---
