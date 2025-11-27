@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and be told: "This is the [very thing] to which you were wont to give the lie!"* — **Al-Mutaffifin (83:17)**
+> 📖 *God’s alone is the dominion over the heavens and the earth. He creates whatever He wills: He bestows the gift of female offspring on whomever He wills, and the gift of male offspring on whomever He wills;* — **Ash-Shura (42:49)**
 <!-- quran-verse-end -->
 
 ---
