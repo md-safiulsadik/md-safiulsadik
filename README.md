@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and so they say, [as it were:] “Our hearts are veiled from whatever thou callest us to, [O Muhammad,] and in our ears is deafness, and between us and thee is a barrier. Do, then, [whatever thou wilt, whereas,] behold, we shall do [as we have always done]!”* — **Fussilat (41:5)**
+> 📖 *and who give food - however great be their own want of it - unto the needy, and the orphan, and the captive,* — **Al-Insaan (76:8)**
 <!-- quran-verse-end -->
 
 ---
