@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God’s alone is the dominion over the heavens and the earth. He creates whatever He wills: He bestows the gift of female offspring on whomever He wills, and the gift of male offspring on whomever He wills;* — **Ash-Shura (42:49)**
+> 📖 *Said He: "O Iblis! What is thy reason for not being among those who have prostrated themselves?"* — **Al-Hijr (15:32)**
 <!-- quran-verse-end -->
 
 ---
