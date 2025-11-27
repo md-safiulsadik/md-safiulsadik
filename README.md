@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said He: "O Iblis! What is thy reason for not being among those who have prostrated themselves?"* — **Al-Hijr (15:32)**
+> 📖 *Hence, they unto whom We have vouchsafed this revelation rejoice at all that has been bestowed upon thee [O Prophet] from on high; but among the followers of other creeds there are such as deny the validity of some of it. Say [unto them, O Prophet]: "I have only been bidden to worship God, and not to ascribe divine. powers to aught beside Him: unto Him do I call [all mankind], and He is my goal!"* — **Ar-Ra'd (13:36)**
 <!-- quran-verse-end -->
 
 ---
