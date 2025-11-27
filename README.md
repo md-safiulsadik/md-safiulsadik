@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[It will be] a Day when no human being shall be of the least avail to another human being: for on that Day [it will become manifest that] all sovereignty is God's alone.* — **Al-Infitaar (82:19)**
+> 📖 *[But] it may be that our Sustainer will grant us something better instead: for, verily, unto our Sustainer do we turn with hope!"* — **Al-Qalam (68:32)**
 <!-- quran-verse-end -->
 
 ---
