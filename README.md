@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and what will his wealth avail him when he goes down [to his grave]?* — **Al-Lail (92:11)**
+> 📖 *AND SO, when the piercing call [of resurrection] is heard* — **Abasa (80:33)**
 <!-- quran-verse-end -->
 
 ---
