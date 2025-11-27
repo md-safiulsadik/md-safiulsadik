@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereupon causes it to decay into rust-brown stubble!* — **Al-A'laa (87:5)**
+> 📖 *[It will be] a Day when no human being shall be of the least avail to another human being: for on that Day [it will become manifest that] all sovereignty is God's alone.* — **Al-Infitaar (82:19)**
 <!-- quran-verse-end -->
 
 ---
