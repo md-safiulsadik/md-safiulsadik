@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and has caused its waters to come out of it, and its pastures,* — **An-Naazi'aat (79:31)**
+> 📖 *And [one day] there were assembled before Solomon his hosts of invisible beings, and of men, and of birds; and then they were led forth in orderly ranks,* — **An-Naml (27:17)**
 <!-- quran-verse-end -->
 
 ---
