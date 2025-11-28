@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:49)**
+> 📖 *OH, the sudden calamity!* — **Al-Qaari'a (101:1)**
 <!-- quran-verse-end -->
 
 ---
