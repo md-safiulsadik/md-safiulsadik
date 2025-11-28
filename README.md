@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thinking that his wealth will make him live forever!* — **Al-Humaza (104:3)**
+> 📖 *They but destroy themselves, they who are given to guessing at what they cannot ascertain –* — **Adh-Dhaariyat (51:10)**
 <!-- quran-verse-end -->
 
 ---
