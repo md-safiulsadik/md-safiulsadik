@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but when they have to measure or weigh whatever they owe to others, give less than what is due!* — **Al-Mutaffifin (83:3)**
+> 📖 *thinking that his wealth will make him live forever!* — **Al-Humaza (104:3)**
 <!-- quran-verse-end -->
 
 ---
