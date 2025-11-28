@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But nay, nay, [O men, consider all that you do and fail to do:] you are not generous towards the orphan,* — **Al-Fajr (89:17)**
+> 📖 *And so, when they embark on a ship [and find themselves in danger], they call unto God, [at that moment] sincere in their faith in Him alone; but as soon as He has brought them safe ashore, they [begin to] ascribe to imaginary powers a share in His divinity:* — **Al-Ankaboot (29:65)**
 <!-- quran-verse-end -->
 
 ---
