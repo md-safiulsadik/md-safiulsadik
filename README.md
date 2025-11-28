@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And were it not for God’s favour upon you, [O men,] and His grace in this world and in the life to come, awesome suffering would indeed have afflicted you in result of all [the calumny] in which you indulge* — **An-Noor (24:14)**
+> 📖 *Have We not given him two eyes,* — **Al-Balad (90:8)**
 <!-- quran-verse-end -->
 
 ---
