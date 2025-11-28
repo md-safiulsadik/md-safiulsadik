@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, he who shall have done an atom's weight of good, shall behold it;* — **Az-Zalzala (99:7)**
+> 📖 *but when they have to measure or weigh whatever they owe to others, give less than what is due!* — **Al-Mutaffifin (83:3)**
 <!-- quran-verse-end -->
 
 ---
