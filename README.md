@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND SO, when the piercing call [of resurrection] is heard* — **Abasa (80:33)**
+> 📖 *And were it not for God’s favour upon you, [O men,] and His grace in this world and in the life to come, awesome suffering would indeed have afflicted you in result of all [the calumny] in which you indulge* — **An-Noor (24:14)**
 <!-- quran-verse-end -->
 
 ---
