@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let them, therefore, worship the Sustainer of this Temple;* — **Quraish (106:3)**
+> 📖 *Must you really approach men with lust instead of women? Nay, but you are people without any awareness (of right and wrong)!”* — **An-Naml (27:55)**
 <!-- quran-verse-end -->
 
 ---
