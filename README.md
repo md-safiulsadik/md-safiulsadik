@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Must you really approach men with lust instead of women? Nay, but you are people without any awareness (of right and wrong)!”* — **An-Naml (27:55)**
+> 📖 *toiling [under burdens of sin], worn out [by fear],* — **Al-Ghaashiya (88:3)**
 <!-- quran-verse-end -->
 
 ---
