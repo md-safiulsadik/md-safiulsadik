@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They but destroy themselves, they who are given to guessing at what they cannot ascertain –* — **Adh-Dhaariyat (51:10)**
+> 📖 *behold, we stand in awe of our Sustainer's judgment on a distressful, fateful Day!"* — **Al-Insaan (76:10)**
 <!-- quran-verse-end -->
 
 ---
