@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *behold, we stand in awe of our Sustainer's judgment on a distressful, fateful Day!"* — **Al-Insaan (76:10)**
+> 📖 *But nay, nay, [O men, consider all that you do and fail to do:] you are not generous towards the orphan,* — **Al-Fajr (89:17)**
 <!-- quran-verse-end -->
 
 ---
