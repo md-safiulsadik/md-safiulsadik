@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[To both kinds of your enemies, O believers, is bound to happen] the like of [what happened to] those who, a short while before them, had to taste the evil that came from their own doings, with [yet more] grievous suffering awaiting them [in the life to come]:* — **Al-Hashr (59:15)**
+> 📖 *And [every time,] as soon as they began to feel Our punishing might, lo! they tried to flee from it* — **Al-Anbiyaa (21:12)**
 <!-- quran-verse-end -->
 
 ---
