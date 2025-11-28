@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *OH, the sudden calamity!* — **Al-Qaari'a (101:1)**
+> 📖 *Say: "I do not know whether that [doom] of which you were forewarned is near, or whether my Sustainer has set for it a distant term."* — **Al-Jinn (72:25)**
 <!-- quran-verse-end -->
 
 ---
