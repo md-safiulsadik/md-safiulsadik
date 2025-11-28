@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [one day] there were assembled before Solomon his hosts of invisible beings, and of men, and of birds; and then they were led forth in orderly ranks,* — **An-Naml (27:17)**
+> 📖 *The Most Gracious, the Dispenser of Grace,* — **Al-Faatiha (1:3)**
 <!-- quran-verse-end -->
 
 ---
