@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *running in con­fusion towards the Summoning Voice; [and] those who [now] deny the truth will exclaim, “Calamitous is this Day!”* — **Al-Qamar (54:8)**
+> 📖 *and has caused its waters to come out of it, and its pastures,* — **An-Naazi'aat (79:31)**
 <!-- quran-verse-end -->
 
 ---
