@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *toiling [under burdens of sin], worn out [by fear],* — **Al-Ghaashiya (88:3)**
+> 📖 *running in con­fusion towards the Summoning Voice; [and] those who [now] deny the truth will exclaim, “Calamitous is this Day!”* — **Al-Qamar (54:8)**
 <!-- quran-verse-end -->
 
 ---
