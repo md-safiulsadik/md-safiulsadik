@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, when they embark on a ship [and find themselves in danger], they call unto God, [at that moment] sincere in their faith in Him alone; but as soon as He has brought them safe ashore, they [begin to] ascribe to imaginary powers a share in His divinity:* — **Al-Ankaboot (29:65)**
+> 📖 *And yet, [O believers,] it was not you who slew the enemy, but it was God who slew them; and it was not thou who cast [terror into them, O Prophet], when thou didst cast it, but it was God who cast it: and [He did all this] in order that He might test the believers by a goodly test of His Own or daining. Verily, God is all-hearing, all-knowing!* — **Al-Anfaal (8:17)**
 <!-- quran-verse-end -->
 
 ---
