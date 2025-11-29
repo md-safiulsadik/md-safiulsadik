@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAVE THEY, then, never journeyed about the earth and beheld what happened in the end to those [deniers of the truth] who lived before their time? More numerous were they, and greater in power than they are, and in the impact which they left on earth: but all that they ever achieved was of no avail to them –* — **Ghafir (40:82)**
+> 📖 *Hence, [bear in mind] the Day on which He will say, "Call [now] unto those beings whom you imagined to have a share in My divinity!" - whereupon they will invoke them, but those [beings] will not respond to them: for We shall have placed between them an unbridgeable gulf.* — **Al-Kahf (18:52)**
 <!-- quran-verse-end -->
 
 ---
