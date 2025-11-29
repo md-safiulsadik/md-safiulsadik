@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, man is born with a restless disposition.* — **Al-Ma'aarij (70:19)**
+> 📖 *verily, with every hardship comes ease!* — **Ash-Sharh (94:6)**
 <!-- quran-verse-end -->
 
 ---
