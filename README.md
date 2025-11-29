@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NAY, VERILY, the record of the wicked is indeed [set down] in a mode inescapable!* — **Al-Mutaffifin (83:7)**
+> 📖 *And, indeed, [to the same end] We sent forth Noah and Abraham [as Our message-bearers], and established prophethood and revelation among their descendants; and some of them were on the right way, but many were iniquitous.* — **Al-Hadid (57:26)**
 <!-- quran-verse-end -->
 
 ---
