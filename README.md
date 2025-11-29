@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O you who have attained to faith! Remember the blessings which God bestowed upon you when [hostile] people were about to lay hands on you and He stayed their hands from you. Remain, then, conscious of God: and in God let the believers place their trust.* — **Al-Maaida (5:11)**
+> 📖 *which He willed against them for seven nights and eight days without cease, so that in the end thou couldst see those people laid low [in death], as though they were so many [uprooted] trunks of hollow palm trees:* — **Al-Haaqqa (69:7)**
 <!-- quran-verse-end -->
 
 ---
