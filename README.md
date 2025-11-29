@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"O our Sustainer! Let not our hearts swerve from the truth after Thou hast guided us; and bestow upon us the gift of Thy grace: verily, Thou art the [true] Giver of Gifts.* — **Aal-i-Imraan (3:8)**
+> 📖 *and the moon as it reflects the sun!* — **Ash-Shams (91:2)**
 <!-- quran-verse-end -->
 
 ---
