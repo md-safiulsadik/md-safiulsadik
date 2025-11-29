@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, indeed, [to the same end] We sent forth Noah and Abraham [as Our message-bearers], and established prophethood and revelation among their descendants; and some of them were on the right way, but many were iniquitous.* — **Al-Hadid (57:26)**
+> 📖 *[And finally We told him:] “Now take in thy hand a small bunch of grass, and strike therewith, and thou wilt not break thine oath!” for, verily, We found him full of patience in adversity: how excellent a servant [of Ours], who, behold, would always turn unto Us!* — **Saad (38:44)**
 <!-- quran-verse-end -->
 
 ---
