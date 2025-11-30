@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *nay, their knowledge of the life to come stops short of the truth: nay, they are [often] in doubt as to its reality: nay, they are blind to it.* — **An-Naml (27:66)**
+> 📖 *And [now] he [argues about Us, and] thinks of Us in terms of comparison, and is oblivious of how he himself was created! [And so] he says, “Who could give life to bones that have crumbled to dust?”* — **Yaseen (36:78)**
 <!-- quran-verse-end -->
 
 ---
