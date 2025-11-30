@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, in time you will come to understand!* — **At-Takaathur (102:3)**
+> 📖 *not even a word can he utter but there is a watcher with him, ever-present.* — **Qaaf (50:18)**
 <!-- quran-verse-end -->
 
 ---
