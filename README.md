@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [now] he [argues about Us, and] thinks of Us in terms of comparison, and is oblivious of how he himself was created! [And so] he says, “Who could give life to bones that have crumbled to dust?”* — **Yaseen (36:78)**
+> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
 <!-- quran-verse-end -->
 
 ---
