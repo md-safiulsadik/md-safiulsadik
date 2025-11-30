@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said [Jacob]: "I will not send him with you until you give me a solemn pledge, before God, that you will indeed bring him back unto me, unless you yourselves be encompassed [by death]!" And when they had given him their solemn pledge, [Jacob] said: "God is witness to all that we say!"* — **Yusuf (12:66)**
+> 📖 *who turn others away from God's path and try to make it appear crooked, and who refuse to acknowledge the truth of the life to come!"* — **Al-A'raaf (7:45)**
 <!-- quran-verse-end -->
 
 ---
