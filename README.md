@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[AND the tribe of] Thamud gave the lie to all [Our] warnings;* — **Al-Qamar (54:23)**
+> 📖 *And, indeed, We have adorned the skies nearest to the earth with lights, and have made them the object of futile guesses for the evil ones [from among men]: and for them have We readied suffering through a blazing flame –* — **Al-Mulk (67:5)**
 <!-- quran-verse-end -->
 
 ---
