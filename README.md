@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is the star that pierces through [life's] darkness:* — **At-Taariq (86:3)**
+> 📖 *And in the course of time We brought out [of Lot ’s city] such [few] believers as were there:* — **Adh-Dhaariyat (51:35)**
 <!-- quran-verse-end -->
 
 ---
