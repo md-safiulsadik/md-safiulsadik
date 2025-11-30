@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *not even a word can he utter but there is a watcher with him, ever-present.* — **Qaaf (50:18)**
+> 📖 *nay, their knowledge of the life to come stops short of the truth: nay, they are [often] in doubt as to its reality: nay, they are blind to it.* — **An-Naml (27:66)**
 <!-- quran-verse-end -->
 
 ---
