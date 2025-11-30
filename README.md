@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Even so do We [now] cause this [scorn of Our message] to pervade the hearts of those who are lost in sin,* — **Al-Hijr (15:12)**
+> 📖 *AND,. behold, they [who have gone astray] endeavour to tempt thee away from all [the truth] with which We have inspired thee, [O Prophet,] with a view to making thee invent something else in Our name - in which case they would surely have made thee their friend!* — **Al-Israa (17:73)**
 <!-- quran-verse-end -->
 
 ---
