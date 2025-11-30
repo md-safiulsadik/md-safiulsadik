@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the long-enduring house [of worship]!* — **At-Tur (52:4)**
+> 📖 *[and they will be told:] "Eat and drink in good cheer in return for what you did [in life]!"* — **Al-Mursalaat (77:43)**
 <!-- quran-verse-end -->
 
 ---
