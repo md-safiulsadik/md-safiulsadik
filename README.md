@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, [O men,] We have sent unto you an apostle who shall bear witness to the truth before you, even as We sent an apostle unto Pharaoh:* — **Al-Muzzammil (73:15)**
+> 📖 *It is the star that pierces through [life's] darkness:* — **At-Taariq (86:3)**
 <!-- quran-verse-end -->
 
 ---
