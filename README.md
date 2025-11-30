@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "He is the One God:* — **Al-Ikhlaas (112:1)**
+> 📖 *Even so do We [now] cause this [scorn of Our message] to pervade the hearts of those who are lost in sin,* — **Al-Hijr (15:12)**
 <!-- quran-verse-end -->
 
 ---
