@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and they will be told:] "Eat and drink in good cheer in return for what you did [in life]!"* — **Al-Mursalaat (77:43)**
+> 📖 *[AND the tribe of] Thamud gave the lie to all [Our] warnings;* — **Al-Qamar (54:23)**
 <!-- quran-verse-end -->
 
 ---
