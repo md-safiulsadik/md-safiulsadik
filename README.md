@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND,. behold, they [who have gone astray] endeavour to tempt thee away from all [the truth] with which We have inspired thee, [O Prophet,] with a view to making thee invent something else in Our name - in which case they would surely have made thee their friend!* — **Al-Israa (17:73)**
+> 📖 *for, behold, those who are lost in sin [will at that time come to know that it is they who] were sunk in error and folly!* — **Al-Qamar (54:47)**
 <!-- quran-verse-end -->
 
 ---
