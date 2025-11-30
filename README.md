@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "O you who deny the truth!* — **Al-Kaafiroon (109:1)**
+> 📖 *And some people ask thee, "Is all this true?" Say: "Yea, by my Sustainer! It is most certainly true, and you cannot elude [the final reckoning]!"* — **Yunus (10:53)**
 <!-- quran-verse-end -->
 
 ---
