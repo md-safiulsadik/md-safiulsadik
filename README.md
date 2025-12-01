@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "I seek refuge with the Sustainer of the rising dawn,* — **Al-Falaq (113:1)**
+> 📖 *Nay, but on that Day they would willingly surrender [to God];* — **As-Saaffaat (37:26)**
 <!-- quran-verse-end -->
 
 ---
