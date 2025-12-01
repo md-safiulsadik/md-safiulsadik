@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and as one who summons [all men] to God by His leave, and as a light-giving beacon.* — **Al-Ahzaab (33:46)**
+> 📖 *Now [as for thyself, O believer,] thou couldst never foresee that this divine writ would [one day] be offered to thee: but [it did come to thee] by thy Sustainer’s grace. Hence, never uphold those who deny the truth [of divine guidance],* — **Al-Qasas (28:86)**
 <!-- quran-verse-end -->
 
 ---
