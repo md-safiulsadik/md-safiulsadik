@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and only to this end have We made this [divine writ] easy to understand, in thine own tongue, [O Prophet,] so that thou might convey thereby a glad tiding to the God-conscious, and warn thereby those who are given to [futile] contention:* — **Maryam (19:97)**
+> 📖 *But whenever We removed the suffering from them, lo! they would break their word.* — **Az-Zukhruf (43:50)**
 <!-- quran-verse-end -->
 
 ---
