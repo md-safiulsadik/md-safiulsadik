@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but on that Day they would willingly surrender [to God];* — **As-Saaffaat (37:26)**
+> 📖 *you would indeed, most surely, behold the blazing fire [of hell]!* — **At-Takaathur (102:6)**
 <!-- quran-verse-end -->
 
 ---
