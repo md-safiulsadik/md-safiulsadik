@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"I do not worship that which you worship,* — **Al-Kaafiroon (109:2)**
+> 📖 *and olive trees and date-palms,* — **Abasa (80:29)**
 <!-- quran-verse-end -->
 
 ---
