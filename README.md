@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Have, then, they [who deny the truth] never considered the birds, enabled [by God] to fly in mid-air, with none but God holding them aloft? In this, behold, there are messages indeed for people who will believe!* — **An-Nahl (16:79)**
+> 📖 *and as one who summons [all men] to God by His leave, and as a light-giving beacon.* — **Al-Ahzaab (33:46)**
 <!-- quran-verse-end -->
 
 ---
