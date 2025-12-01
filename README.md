@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Remember what you felt] when they came upon you from above you and from below you, and when [your] eyes became dim and [your] hearts came up to [your] throats, and [when] most conflicting thoughts about God passed through your minds:* — **Al-Ahzaab (33:10)**
+> 📖 *Have, then, they [who deny the truth] never considered the birds, enabled [by God] to fly in mid-air, with none but God holding them aloft? In this, behold, there are messages indeed for people who will believe!* — **An-Nahl (16:79)**
 <!-- quran-verse-end -->
 
 ---
