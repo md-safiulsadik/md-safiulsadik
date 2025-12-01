@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [remember] Lot, when he said unto his people: "Will you commit abominations such as none in all the world has ever done before you?* — **Al-A'raaf (7:80)**
+> 📖 *Verily, as for the men and women who accept the truth as true and who [thus] offer up unto God a goodly loan, they will be amply repaid, and shall have a noble reward [in the life to come].* — **Al-Hadid (57:18)**
 <!-- quran-verse-end -->
 
 ---
