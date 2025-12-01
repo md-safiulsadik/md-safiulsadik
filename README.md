@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *wherein there are ordinances of ever-true soundness and clarity.* — **Al-Bayyina (98:3)**
+> 📖 *Does he [knowingly] attribute his own lying inventions to God - or is he a madman?” Nay, [there is no madness in this Prophet -] but they who will not believe in the life to come are [bound to lose themselves] in suffering and in a profound aberration.* — **Saba (34:8)**
 <!-- quran-verse-end -->
 
 ---
