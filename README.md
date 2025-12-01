@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and from the evil of the black darkness whenever it descends,* — **Al-Falaq (113:3)**
+> 📖 *THE BESTOWAL from on high of this divine writ issues from God, the Almighty, the Wise.* — **Al-Jaathiya (45:2)**
 <!-- quran-verse-end -->
 
 ---
