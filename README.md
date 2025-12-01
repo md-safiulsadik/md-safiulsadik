@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But whenever We removed the suffering from them, lo! they would break their word.* — **Az-Zukhruf (43:50)**
+> 📖 *He answered: "As for him who does wrong [unto others] - him shall we, in time, cause to suffer; and thereupon he shall be referred to his Sustainer, and He will cause him to suffer with unnameable suffering.* — **Al-Kahf (18:87)**
 <!-- quran-verse-end -->
 
 ---
