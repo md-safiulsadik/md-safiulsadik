@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, as for the men and women who accept the truth as true and who [thus] offer up unto God a goodly loan, they will be amply repaid, and shall have a noble reward [in the life to come].* — **Al-Hadid (57:18)**
+> 📖 *"and from the evil of the black darkness whenever it descends,* — **Al-Falaq (113:3)**
 <!-- quran-verse-end -->
 
 ---
