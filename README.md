@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *EXTOL, then, God’s limitless glory when you enter upon the evening hours, and when you rise at morn;* — **Ar-Room (30:17)**
+> 📖 *SAY: "He is the One God:* — **Al-Ikhlaas (112:1)**
 <!-- quran-verse-end -->
 
 ---
