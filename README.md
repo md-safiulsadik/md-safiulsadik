@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THE BESTOWAL from on high of this divine writ issues from God, the Almighty, the Wise.* — **Al-Jaathiya (45:2)**
+> 📖 *[Remember what you felt] when they came upon you from above you and from below you, and when [your] eyes became dim and [your] hearts came up to [your] throats, and [when] most conflicting thoughts about God passed through your minds:* — **Al-Ahzaab (33:10)**
 <!-- quran-verse-end -->
 
 ---
