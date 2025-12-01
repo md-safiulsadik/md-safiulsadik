@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He answered: "As for him who does wrong [unto others] - him shall we, in time, cause to suffer; and thereupon he shall be referred to his Sustainer, and He will cause him to suffer with unnameable suffering.* — **Al-Kahf (18:87)**
+> 📖 *and gardens dense with foliage,* — **Abasa (80:30)**
 <!-- quran-verse-end -->
 
 ---
