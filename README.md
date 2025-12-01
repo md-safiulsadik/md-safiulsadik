@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "He is the One God:* — **Al-Ikhlaas (112:1)**
+> 📖 *"I do not worship that which you worship,* — **Al-Kaafiroon (109:2)**
 <!-- quran-verse-end -->
 
 ---
