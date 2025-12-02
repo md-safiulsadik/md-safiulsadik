@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but forever will abide thy Sustainer’s Self, full of majesty and glory.* — **Ar-Rahmaan (55:27)**
+> 📖 *Behold, as for those who call God’s messages in question without having any evidence therefore in their hearts is nothing but overweening self-con­ceit, which they will never be able to satisfy: seek thou, then, refuge with God - for, verily, He alone is all-hearing, all-seeing!* — **Ghafir (40:56)**
 <!-- quran-verse-end -->
 
 ---
