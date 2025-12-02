@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God has already enjoined upon you [O believers] the breaking and expiation of [such of] your oaths [as may run counter to what is right and just]: for, God is your Lord Supreme, and He alone is all-knowing, truly wise.* — **At-Tahrim (66:2)**
+> 📖 *[then,] O man - thou [that] hast, verily, been toiling towards thy Sustainer in painful toil - then shalt thou meet Him!* — **Al-Inshiqaaq (84:6)**
 <!-- quran-verse-end -->
 
 ---
