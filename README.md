@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, as for those who call God’s messages in question without having any evidence therefore in their hearts is nothing but overweening self-con­ceit, which they will never be able to satisfy: seek thou, then, refuge with God - for, verily, He alone is all-hearing, all-seeing!* — **Ghafir (40:56)**
+> 📖 *God has already enjoined upon you [O believers] the breaking and expiation of [such of] your oaths [as may run counter to what is right and just]: for, God is your Lord Supreme, and He alone is all-knowing, truly wise.* — **At-Tahrim (66:2)**
 <!-- quran-verse-end -->
 
 ---
