@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the vault [of heaven] raised high!* — **At-Tur (52:5)**
+> 📖 *He it is who has made the earth a cradle for you, and has provided for you ways [of livelihood] thereon, so that you might follow the right path.* — **Az-Zukhruf (43:10)**
 <!-- quran-verse-end -->
 
 ---
