@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But they [only] ask, "When is this promise to be fulfilled? [Answer this, O you who believe in it,] if you are men of truth!"* — **Al-Mulk (67:25)**
+> 📖 *[But,] behold, as for those who say, “Our Sustainer is God,” and then steadfastly pursue the right way - upon them do angels often descend, [say­ing:] “Fear not and grieve not, but receive the glad tiding of that paradise which has been promised to you!* — **Fussilat (41:30)**
 <!-- quran-verse-end -->
 
 ---
