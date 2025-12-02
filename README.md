@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *GO ON towards that [resurrection] which you were wont to call a lie!* — **Al-Mursalaat (77:29)**
+> 📖 *And what could make thee conceive what hell-fire is?* — **Al-Muddaththir (74:27)**
 <!-- quran-verse-end -->
 
 ---
