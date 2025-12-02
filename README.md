@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *unto Pharaoh and his great ones; but these behaved with arrogance, for they were people wont to glorify [only] themselves.* — **Al-Muminoon (23:46)**
+> 📖 *[In that life to come,] thou wilt see the evil­doers full of fear at [the thought of] what they have earned: for [now] it is bound to fall back upon them. And in the flowering meadows of the gardens [of paradise thou wilt see] those who have attained to faith and done righteous deeds: all that they might desire shall they have with their Sustainer: [and] this, this is the great bounty –* — **Ash-Shura (42:22)**
 <!-- quran-verse-end -->
 
 ---
