@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Most Gracious, the Dispenser of Grace,* — **Al-Faatiha (1:3)**
+> 📖 *but forever will abide thy Sustainer’s Self, full of majesty and glory.* — **Ar-Rahmaan (55:27)**
 <!-- quran-verse-end -->
 
 ---
