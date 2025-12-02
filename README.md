@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, it is this [kind of man] that thrusts the orphan away,* — **Al-Maa'un (107:2)**
+> 📖 *unto Pharaoh and his great ones; but these behaved with arrogance, for they were people wont to glorify [only] themselves.* — **Al-Muminoon (23:46)**
 <!-- quran-verse-end -->
 
 ---
