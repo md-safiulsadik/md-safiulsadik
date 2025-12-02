@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the Day when they shall come forth in haste from their graves, as if racing towards a goal-post,* — **Al-Ma'aarij (70:43)**
+> 📖 *And say [unto them, O Prophet]: "Act! And God will behold your deeds, and [so will] His Apostle, and the believers: and [in the end] you will be brought before Him who knows all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind -and then He will make you understand what you have been doing."* — **At-Tawba (9:105)**
 <!-- quran-verse-end -->
 
 ---
