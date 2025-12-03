@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and unto thy Sustainer turn with love.* — **Ash-Sharh (94:8)**
+> 📖 *and that it is He who destroyed the ancient [tribes of] Ad* — **An-Najm (53:50)**
 <!-- quran-verse-end -->
 
 ---
