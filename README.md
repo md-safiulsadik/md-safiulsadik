@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said they: "Pray on our behalf unto thy Sustainer that He make clear to us what she is to be like." [Moses] replied: "Behold, He says it is to be a cow neither old nor immature, but of art age in-between. Do, then, what you have been bidden!"* — **Al-Baqara (2:68)**
+> 📖 *and the sun and the moon are brought together* — **Al-Qiyaama (75:9)**
 <!-- quran-verse-end -->
 
 ---
