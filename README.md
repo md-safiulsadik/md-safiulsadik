@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now they who are bent on denying the truth are wont to ask. “Why has not the Qur’an been bestowed on him from on high in one single re­velation?” [it has been revealed] in this manner so that We might strengthen thy heart thereby - for We have so arranged its component parts that they form one consistent whole -* — **Al-Furqaan (25:32)**
+> 📖 *And so, when they beheld it in the shape of a dense cloud approaching their valleys, they exclaimed, “This is but a heavy cloud which will bring us [wel­come] rain!” [But Hud said:] “Nay, but it is the very thing which you [so contemptuously] sought to hasten - a wind bearing grievous suffering,* — **Al-Ahqaf (46:24)**
 <!-- quran-verse-end -->
 
 ---
