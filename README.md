@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Answered He: "Verily, so be it: thou shalt be among those who are granted respite* — **Al-Hijr (15:37)**
+> 📖 *Verily, we did invoke Him [alone] ere this: [and now He has shown us] that He alone is truly benign, a true dispenser of grace!”* — **At-Tur (52:28)**
 <!-- quran-verse-end -->
 
 ---
