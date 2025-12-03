@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now they challenge thee to hasten the coming upon them of [God’s] chastisement: and indeed, had not a term been set [for it by God], that suffering would already have come upon them! But indeed, it will most certainly come upon them of a sudden, and they will be taken unawares.* — **Al-Ankaboot (29:53)**
+> 📖 *Now they who are bent on denying the truth are wont to ask. “Why has not the Qur’an been bestowed on him from on high in one single re­velation?” [it has been revealed] in this manner so that We might strengthen thy heart thereby - for We have so arranged its component parts that they form one consistent whole -* — **Al-Furqaan (25:32)**
 <!-- quran-verse-end -->
 
 ---
