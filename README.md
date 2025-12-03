@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet they say: “There is nothing beyond our life in this world. We die as we come to life, and nothing but time destroys us.” But of this they have no knowledge whatever: they do nothing but guess.* — **Al-Jaathiya (45:24)**
+> 📖 *SAY: "I seek refuge with the Sustainer of the rising dawn,* — **Al-Falaq (113:1)**
 <!-- quran-verse-end -->
 
 ---
