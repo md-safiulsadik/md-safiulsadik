@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, indeed, [similar was the case when] We vouchsafed the divine writ unto Moses, and some of his people set their own views against it; and had it not been for a decree that had already gone forth from thy Sustainer, judgment would indeed have been passed on them [then and there]: for, behold, they were in grave doubt, amounting to suspicion, about him [who called them unto God].* — **Hud (11:110)**
+> 📖 *And when he had provided them with their provisions, he said: "[When you come here next,] bring unto me that brother of yours from your father's side. Do you not see that I have given [you] full measure and have been the best of hosts?* — **Yusuf (12:59)**
 <!-- quran-verse-end -->
 
 ---
