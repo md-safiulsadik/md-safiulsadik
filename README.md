@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and caused them to become like a field of grain that has been eaten down to stubble* — **Al-Fil (105:5)**
+> 📖 *Now they challenge thee to hasten the coming upon them of [God’s] chastisement: and indeed, had not a term been set [for it by God], that suffering would already have come upon them! But indeed, it will most certainly come upon them of a sudden, and they will be taken unawares.* — **Al-Ankaboot (29:53)**
 <!-- quran-verse-end -->
 
 ---
