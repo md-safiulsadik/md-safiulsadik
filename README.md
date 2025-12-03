@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for when it was said, ‘Behold, God’s promise always comes true, and there can be no doubt about [the coming of] the Last Hour’ - you would answer, ‘We do not know what that Last Hour may be: we think it is no more than an empty guess, and [so] we are by no means convinced!’”* — **Al-Jaathiya (45:32)**
+> 📖 *And yet they say: “There is nothing beyond our life in this world. We die as we come to life, and nothing but time destroys us.” But of this they have no knowledge whatever: they do nothing but guess.* — **Al-Jaathiya (45:24)**
 <!-- quran-verse-end -->
 
 ---
