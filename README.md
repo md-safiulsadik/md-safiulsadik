@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the earth is leveled,* — **Al-Inshiqaaq (84:3)**
+> 📖 *even though he may veil himself in excuses.* — **Al-Qiyaama (75:15)**
 <!-- quran-verse-end -->
 
 ---
