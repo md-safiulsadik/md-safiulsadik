@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, we did invoke Him [alone] ere this: [and now He has shown us] that He alone is truly benign, a true dispenser of grace!”* — **At-Tur (52:28)**
+> 📖 *Thus it is, because God alone is the Ultimate Truth, so that all that men invoke instead of Him is sheer falsehood; and because God alone is exalted, truly great!* — **Luqman (31:30)**
 <!-- quran-verse-end -->
 
 ---
