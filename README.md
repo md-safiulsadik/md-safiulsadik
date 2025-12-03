@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NAY, VERILY, the record of the wicked is indeed [set down] in a mode inescapable!* — **Al-Mutaffifin (83:7)**
+> 📖 *And, indeed, [similar was the case when] We vouchsafed the divine writ unto Moses, and some of his people set their own views against it; and had it not been for a decree that had already gone forth from thy Sustainer, judgment would indeed have been passed on them [then and there]: for, behold, they were in grave doubt, amounting to suspicion, about him [who called them unto God].* — **Hud (11:110)**
 <!-- quran-verse-end -->
 
 ---
