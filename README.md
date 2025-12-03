@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And were it not for God’s favour upon you and His grace, and that God is compassionate, a dispenser of grace...!* — **An-Noor (24:20)**
+> 📖 *Said they: "Pray on our behalf unto thy Sustainer that He make clear to us what she is to be like." [Moses] replied: "Behold, He says it is to be a cow neither old nor immature, but of art age in-between. Do, then, what you have been bidden!"* — **Al-Baqara (2:68)**
 <!-- quran-verse-end -->
 
 ---
