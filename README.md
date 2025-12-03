@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus it is, because God alone is the Ultimate Truth, so that all that men invoke instead of Him is sheer falsehood; and because God alone is exalted, truly great!* — **Luqman (31:30)**
+> 📖 *for when it was said, ‘Behold, God’s promise always comes true, and there can be no doubt about [the coming of] the Last Hour’ - you would answer, ‘We do not know what that Last Hour may be: we think it is no more than an empty guess, and [so] we are by no means convinced!’”* — **Al-Jaathiya (45:32)**
 <!-- quran-verse-end -->
 
 ---
