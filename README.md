@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "I seek refuge with the Sustainer of the rising dawn,* — **Al-Falaq (113:1)**
+> 📖 *and caused them to become like a field of grain that has been eaten down to stubble* — **Al-Fil (105:5)**
 <!-- quran-verse-end -->
 
 ---
