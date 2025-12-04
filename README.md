@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *even though he may veil himself in excuses.* — **Al-Qiyaama (75:15)**
+> 📖 *thus We requited them for their having denied the truth. But do We ever requite [thus] any but the utterly ingrate?* — **Saba (34:17)**
 <!-- quran-verse-end -->
 
 ---
