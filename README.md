@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and whenever they return to people of their own kind, they return full of jests;* — **Al-Mutaffifin (83:31)**
+> 📖 *AND WERE it not for God’s favour upon you, [O man,] and His grace, and that God is a wise acceptor of repentance...!* — **An-Noor (24:10)**
 <!-- quran-verse-end -->
 
 ---
