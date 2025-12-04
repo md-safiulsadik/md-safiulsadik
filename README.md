@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thus We requited them for their having denied the truth. But do We ever requite [thus] any but the utterly ingrate?* — **Saba (34:17)**
+> 📖 *"And [I have come] to confirm the truth of whatever there still remains of the Torah, and to make lawful unto you some of the things which [aforetime] were forbidden to you. And I have come unto you with a message from your Sustainer; remain, then, conscious of God, and pay heed unto me.* — **Aal-i-Imraan (3:50)**
 <!-- quran-verse-end -->
 
 ---
