@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now when thou seest them, their outward appearance may please thee; and when they speak, thou art inclined to lend ear to what they say. [But though they may seem as sure of themselves] as if they were timbers [firmly] propped up, they think that every shout is [directed] against them. They are the [real] enemies [of all faith], so beware of them. [They deserve the imprecation,] "May God destroy them!" How perverted are their minds!* — **Al-Munaafiqoon (63:4)**
+> 📖 *THE BEDOUIN say, “We have attained to faith.” Say [unto them, O Muhammad]: “You have not [yet] attained to faith; you should [rather] say, ‘We have [outwardly] surrendered’ - for [true] faith has not yet entered your hearts. But if you [truly] pay heed unto God and His Apostle, He will not let the least of your deeds go to waste: for, behold, God is much-forgiving, a dispenser of grace.”* — **Al-Hujuraat (49:14)**
 <!-- quran-verse-end -->
 
 ---
