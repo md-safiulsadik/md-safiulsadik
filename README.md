@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They will answer: “Limitless art Thou in Thy glory! It was inconceivable for us to take for our masters anyone but Thyself! But [as for them -] Thou didst allow them and their forefathers to enjoy [the pleasures of] life to such an extent that they forgot all remembrance [of Thee]: for they were people devoid of all good.”* — **Al-Furqaan (25:18)**
+> 📖 *[Think of] the time when He shall gather you all together unto the Day of the [Last] Gathering - that Day of Loss and Gain! For, as for him who shall have believed in God and done what is just and right, He will [on that Day] efface his bad deeds, and will admit him into gardens through which running waters flow, therein to abide beyond the count of time: that will be a triumph supreme!* — **At-Taghaabun (64:9)**
 <!-- quran-verse-end -->
 
 ---
