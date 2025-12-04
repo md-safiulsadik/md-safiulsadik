@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *What, then, [O man,] could henceforth cause thee to give the lie to this moral law?* — **At-Tin (95:7)**
+> 📖 *And so We saved him and those [who were] with him in the fully-laden ark,* — **Ash-Shu'araa (26:119)**
 <!-- quran-verse-end -->
 
 ---
