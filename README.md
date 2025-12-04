@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“This is what you were promised - [promised] unto every­one who was wont to turn unto God and to keep Him always in mind –* — **Qaaf (50:32)**
+> 📖 *And let not Satan bars you [from it] - for, verily, he is your open foe!* — **Az-Zukhruf (43:62)**
 <!-- quran-verse-end -->
 
 ---
