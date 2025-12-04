@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so We saved him and those [who were] with him in the fully-laden ark,* — **Ash-Shu'araa (26:119)**
+> 📖 *and whenever they return to people of their own kind, they return full of jests;* — **Al-Mutaffifin (83:31)**
 <!-- quran-verse-end -->
 
 ---
