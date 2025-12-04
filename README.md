@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And if any of your wives should go over to the deniers of the truth, and you are thus afflicted in turn, then give unto those whose wives have gone away the equivalent of what they had spent [on their wives by way of dower], and remain conscious of God, in whom you believe!* — **Al-Mumtahana (60:11)**
+> 📖 *They will answer: “Limitless art Thou in Thy glory! It was inconceivable for us to take for our masters anyone but Thyself! But [as for them -] Thou didst allow them and their forefathers to enjoy [the pleasures of] life to such an extent that they forgot all remembrance [of Thee]: for they were people devoid of all good.”* — **Al-Furqaan (25:18)**
 <!-- quran-verse-end -->
 
 ---
