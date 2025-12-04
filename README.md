@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, when thou art freed [from distress], remain steadfast,* — **Ash-Sharh (94:7)**
+> 📖 *Aaron, my brother.* — **Taa-Haa (20:30)**
 <!-- quran-verse-end -->
 
 ---
