@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Hence,] I shall cause him to endure hell-fire [in the life to come]!* — **Al-Muddaththir (74:26)**
+> 📖 *SO THAT the Quraysh might remain secure,* — **Quraish (106:1)**
 <!-- quran-verse-end -->
 
 ---
