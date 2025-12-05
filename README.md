@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For [thus it is:] whenever Our messages are conveyed unto them in all their clarity, they [who are bent on denying the truth] say [to one another], “This [Muhammad] is nothing but a man who wants to turn you away from what your forefathers were wont to worship!” And they say, “This [Qur’an] is nothing but a falsehood invented [by man]!” And [finally,] they who are bent on denying the truth speak thus of the truth when it comes to them: “This is clearly nothing but spellbinding eloquence!”* — **Saba (34:43)**
+> 📖 *They will reply: "Yea, a warner did indeed come unto us, but we gave him the lie and said, 'Never has God sent down anything [by way of revelation]! You [self-styled warners] are but lost in a great delusion!"'* — **Al-Mulk (67:9)**
 <!-- quran-verse-end -->
 
 ---
