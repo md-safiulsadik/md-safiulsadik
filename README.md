@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *secure in their winter and summer journeys,* — **Quraish (106:2)**
+> 📖 *Yet God has full knowledge of what they conceal [in their hearts].* — **Al-Inshiqaaq (84:23)**
 <!-- quran-verse-end -->
 
 ---
