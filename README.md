@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *How would God bestow His guidance upon people who have resolved to deny the truth after having attained to faith, and having borne witness that this Apostle is true, and [after] all evidence of the truth has come unto them? For, God does not guide such evildoing folk.* — **Aal-i-Imraan (3:86)**
+> 📖 *The [servant’s] heart did not give the lie to what he saw:* — **An-Najm (53:11)**
 <!-- quran-verse-end -->
 
 ---
