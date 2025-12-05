@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Furthermore, [this divine writ is meant] to warn all those who assert, "God has taken unto Himself a son."* — **Al-Kahf (18:4)**
+> 📖 *And so, they who come after them pray: “O our Sustainer! Forgive us our sins, as well as those of our brethren who preceded us in faith, and let not our hearts entertain any unworthy thoughts or feelings against [any of] those who have attained to faith. O our Sustainer! Verily, Thou art compassionate, a dispenser of grace!”* — **Al-Hashr (59:10)**
 <!-- quran-verse-end -->
 
 ---
