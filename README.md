@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But factions from among those [who came after Jesus] began to hold divergent views: woe, then, unto those who are bent on evildoing - [woe] for the suffering [that will befall them] on a grie­vous Day!* — **Az-Zukhruf (43:65)**
+> 📖 *How would God bestow His guidance upon people who have resolved to deny the truth after having attained to faith, and having borne witness that this Apostle is true, and [after] all evidence of the truth has come unto them? For, God does not guide such evildoing folk.* — **Aal-i-Imraan (3:86)**
 <!-- quran-verse-end -->
 
 ---
