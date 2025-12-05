@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or do they want to entrap [thee in contradic­tions]? But they who are bent on denying the truth - it is they who are truly entrapped!* — **At-Tur (52:42)**
+> 📖 *Say: “Do you, perchance, [want to] inform God of [the nature of] your faith although God knows all that is in the heavens and all that is on earth? Indeed, God has full knowledge of every­thing!”* — **Al-Hujuraat (49:16)**
 <!-- quran-verse-end -->
 
 ---
