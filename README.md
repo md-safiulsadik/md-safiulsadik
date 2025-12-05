@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *IT IS GOD who has made the sea subservient [to His laws, so that it be of use] to you so that ships might sail through it at His behest, and that you might seek to obtain [what you need] of His bounty, and that you might have cause to be grateful.* — **Al-Jaathiya (45:12)**
+> 📖 *So then, [if it be true that] we have caused you to err grievously - behold, we ourselves had been lost in grievous error!”* — **As-Saaffaat (37:32)**
 <!-- quran-verse-end -->
 
 ---
