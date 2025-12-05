@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[who bears] around her neck a rope of twisted strands!* — **Al-Masad (111:5)**
+> 📖 *that had weighed so heavily on thy back?* — **Ash-Sharh (94:3)**
 <!-- quran-verse-end -->
 
 ---
