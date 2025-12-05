@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereafter We reduce him to the lowest of low* — **At-Tin (95:5)**
+> 📖 *[who bears] around her neck a rope of twisted strands!* — **Al-Masad (111:5)**
 <!-- quran-verse-end -->
 
 ---
