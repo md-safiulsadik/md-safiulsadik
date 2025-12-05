@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Do you, perchance, [want to] inform God of [the nature of] your faith although God knows all that is in the heavens and all that is on earth? Indeed, God has full knowledge of every­thing!”* — **Al-Hujuraat (49:16)**
+> 📖 *Nothing did I tell them beyond what Thou didst bid me [to say]: `Worship God, [who is] my Sustainer as well as your Sustainer.' And I bore witness to what they did as long as I dwelt in their midst; but since Thou hast caused me to die, Thou alone hast been their keeper: for Thou art witness unto everything.* — **Al-Maaida (5:117)**
 <!-- quran-verse-end -->
 
 ---
