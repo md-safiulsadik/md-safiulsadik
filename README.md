@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, they who come after them pray: “O our Sustainer! Forgive us our sins, as well as those of our brethren who preceded us in faith, and let not our hearts entertain any unworthy thoughts or feelings against [any of] those who have attained to faith. O our Sustainer! Verily, Thou art compassionate, a dispenser of grace!”* — **Al-Hashr (59:10)**
+> 📖 *and thereafter We reduce him to the lowest of low* — **At-Tin (95:5)**
 <!-- quran-verse-end -->
 
 ---
