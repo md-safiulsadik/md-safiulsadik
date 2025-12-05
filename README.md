@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, He let loose upon them great swarms of flying creatures* — **Al-Fil (105:3)**
+> 📖 *whereas they whose weight is light in the balance - it is they who will have squandered their own selves, [destined] to abide in hell:* — **Al-Muminoon (23:103)**
 <!-- quran-verse-end -->
 
 ---
