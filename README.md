@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *As for that [happy] life in the hereafter, We grant it [only] to those who do not seek to exalt themselves on earth, nor yet to spread corruption: for the future belongs to the God-conscious.* — **Al-Qasas (28:83)**
+> 📖 *and to establish them securely on earth, and to let Pharaoh and Haman and their hosts experience through those [children of Israel] the very thing against which they sought to protect themselves.* — **Al-Qasas (28:6)**
 <!-- quran-verse-end -->
 
 ---
