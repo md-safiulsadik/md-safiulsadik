@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *About which, then, of thy Sustainer’s powers canst thou [still] remain in doubt?* — **An-Najm (53:55)**
+> 📖 *Verily, as for those who will not believe in God's messages, God does not guide them aright; and grievous suffering will be their lot [in the life to come].* — **An-Nahl (16:104)**
 <!-- quran-verse-end -->
 
 ---
