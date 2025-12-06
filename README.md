@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O you who have attained to faith! Avoid most guesswork [about one another] for, behold, some of [such] guesswork is [in itself] a sin; and do not spy upon one another, and neither allow your­selves to speak ill of one another behind your backs. Would any of you like to eat the flesh of his dead brother? Nay, you would loathe it! And be conscious of God. Verily, God is an accep­tor of repentance, a dispenser of grace!* — **Al-Hujuraat (49:12)**
+> 📖 *AND HOW MANY a generation have We destroyed before those [who now deny the truth] people of greater might than theirs; but [when Our chastise­ment befell them,] they became wanderers on the face of the earth, seeking no more than a place of refuge* — **Qaaf (50:36)**
 <!-- quran-verse-end -->
 
 ---
