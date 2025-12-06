@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[the while] We shall summon the forces of heavenly chastisement!* — **Al-Alaq (96:18)**
+> 📖 *WHEN THE SKY is split asunder,* — **Al-Inshiqaaq (84:1)**
 <!-- quran-verse-end -->
 
 ---
