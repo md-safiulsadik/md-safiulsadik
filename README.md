@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, in time you will come to understand!* — **At-Takaathur (102:3)**
+> 📖 *Said [Solomon]: “We shall see whether thou hast told the truth or art one of the liars!* — **An-Naml (27:27)**
 <!-- quran-verse-end -->
 
 ---
