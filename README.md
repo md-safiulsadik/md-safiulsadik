@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For those who persevere in doing good there is the ultimate good in store, and more [than that]. No darkness and no ignominy will overshadow their faces [on Resurrection Day]: it is they who are destined for paradise, therein to abide.* — **Yunus (10:26)**
+> 📖 *About which, then, of thy Sustainer’s powers canst thou [still] remain in doubt?* — **An-Najm (53:55)**
 <!-- quran-verse-end -->
 
 ---
