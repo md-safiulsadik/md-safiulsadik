@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He who has created death as well as life, so that He might put you to a test [and thus show] which of you is best in conduct, and [make you realize that] He alone is almighty, truly forgiving.* — **Al-Mulk (67:2)**
+> 📖 *and endure with patience whatever people may say [against thee], and avoid them with a comely avoidance.* — **Al-Muzzammil (73:10)**
 <!-- quran-verse-end -->
 
 ---
