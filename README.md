@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *- and in their wickedness and self-exaltation they rejected them, although their minds were convinced of their truth: and behold what hap­pened in the end to those spreaders of corruption!* — **An-Naml (27:14)**
+> 📖 *For those who persevere in doing good there is the ultimate good in store, and more [than that]. No darkness and no ignominy will overshadow their faces [on Resurrection Day]: it is they who are destined for paradise, therein to abide.* — **Yunus (10:26)**
 <!-- quran-verse-end -->
 
 ---
