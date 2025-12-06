@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [it shall be offered, too, unto the poor from among] those who, before them, had their abode in this realm and in faith - [those] who love all that come to them in search of refuge, and who harbour in their hearts no grudge for whatever the others may have been given, but rather give them preference over themselves, even though poverty be their own lot: for, such as from their own covetousness are saved - it is they, they that shall attain to a happy state!* — **Al-Hashr (59:9)**
+> 📖 *- and in their wickedness and self-exaltation they rejected them, although their minds were convinced of their truth: and behold what hap­pened in the end to those spreaders of corruption!* — **An-Naml (27:14)**
 <!-- quran-verse-end -->
 
 ---
