@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let them, therefore, worship the Sustainer of this Temple;* — **Quraish (106:3)**
+> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:75)**
 <!-- quran-verse-end -->
 
 ---
