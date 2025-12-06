@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[All this will be] a reward from thy Sustainer, a gift in accordance with [His Own] reckoning –* — **An-Naba (78:36)**
+> 📖 *Theirs shall be an abode of peace with their Sustainer; and He shall be near unto them in result of what they have been doing.* — **Al-An'aam (6:127)**
 <!-- quran-verse-end -->
 
 ---
