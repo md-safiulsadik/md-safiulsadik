@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and endure with patience whatever people may say [against thee], and avoid them with a comely avoidance.* — **Al-Muzzammil (73:10)**
+> 📖 *Nay, in time you will come to understand!* — **At-Takaathur (102:3)**
 <!-- quran-verse-end -->
 
 ---
