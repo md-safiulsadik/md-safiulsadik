@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and to establish them securely on earth, and to let Pharaoh and Haman and their hosts experience through those [children of Israel] the very thing against which they sought to protect themselves.* — **Al-Qasas (28:6)**
+> 📖 *and restraining [from evil] by a call to restraint,* — **As-Saaffaat (37:2)**
 <!-- quran-verse-end -->
 
 ---
