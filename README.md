@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thereupon, when those [sinners] had forgotten all that they had been told to take to. heart, We saved those who had tried to prevent the doing of evil, and overwhelmed those who had been bent on evildoing with dreadful suffering for all their iniquity;* — **Al-A'raaf (7:165)**
+> 📖 *Let, then, the deniers of the truth have their will: let them have their will for a little while.* — **At-Taariq (86:17)**
 <!-- quran-verse-end -->
 
 ---
