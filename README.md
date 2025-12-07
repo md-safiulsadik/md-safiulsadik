@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, verily, thine shall be a reward neverending –* — **Al-Qalam (68:3)**
+> 📖 *And hallowed be He unto whom the dominion over the heavens and the earth and all that is between them belongs, and with whom the knowledge of the Last Hour rests, and unto whom you all shall be brought back!* — **Az-Zukhruf (43:85)**
 <!-- quran-verse-end -->
 
 ---
