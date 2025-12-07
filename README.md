@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Does he, then, think that no one sees him?* — **Al-Balad (90:7)**
+> 📖 *Follow those who ask no reward of you, and themselves are rightly guided!* — **Yaseen (36:21)**
 <!-- quran-verse-end -->
 
 ---
