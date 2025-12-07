@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And hallowed be He unto whom the dominion over the heavens and the earth and all that is between them belongs, and with whom the knowledge of the Last Hour rests, and unto whom you all shall be brought back!* — **Az-Zukhruf (43:85)**
+> 📖 *Hence, if two groups of believers fall to fighting, make peace between them; but then, if one of the two [groups] goes on acting wrongfully towards the other, fight against the one that acts wrongfully until it reverts to God’s commandment; and if they revert, make peace between them with justice, and deal equitably [with them]: for verily, God loves those who act equitably!* — **Al-Hujuraat (49:9)**
 <!-- quran-verse-end -->
 
 ---
