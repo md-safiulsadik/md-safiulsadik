@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, as for him who gives [to others] and is conscious of God,* — **Al-Lail (92:5)**
+> 📖 *But nay! Verily, all [that awaits him] is a raging flame,* — **Al-Ma'aarij (70:15)**
 <!-- quran-verse-end -->
 
 ---
