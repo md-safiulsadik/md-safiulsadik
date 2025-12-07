@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who determines the nature [of all that exists], and thereupon guides it [towards its fulfilment],* — **Al-A'laa (87:3)**
+> 📖 *But then they relapsed into their former way of thinking and said: “Thou knowest very well that these [idols] cannot speak!”* — **Al-Anbiyaa (21:65)**
 <!-- quran-verse-end -->
 
 ---
