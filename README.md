@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [one day] he entered the city at a time when [most of] its people were [resting in their houses,] unaware of what was going on [in the streets]; and there he encountered two men fighting with one another - one of his own people, and the other of his enemies. And the one who belonged to his own people cried out to him for help against him who was of his enemies - whereupon Moses struck him down with his fist, and [thus] brought about his end. [But then] he said [to himself]: “This is of Satan’s doing! Verily, he is an open foe, leading [man] astray!”* — **Al-Qasas (28:15)**
+> 📖 *[As a rule,] whenever misfortune touches him, he is filled with self-pity;* — **Al-Ma'aarij (70:20)**
 <!-- quran-verse-end -->
 
 ---
