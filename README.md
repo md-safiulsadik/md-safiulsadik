@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[As a rule,] whenever misfortune touches him, he is filled with self-pity;* — **Al-Ma'aarij (70:20)**
+> 📖 *and thereupon We shall most certainly reveal unto them Our knowledge [of their doings]: for never have We been absent [from them].* — **Al-A'raaf (7:7)**
 <!-- quran-verse-end -->
 
 ---
