@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let, then, the deniers of the truth have their will: let them have their will for a little while.* — **At-Taariq (86:17)**
+> 📖 *A record [indelibly] inscribed,* — **Al-Mutaffifin (83:20)**
 <!-- quran-verse-end -->
 
 ---
