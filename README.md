@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Follow those who ask no reward of you, and themselves are rightly guided!* — **Yaseen (36:21)**
+> 📖 *O men! Verily, God’s promise [of resurrection] is true indeed: let not, then, the life of this world delude you, and let not [your own] deceptive thoughts about God delude you!* — **Faatir (35:5)**
 <!-- quran-verse-end -->
 
 ---
