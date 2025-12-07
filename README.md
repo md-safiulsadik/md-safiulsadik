@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *With thy Sustainer, on that Day, the journey's end will be!* — **Al-Qiyaama (75:12)**
+> 📖 *Does he, then, think that no one sees him?* — **Al-Balad (90:7)**
 <!-- quran-verse-end -->
 
 ---
