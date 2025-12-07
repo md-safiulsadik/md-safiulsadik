@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But nay! Verily, all [that awaits him] is a raging flame,* — **Al-Ma'aarij (70:15)**
+> 📖 *And thereupon, when those [sinners] had forgotten all that they had been told to take to. heart, We saved those who had tried to prevent the doing of evil, and overwhelmed those who had been bent on evildoing with dreadful suffering for all their iniquity;* — **Al-A'raaf (7:165)**
 <!-- quran-verse-end -->
 
 ---
