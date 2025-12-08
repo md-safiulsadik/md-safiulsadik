@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *obedience [to God’s call] and a word that could win [His] approval: for, since the matter has been resolved [by His revelation], it would be but for their own good to remain true to God.* — **Muhammad (47:21)**
+> 📖 *a welcome of burning despair [awaits him in the life to come,]* — **Al-Waaqia (56:93)**
 <!-- quran-verse-end -->
 
 ---
