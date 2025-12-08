@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“Behold, this is my brother: he has ninety-nine ewes, whereas I have [only] one ewe - and yet he said, ‘Make her over to me,’ and forcibly prevailed against me in this [our] dispute.”* — **Saad (38:23)**
+> 📖 *on that Day will she recount all her tidings,* — **Az-Zalzala (99:4)**
 <!-- quran-verse-end -->
 
 ---
