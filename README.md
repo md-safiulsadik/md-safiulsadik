@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the heavens and that which comes in the night!* — **At-Taariq (86:1)**
+> 📖 *And He it is who causes the night and the day to succeed one another, [revealing Himself in His works] unto him who has the will to take thought - that is has the will to be grateful.* — **Al-Furqaan (25:62)**
 <!-- quran-verse-end -->
 
 ---
