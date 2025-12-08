@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but they [who refuse to believe in resurrection] have been wont to give the lie to this truth whenever it was proffered to them; and so they are in a state of confusion.* — **Qaaf (50:5)**
+> 📖 *obedience [to God’s call] and a word that could win [His] approval: for, since the matter has been resolved [by His revelation], it would be but for their own good to remain true to God.* — **Muhammad (47:21)**
 <!-- quran-verse-end -->
 
 ---
