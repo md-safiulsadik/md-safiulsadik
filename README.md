@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *two [gardens] of the deepest green.* — **Ar-Rahmaan (55:64)**
+> 📖 *CONSIDER the heavens and that which comes in the night!* — **At-Taariq (86:1)**
 <!-- quran-verse-end -->
 
 ---
