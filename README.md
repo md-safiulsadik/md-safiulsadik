@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *a welcome of burning despair [awaits him in the life to come,]* — **Al-Waaqia (56:93)**
+> 📖 *"'What is amiss with you that you cannot look forward to God's majesty,* — **Nooh (71:13)**
 <!-- quran-verse-end -->
 
 ---
