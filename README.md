@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on that Day will she recount all her tidings,* — **Az-Zalzala (99:4)**
+> 📖 *Hence, indeed, We made this Qur’an easy to bear in mind: who, then, is willing to take it to heart?* — **Al-Qamar (54:22)**
 <!-- quran-verse-end -->
 
 ---
