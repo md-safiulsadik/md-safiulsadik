@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, We create man in the best conformation;* — **At-Tin (95:4)**
+> 📖 *It is [such as] these upon whom the sentence [of doom] will fall due, together with the [other sinful] communities of invisible beings and humans that have passed away before their time. Verily, they will be lost:* — **Al-Ahqaf (46:18)**
 <!-- quran-verse-end -->
 
 ---
