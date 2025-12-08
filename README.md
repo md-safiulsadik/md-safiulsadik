@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And withal, they were not enjoined aught but that they should worship God, sincere in their faith in Him alone, turning away from all that is false; and that they should be constant in prayer; and that they should spend in charity: for this is a moral law endowed with ever-true soundness and clarity.* — **Al-Bayyina (98:5)**
+> 📖 *But [since] good and evil cannot be equal, repel thou [evil] with something that is better and lo! he between whom and thyself was enmity [may then become] as though he had [always] been close [unto thee], a true friend!* — **Fussilat (41:34)**
 <!-- quran-verse-end -->
 
 ---
