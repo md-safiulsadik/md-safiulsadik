@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O men! Verily, God’s promise [of resurrection] is true indeed: let not, then, the life of this world delude you, and let not [your own] deceptive thoughts about God delude you!* — **Faatir (35:5)**
+> 📖 *It is God who [at all times works wonders for you: thus, He] provides for you [all manner of] livestock, so that on some of them you may ride, and from some derive your food,* — **Ghafir (40:79)**
 <!-- quran-verse-end -->
 
 ---
