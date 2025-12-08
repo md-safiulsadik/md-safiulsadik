@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In the end you will indeed, most surely, behold it with the eye of certainty:* — **At-Takaathur (102:7)**
+> 📖 *A flash of fire will be let loose upon you, and smoke, and you will be left without succour!* — **Ar-Rahmaan (55:35)**
 <!-- quran-verse-end -->
 
 ---
