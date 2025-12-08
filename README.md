@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is [such as] these upon whom the sentence [of doom] will fall due, together with the [other sinful] communities of invisible beings and humans that have passed away before their time. Verily, they will be lost:* — **Al-Ahqaf (46:18)**
+> 📖 *O YOU who have attained to faith! Let not your worldly goods or your children make you oblivious of the remembrance of God: for If any behave thus - it is they, they who are the losers!* — **Al-Munaafiqoon (63:9)**
 <!-- quran-verse-end -->
 
 ---
