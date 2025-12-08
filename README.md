@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is God who [at all times works wonders for you: thus, He] provides for you [all manner of] livestock, so that on some of them you may ride, and from some derive your food,* — **Ghafir (40:79)**
+> 📖 *two [gardens] of the deepest green.* — **Ar-Rahmaan (55:64)**
 <!-- quran-verse-end -->
 
 ---
