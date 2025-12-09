@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “This is a message tremendous:* — **Saad (38:67)**
+> 📖 *and who, whenever tyranny afflicts them, defend themselves.* — **Ash-Shura (42:39)**
 <!-- quran-verse-end -->
 
 ---
