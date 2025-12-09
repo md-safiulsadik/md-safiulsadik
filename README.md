@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Whereupon] they will exclaim: “O our Sus­tainer! Twice hast Thou caused us to die, just as twice Thou hast brought us to life!* — **Ghafir (40:11)**
+> 📖 *and thereupon We let loose upon them a storm wind raging through days of misfortune, so as to give them, in the life of this world, a foretaste of suffering through humiliation: but [their] suffering in the life to come will be far more humiliating, and they will have none to succour them.* — **Fussilat (41:16)**
 <!-- quran-verse-end -->
 
 ---
