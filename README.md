@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and he who shall have done an atom's weight of evil, shall behold it.* — **Az-Zalzala (99:8)**
+> 📖 *[As for your adopted children,] call them by their [real] fathers’ names: this is more equitable in the sight of God; and if you know not who their fathers were, [call them] your brethren in faith and your friends. However, you will incur no sin if you err in this respect: [what really matters is] but what your hearts intend - for God is indeed much-forgiv­ing, a dispenser of grace!* — **Al-Ahzaab (33:5)**
 <!-- quran-verse-end -->
 
 ---
