@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NAY, but [most of] you love this fleeting life,* — **Al-Qiyaama (75:20)**
+> 📖 *INDEED, [O you sinners,] We have conveyed the truth unto you; but most of you abhor the truth.* — **Az-Zukhruf (43:78)**
 <!-- quran-verse-end -->
 
 ---
