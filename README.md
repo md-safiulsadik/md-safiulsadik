@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereupon We let loose upon them a storm wind raging through days of misfortune, so as to give them, in the life of this world, a foretaste of suffering through humiliation: but [their] suffering in the life to come will be far more humiliating, and they will have none to succour them.* — **Fussilat (41:16)**
+> 📖 *And [in time] We gave him the glad tiding of Isaac, [who, too, would be] a prophet, one of the righteous;* — **As-Saaffaat (37:112)**
 <!-- quran-verse-end -->
 
 ---
