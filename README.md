@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *INDEED, [O you sinners,] We have conveyed the truth unto you; but most of you abhor the truth.* — **Az-Zukhruf (43:78)**
+> 📖 *and [that] We have set up the sky as a canopy well-secured? And yet, they stubbornly turn away from [all] the signs of this [creation],* — **Al-Anbiyaa (21:32)**
 <!-- quran-verse-end -->
 
 ---
