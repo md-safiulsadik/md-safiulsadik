@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [that] We have set up the sky as a canopy well-secured? And yet, they stubbornly turn away from [all] the signs of this [creation],* — **Al-Anbiyaa (21:32)**
+> 📖 *But men have torn their unity wide asunder, [forgetting that] unto Us they all are bound to return.* — **Al-Anbiyaa (21:93)**
 <!-- quran-verse-end -->
 
 ---
