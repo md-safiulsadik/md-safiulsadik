@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and as for the ‘Ad - they were destroyed by a storm wind furiously raging,* — **Al-Haaqqa (69:6)**
+> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
 <!-- quran-verse-end -->
 
 ---
