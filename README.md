@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, man is born with a restless disposition.* — **Al-Ma'aarij (70:19)**
+> 📖 *Say: “This is a message tremendous:* — **Saad (38:67)**
 <!-- quran-verse-end -->
 
 ---
