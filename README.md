@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *How, then, if you refuse to acknowledge the truth, will you protect yourselves on that Day which shall turn the hair of children grey,* — **Al-Muzzammil (73:17)**
+> 📖 *NAY, but [most of] you love this fleeting life,* — **Al-Qiyaama (75:20)**
 <!-- quran-verse-end -->
 
 ---
