@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the sun and the moon are brought together* — **Al-Qiyaama (75:9)**
+> 📖 *VERILY, man is born with a restless disposition.* — **Al-Ma'aarij (70:19)**
 <!-- quran-verse-end -->
 
 ---
