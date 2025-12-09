@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who, whenever tyranny afflicts them, defend themselves.* — **Ash-Shura (42:39)**
+> 📖 *and the night as it veils it darkly!* — **Ash-Shams (91:4)**
 <!-- quran-verse-end -->
 
 ---
