@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [in time] We gave him the glad tiding of Isaac, [who, too, would be] a prophet, one of the righteous;* — **As-Saaffaat (37:112)**
+> 📖 *and the day as it rises bright!* — **Al-Lail (92:2)**
 <!-- quran-verse-end -->
 
 ---
