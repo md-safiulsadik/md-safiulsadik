@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the day as it rises bright!* — **Al-Lail (92:2)**
+> 📖 *and as for the ‘Ad - they were destroyed by a storm wind furiously raging,* — **Al-Haaqqa (69:6)**
 <!-- quran-verse-end -->
 
 ---
