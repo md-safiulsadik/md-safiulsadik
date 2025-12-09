@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But men have torn their unity wide asunder, [forgetting that] unto Us they all are bound to return.* — **Al-Anbiyaa (21:93)**
+> 📖 *and he who shall have done an atom's weight of evil, shall behold it.* — **Az-Zalzala (99:8)**
 <!-- quran-verse-end -->
 
 ---
