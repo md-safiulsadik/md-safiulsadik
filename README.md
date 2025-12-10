@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
+> 📖 *CONSIDER the heavens and that which comes in the night!* — **At-Taariq (86:1)**
 <!-- quran-verse-end -->
 
 ---
