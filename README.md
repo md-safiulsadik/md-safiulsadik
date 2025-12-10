@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND NOW ask them to enlighten thee: Has thy Sustainer daughters, whereas they would have [only] sons?* — **As-Saaffaat (37:149)**
+> 📖 *Every human being is bound to taste death; and We test you [all] through the bad and the good [things of life] by way of trial: and unto Us you all must return.* — **Al-Anbiyaa (21:35)**
 <!-- quran-verse-end -->
 
 ---
