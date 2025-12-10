@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [remember] him of the great fish when he went off in wrath, thinking that We had no power over him! But then heeded out in the deep darkness [of his distress]: “There is no deity save Thee! Limit­less art Thou in Thy glory! Verily, I have done wrong!”* — **Al-Anbiyaa (21:87)**
+> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
 <!-- quran-verse-end -->
 
 ---
