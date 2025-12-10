@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And it is He who sends down rain after [men] have lost all hope, and unfolds His grace [thereby]: for He alone is [their] Protector, the One to whom all praise is due.* — **Ash-Shura (42:28)**
+> 📖 *AND [remember] him of the great fish when he went off in wrath, thinking that We had no power over him! But then heeded out in the deep darkness [of his distress]: “There is no deity save Thee! Limit­less art Thou in Thy glory! Verily, I have done wrong!”* — **Al-Anbiyaa (21:87)**
 <!-- quran-verse-end -->
 
 ---
