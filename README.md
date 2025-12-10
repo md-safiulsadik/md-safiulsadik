@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
+> 📖 *AND NOW ask them to enlighten thee: Has thy Sustainer daughters, whereas they would have [only] sons?* — **As-Saaffaat (37:149)**
 <!-- quran-verse-end -->
 
 ---
