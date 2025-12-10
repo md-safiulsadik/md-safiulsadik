@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and yet overtake [one another] with swift overtaking:* — **An-Naazi'aat (79:4)**
+> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:77)**
 <!-- quran-verse-end -->
 
 ---
