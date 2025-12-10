@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] he added: "Tell me, is this [foolish being] the one whom Thou hast exalted above me? Indeed, if Thou wilt but allow me a respite till the Day of Resurrection, I shall most certainly cause his descendants-all but a few-to obey me blindly!* — **Al-Israa (17:62)**
+> 📖 *THESE ARE MESSAGES of the divine writ, full of wisdom,* — **Luqman (31:2)**
 <!-- quran-verse-end -->
 
 ---
