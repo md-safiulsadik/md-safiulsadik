@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *INDEED, well-pleased was God with the believers when they pledged their allegiance unto thee [O Muhammad] under that tree, for He knew what was in their hearts; and so He bestowed inner peace upon them from on high, and rewarded them with [the glad tiding of] a victory soon to come* — **Al-Fath (48:18)**
+> 📖 *or thou have a house [made] of gold, or thou ascend to heaven - but nay, we would not [even] believe in thy ascension unless thou bring down to us [from heaven] a writing which we [ourselves] could read! Say thou, [O Prophet:] "Limitless in His glory is my Sustainer! Am I, then, aught but a mortal man, an apostle?"* — **Al-Israa (17:93)**
 <!-- quran-verse-end -->
 
 ---
