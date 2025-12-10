@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And upon thee [too] have We bestowed from on' high this divine writ for no other reason than that thou might make clear unto them all [questions of faith] on which they have come to hold divergent views, and [thus offer] guidance and grace unto people who will believe.* — **An-Nahl (16:64)**
+> 📖 *and yet overtake [one another] with swift overtaking:* — **An-Naazi'aat (79:4)**
 <!-- quran-verse-end -->
 
 ---
