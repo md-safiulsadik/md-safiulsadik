@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Every human being is bound to taste death; and We test you [all] through the bad and the good [things of life] by way of trial: and unto Us you all must return.* — **Al-Anbiyaa (21:35)**
+> 📖 *[And] he added: "Tell me, is this [foolish being] the one whom Thou hast exalted above me? Indeed, if Thou wilt but allow me a respite till the Day of Resurrection, I shall most certainly cause his descendants-all but a few-to obey me blindly!* — **Al-Israa (17:62)**
 <!-- quran-verse-end -->
 
 ---
