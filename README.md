@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
+> 📖 *CONSIDER the winds that scatter the dust far and wide,* — **Adh-Dhaariyat (51:1)**
 <!-- quran-verse-end -->
 
 ---
