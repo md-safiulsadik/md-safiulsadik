@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Ward off from yourselves and those who are close to you that fire [of the hereafter] whose fuel is human beings and stones: [lording] over it are angelic powers awesome [and] severe, who do not disobey God in whatever He has commanded them, but [always] do what they are bidden to do.* — **At-Tahrim (66:6)**
+> 📖 *[And God will thus command:] “Assemble all those who were bent on evildoing, together with others of their ilk and [with] all that they were wont to worship* — **As-Saaffaat (37:22)**
 <!-- quran-verse-end -->
 
 ---
