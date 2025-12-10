@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the moon as it reflects the sun!* — **Ash-Shams (91:2)**
+> 📖 *INDEED, well-pleased was God with the believers when they pledged their allegiance unto thee [O Muhammad] under that tree, for He knew what was in their hearts; and so He bestowed inner peace upon them from on high, and rewarded them with [the glad tiding of] a victory soon to come* — **Al-Fath (48:18)**
 <!-- quran-verse-end -->
 
 ---
