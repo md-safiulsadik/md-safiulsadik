@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THESE ARE MESSAGES of the divine writ, full of wisdom,* — **Luqman (31:2)**
+> 📖 *and the moon as it reflects the sun!* — **Ash-Shams (91:2)**
 <!-- quran-verse-end -->
 
 ---
