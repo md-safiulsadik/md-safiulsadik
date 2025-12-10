@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Who is there that could keep you away from God if it be His will to harm you, or if it be His will to show you mercy?” For, [do they not know that] besides God they can find none to protect them, and none to bring them succour?* — **Al-Ahzaab (33:17)**
+> 📖 *And upon thee [too] have We bestowed from on' high this divine writ for no other reason than that thou might make clear unto them all [questions of faith] on which they have come to hold divergent views, and [thus offer] guidance and grace unto people who will believe.* — **An-Nahl (16:64)**
 <!-- quran-verse-end -->
 
 ---
