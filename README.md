@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the winds that scatter the dust far and wide,* — **Adh-Dhaariyat (51:1)**
+> 📖 *Say: “Who is there that could keep you away from God if it be His will to harm you, or if it be His will to show you mercy?” For, [do they not know that] besides God they can find none to protect them, and none to bring them succour?* — **Al-Ahzaab (33:17)**
 <!-- quran-verse-end -->
 
 ---
