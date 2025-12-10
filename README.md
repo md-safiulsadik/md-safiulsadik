@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And God will thus command:] “Assemble all those who were bent on evildoing, together with others of their ilk and [with] all that they were wont to worship* — **As-Saaffaat (37:22)**
+> 📖 *But as against this - anyone who repents and attains to faith and does righteous deeds may well [hope to] find himself among those who achieve a happy state [in the life to come].* — **Al-Qasas (28:67)**
 <!-- quran-verse-end -->
 
 ---
