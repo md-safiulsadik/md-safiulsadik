@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Abraham] replied: "Peace be upon thee! I shall ask my Sustainer to forgive thee: for, behold, He has always been kind unto me.* — **Maryam (19:47)**
+> 📖 *And when they threw down [their staffs and cast a spell upon the people's eyes], Moses said unto them: "What you have contrived is [but] sorcery which, verily, God will bring to nought! Verily, God does not further the works of spreaders of corruption -* — **Yunus (10:81)**
 <!-- quran-verse-end -->
 
 ---
