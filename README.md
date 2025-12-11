@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and a tongue, and a pair of lips,* — **Al-Balad (90:9)**
+> 📖 *And they who [in their life on earth] were bent on denying the truth will [thereupon] exclaim: “O our Sustainer! Show us those of the invisible beings and humans that have led us astray: we shall trample them underfoot, so that they shall be the lowest of all!”* — **Fussilat (41:29)**
 <!-- quran-verse-end -->
 
 ---
