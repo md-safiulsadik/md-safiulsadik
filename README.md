@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! When the call to prayer is sounded on the day of congregation, hasten to the remembrance of God, and leave all worldly commerce: this is for your own good, if you but knew it.* — **Al-Jumu'a (62:9)**
+> 📖 *God is indeed aware of those of you who would divert others [from fighting in His cause], as well as of those who say to their brethren, “Come hither to us [and face the enemy]!” — The while they [themselves] join battle but seldom,* — **Al-Ahzaab (33:18)**
 <!-- quran-verse-end -->
 
 ---
