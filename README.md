@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And they who [in their life on earth] were bent on denying the truth will [thereupon] exclaim: “O our Sustainer! Show us those of the invisible beings and humans that have led us astray: we shall trample them underfoot, so that they shall be the lowest of all!”* — **Fussilat (41:29)**
+> 📖 *He it is who turned out of their homes, at the time of [their] first gathering [for war], such of the followers of earlier revelation as were bent on denying the truth. You did not think [O believers] that they would depart [without resistance] - just as they thought that their strongholds would protect them against God: but God came upon them in a manner which they had not expected, and cast terror into their hearts; [and thus] they destroyed their homes by their own hands as well as the hands of the believers. Learn a lesson, then, O you who are endowed with insight!* — **Al-Hashr (59:2)**
 <!-- quran-verse-end -->
 
 ---
