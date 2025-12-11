@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said [Abraham]: “Do you then worship, instead of God, something that cannot benefit you in any way, nor harm you?* — **Al-Anbiyaa (21:66)**
+> 📖 *WE SHALL teach thee, and thou wilt not forget [aught of what thou art taught],* — **Al-A'laa (87:6)**
 <!-- quran-verse-end -->
 
 ---
