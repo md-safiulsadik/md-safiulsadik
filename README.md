@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God is indeed aware of those of you who would divert others [from fighting in His cause], as well as of those who say to their brethren, “Come hither to us [and face the enemy]!” — The while they [themselves] join battle but seldom,* — **Al-Ahzaab (33:18)**
+> 📖 *and which they shall not [be able to] evade.* — **Al-Infitaar (82:16)**
 <!-- quran-verse-end -->
 
 ---
