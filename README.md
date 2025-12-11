@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now as for those who indulge in sinful doings - do they think that We place them, both in their life and their death, on an equal footing with those who have attained to faith and do righteous deeds? Bad, indeed, is their judgment:* — **Al-Jaathiya (45:21)**
+> 📖 *And were it not for God’s favour upon you, [O men,] and His grace in this world and in the life to come, awesome suffering would indeed have afflicted you in result of all [the calumny] in which you indulge* — **An-Noor (24:14)**
 <!-- quran-verse-end -->
 
 ---
