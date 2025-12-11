@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *LET MAN, then, observe out of what he has been created:* — **At-Taariq (86:5)**
+> 📖 *and a tongue, and a pair of lips,* — **Al-Balad (90:9)**
 <!-- quran-verse-end -->
 
 ---
