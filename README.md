@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WE SHALL teach thee, and thou wilt not forget [aught of what thou art taught],* — **Al-A'laa (87:6)**
+> 📖 *that on that Day their Sustainer [will show that He] has always been fully aware of them?* — **Al-Aadiyaat (100:11)**
 <!-- quran-verse-end -->
 
 ---
