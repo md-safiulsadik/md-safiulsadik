@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.* — **Al-Qadr (97:1)**
+> 📖 *O YOU who have attained to faith! When the call to prayer is sounded on the day of congregation, hasten to the remembrance of God, and leave all worldly commerce: this is for your own good, if you but knew it.* — **Al-Jumu'a (62:9)**
 <!-- quran-verse-end -->
 
 ---
