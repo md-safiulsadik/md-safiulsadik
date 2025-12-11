@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and which they shall not [be able to] evade.* — **Al-Infitaar (82:16)**
+> 📖 *Behold, I am an apostle [sent by Him] to you, [and therefore] worthy of your trust:* — **Ash-Shu'araa (26:125)**
 <!-- quran-verse-end -->
 
 ---
