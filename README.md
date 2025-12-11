@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *His is the dominion over the heavens and the earth; He grants life and deals death; and He has the power to will anything.* — **Al-Hadid (57:2)**
+> 📖 *EVEN AS thy Sustainer brought thee forth from thy home [to fight] in the cause of the truth, although some of the believers were averse to it,* — **Al-Anfaal (8:5)**
 <!-- quran-verse-end -->
 
 ---
