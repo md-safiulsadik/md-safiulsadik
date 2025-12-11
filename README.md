@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?* — **Al-Fil (105:1)**
+> 📖 *LET MAN, then, observe out of what he has been created:* — **At-Taariq (86:5)**
 <!-- quran-verse-end -->
 
 ---
