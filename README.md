@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Enjoy, then, all that is lawful and good among the things which you have gained in war, and remain conscious of God: verily, God is much-forgiving, a dispenser of grace.* — **Al-Anfaal (8:69)**
+> 📖 *His is the dominion over the heavens and the earth; He grants life and deals death; and He has the power to will anything.* — **Al-Hadid (57:2)**
 <!-- quran-verse-end -->
 
 ---
