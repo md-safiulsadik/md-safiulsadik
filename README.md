@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And when they threw down [their staffs and cast a spell upon the people's eyes], Moses said unto them: "What you have contrived is [but] sorcery which, verily, God will bring to nought! Verily, God does not further the works of spreaders of corruption -* — **Yunus (10:81)**
+> 📖 *Said [Abraham]: “Do you then worship, instead of God, something that cannot benefit you in any way, nor harm you?* — **Al-Anbiyaa (21:66)**
 <!-- quran-verse-end -->
 
 ---
