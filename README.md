@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "He is the One God:* — **Al-Ikhlaas (112:1)**
+> 📖 *ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?* — **Al-Fil (105:1)**
 <!-- quran-verse-end -->
 
 ---
