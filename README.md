@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *as thy Sustainer will have inspired her to do!* — **Az-Zalzala (99:5)**
+> 📖 *and, withal, deny all assistance [to their fellow-men]!* — **Al-Maa'un (107:7)**
 <!-- quran-verse-end -->
 
 ---
