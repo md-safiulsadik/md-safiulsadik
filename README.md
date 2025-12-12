@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thereupon We caused the earth to swallow him and his dwelling; and he had none and nothing to succour him against God, nor was he of those who could succour themselves.* — **Al-Qasas (28:81)**
+> 📖 *[But] the arrogant ones said: "Behold, what you have come to believe in we refuse to regard as true!"* — **Al-A'raaf (7:76)**
 <!-- quran-verse-end -->
 
 ---
