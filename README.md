@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "O you who follow the Jewish faith! If you claim that you [alone] are close to God, to the exclusion of all other people, then you should be longing for death - if what you say is true!"* — **Al-Jumu'a (62:6)**
+> 📖 *[and] by virtue thereof He causes crops to grow for you, and olive trees, and date palms, and grapes, and all [other] kinds of fruit: in this, behold, there is a message indeed for people who think!* — **An-Nahl (16:11)**
 <!-- quran-verse-end -->
 
 ---
