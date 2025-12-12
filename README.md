@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But] the arrogant ones said: "Behold, what you have come to believe in we refuse to regard as true!"* — **Al-A'raaf (7:76)**
+> 📖 *and how it is imbued with moral failings as well as with consciousness of God!* — **Ash-Shams (91:8)**
 <!-- quran-verse-end -->
 
 ---
