@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and, withal, deny all assistance [to their fellow-men]!* — **Al-Maa'un (107:7)**
+> 📖 *he has been created out of a seminal fluid* — **At-Taariq (86:6)**
 <!-- quran-verse-end -->
 
 ---
