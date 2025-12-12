@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is He who from on high has bestowed inner peace upon the hearts of the believers, so that - seeing that God’s are all the forces of the heavens and the earth, and that God is all-knowing, truly wise - they might grow yet more firm in their faith;* — **Al-Fath (48:4)**
+> 📖 *And thereupon We caused the earth to swallow him and his dwelling; and he had none and nothing to succour him against God, nor was he of those who could succour themselves.* — **Al-Qasas (28:81)**
 <!-- quran-verse-end -->
 
 ---
