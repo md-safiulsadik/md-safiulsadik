@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is God who has raised the heavens without any supports that you could see, and is established on the throne of His almightiness; and He [it is who] has made the sun and the moon subservient [to His laws], each running its course for a term set [by Him]. He governs all that exists. Clearly does He spell out these messages, so that you might be certain in your innermost that you are destined to meet your Sustainer [on Judgment Day].* — **Ar-Ra'd (13:2)**
+> 📖 *It is He who from on high has bestowed inner peace upon the hearts of the believers, so that - seeing that God’s are all the forces of the heavens and the earth, and that God is all-knowing, truly wise - they might grow yet more firm in their faith;* — **Al-Fath (48:4)**
 <!-- quran-verse-end -->
 
 ---
