@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas those who are bent on denying the truth will not cease to be in doubt about Him until the Last Hour comes suddenly upon them and [supreme] suffering befalls them on a Day void of all hope.* — **Al-Hajj (22:55)**
+> 📖 *Say: "O you who follow the Jewish faith! If you claim that you [alone] are close to God, to the exclusion of all other people, then you should be longing for death - if what you say is true!"* — **Al-Jumu'a (62:6)**
 <!-- quran-verse-end -->
 
 ---
