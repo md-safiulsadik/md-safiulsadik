@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[all] save such of them as are truly Thy servants!”* — **Saad (38:83)**
+> 📖 *VERILY, [O believer,] He who has laid down this Qur’an in plain terms, making it binding on thee, will assuredly bring thee back [from death] to a life renewed. Say [unto those who reject the truth]: My Sus­tainer knows best, as to who is right-guided and who is obviously lost in error!”* — **Al-Qasas (28:85)**
 <!-- quran-verse-end -->
 
 ---
