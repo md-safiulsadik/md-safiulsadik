@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, a barrier will be set between them and all that they had [ever] desired, as will be done to such of their kind as lived before their time: for, behold, they [too] were lost in doubt amounting to suspicion.* — **Saba (34:54)**
+> 📖 *[all] save such of them as are truly Thy servants!”* — **Saad (38:83)**
 <!-- quran-verse-end -->
 
 ---
