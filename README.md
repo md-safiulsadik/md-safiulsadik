@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He it is who turned out of their homes, at the time of [their] first gathering [for war], such of the followers of earlier revelation as were bent on denying the truth. You did not think [O believers] that they would depart [without resistance] - just as they thought that their strongholds would protect them against God: but God came upon them in a manner which they had not expected, and cast terror into their hearts; [and thus] they destroyed their homes by their own hands as well as the hands of the believers. Learn a lesson, then, O you who are endowed with insight!* — **Al-Hashr (59:2)**
+> 📖 *whereas those who are bent on denying the truth will not cease to be in doubt about Him until the Last Hour comes suddenly upon them and [supreme] suffering befalls them on a Day void of all hope.* — **Al-Hajj (22:55)**
 <!-- quran-verse-end -->
 
 ---
