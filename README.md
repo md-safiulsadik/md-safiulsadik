@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, with Him are the keys to the things that are beyond the reach of a created being's perception: none knows them but He. And He knows all that is on land and in the sea; and not a leaf falls but He knows it; and neither is there a grain in the earth's deep darkness, nor anything: living or dead, but is recorded in [His] clear decree.* — **Al-An'aam (6:59)**
+> 📖 *[all this] as a means of livelihood for you and your animals.* — **An-Naazi'aat (79:33)**
 <!-- quran-verse-end -->
 
 ---
