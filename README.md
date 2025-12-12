@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and] by virtue thereof He causes crops to grow for you, and olive trees, and date palms, and grapes, and all [other] kinds of fruit: in this, behold, there is a message indeed for people who think!* — **An-Nahl (16:11)**
+> 📖 *He it is who has sent unto the unlettered people an apostle from among themselves, to convey unto them His messages, and to cause them to grow in purity, and to impart unto them the divine writ as well as wisdom - whereas before that they were indeed, most obviously, lost in error* — **Al-Jumu'a (62:2)**
 <!-- quran-verse-end -->
 
 ---
