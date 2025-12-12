@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:69)**
+> 📖 *His Being alone is such that when He wills a thing to be, He but says unto it, “Be” — and it is.* — **Yaseen (36:82)**
 <!-- quran-verse-end -->
 
 ---
