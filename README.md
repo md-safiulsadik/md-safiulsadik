@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *However, as for him who turns away, being bent on denying the truth,* — **Al-Ghaashiya (88:23)**
+> 📖 *As for such [of the unbelievers] as do not fight against you on account of [your] faith, and neither drive you forth from your homelands, God does not forbid you to show them kindness and to behave towards them with full equity: for, verily, God loves those who act equitably.* — **Al-Mumtahana (60:8)**
 <!-- quran-verse-end -->
 
 ---
