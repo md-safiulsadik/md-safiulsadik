@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the mountains will move with [an awesome] movement.* — **At-Tur (52:10)**
+> 📖 *But then, [if they deem it the work of a mere mortal,] let them produce another discourse like it - if what they say be true!* — **At-Tur (52:34)**
 <!-- quran-verse-end -->
 
 ---
