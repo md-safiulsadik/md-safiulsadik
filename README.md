@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *like giant fiery ropes!* — **Al-Mursalaat (77:33)**
+> 📖 *However, as for him who turns away, being bent on denying the truth,* — **Al-Ghaashiya (88:23)**
 <!-- quran-verse-end -->
 
 ---
