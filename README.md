@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and on that Day you will most surely be called to account for [what you did with] the boon of life!* — **At-Takaathur (102:8)**
+> 📖 *But those who do not believe that they are destined to meet Us are wont to say, “Why have no angels been sent down to us?” – or, “Why do we not see our Sustainer?” Indeed, they are far too proud of themselves, hav­ing rebelled [against God’s truth] with utter disdain!* — **Al-Furqaan (25:21)**
 <!-- quran-verse-end -->
 
 ---
