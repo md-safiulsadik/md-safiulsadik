@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[conveyed unto man] in a well-guarded divine writ* — **Al-Waaqia (56:78)**
+> 📖 *like giant fiery ropes!* — **Al-Mursalaat (77:33)**
 <!-- quran-verse-end -->
 
 ---
