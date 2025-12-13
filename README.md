@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Unto whom belongs the earth and all that lives there on? [Tell me this] if you happen to know [the answer]!”* — **Al-Muminoon (23:84)**
+> 📖 *He who desires might and glory [ought to know that] all might and glory belong to God [alone]. Unto Him ascend all good words, and the righteous deed does He exalt. But as for those who cunningly devise evil deeds - suffering severe awaits them; and all their devising is bound to come to nought.* — **Faatir (35:10)**
 <!-- quran-verse-end -->
 
 ---
