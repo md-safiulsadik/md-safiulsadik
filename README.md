@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, let not anyone who does not believe in its coming and follows [but] his own desires divert thee from [belief in] it, lest thou perish!* — **Taa-Haa (20:16)**
+> 📖 *for, when they are told, "Come, the Apostle of God will pray [unto God] that you be forgiven", they turn their heads away, and thou canst see how they draw back in their false pride.* — **Al-Munaafiqoon (63:5)**
 <!-- quran-verse-end -->
 
 ---
