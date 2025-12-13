@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *So he watered [their flock] for them: and when he withdrew into the shade and prayed: “O my Sus­tainer! Verily, in dire need am I of any good which Thou mayest bestow upon me!”* — **Al-Qasas (28:24)**
+> 📖 *Hence, place thy trust in the Living One who dies not, and extol His limitless glory and praise: for none is as aware as His creatures’ sins as He –* — **Al-Furqaan (25:58)**
 <!-- quran-verse-end -->
 
 ---
