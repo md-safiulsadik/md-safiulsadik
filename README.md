@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *a servant [of God] from praying?* — **Al-Alaq (96:10)**
+> 📖 *and carpets spread out…* — **Al-Ghaashiya (88:16)**
 <!-- quran-verse-end -->
 
 ---
