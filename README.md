@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And found thee lost on thy way, and guided thee?* — **Ad-Dhuhaa (93:7)**
+> 📖 *But God knows best who are your enemies: and none can befriend as God does, and none can give succour as God does.* — **An-Nisaa (4:45)**
 <!-- quran-verse-end -->
 
 ---
