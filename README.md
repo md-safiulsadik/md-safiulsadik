@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAS IT ever come within thy ken, the story of the [sinful] hosts* — **Al-Burooj (85:17)**
+> 📖 *Thereupon he came out of the sanctuary unto his people and signified to them [by gestures]: "Extol His limitless glory by day and by night!"* — **Maryam (19:11)**
 <!-- quran-verse-end -->
 
 ---
