@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 Could not fetch verse at this time. — ****
+> 📖 *as thy Sustainer will have inspired her to do!* — **Az-Zalzala (99:5)**
 <!-- quran-verse-end -->
 
 ---
