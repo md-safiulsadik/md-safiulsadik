@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HALLOWED be thy Sustainer’s name, full of majesty and glory!* — **Ar-Rahmaan (55:78)**
+> 📖 *Now as for those who indulge in sinful doings - do they think that We place them, both in their life and their death, on an equal footing with those who have attained to faith and do righteous deeds? Bad, indeed, is their judgment:* — **Al-Jaathiya (45:21)**
 <!-- quran-verse-end -->
 
 ---
