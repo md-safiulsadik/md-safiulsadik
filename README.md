@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, verily, He alone is all-hearing, all-knowing!* — **Ash-Shu'araa (26:220)**
+> 📖 *And found thee lost on thy way, and guided thee?* — **Ad-Dhuhaa (93:7)**
 <!-- quran-verse-end -->
 
 ---
