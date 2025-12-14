@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But God knows best who are your enemies: and none can befriend as God does, and none can give succour as God does.* — **An-Nisaa (4:45)**
+> 📖 *Grant Thy forgiveness unto me, and my parents, and all the believers, on the Day on which the [last] reckoning will come to pass!"* — **Ibrahim (14:41)**
 <!-- quran-verse-end -->
 
 ---
