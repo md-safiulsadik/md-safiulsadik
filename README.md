@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Grant Thy forgiveness unto me, and my parents, and all the believers, on the Day on which the [last] reckoning will come to pass!"* — **Ibrahim (14:41)**
+> 📖 *How [else could it be]? -since, if they [who are hostile to you] were to overcome you, they would not respect any tie [with you,] nor any obligation to protect [you]. They seek to please you with their mouths, the while their hearts remain averse [to you]; and most of them are iniquitous.* — **At-Tawba (9:8)**
 <!-- quran-verse-end -->
 
 ---
