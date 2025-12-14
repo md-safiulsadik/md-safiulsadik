@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 Could not fetch verse at this time. — ****
+> 📖 *And so, of no benefit to them could be the intercession of any that would intercede for them.* — **Al-Muddaththir (74:48)**
 <!-- quran-verse-end -->
 
 ---
