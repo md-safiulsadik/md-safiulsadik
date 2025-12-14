@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *How [else could it be]? -since, if they [who are hostile to you] were to overcome you, they would not respect any tie [with you,] nor any obligation to protect [you]. They seek to please you with their mouths, the while their hearts remain averse [to you]; and most of them are iniquitous.* — **At-Tawba (9:8)**
+> 📖 *HAS IT ever come within thy ken, the story of the [sinful] hosts* — **Al-Burooj (85:17)**
 <!-- quran-verse-end -->
 
 ---
