@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thereupon he came out of the sanctuary unto his people and signified to them [by gestures]: "Extol His limitless glory by day and by night!"* — **Maryam (19:11)**
+> 📖 *REMIND, THEN, [others of the truth, regardless of] whether this reminding [would seem to] be of use [or not]:* — **Al-A'laa (87:9)**
 <!-- quran-verse-end -->
 
 ---
