@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on that Day will she recount all her tidings,* — **Az-Zalzala (99:4)**
+> 📖 *HALLOWED be thy Sustainer’s name, full of majesty and glory!* — **Ar-Rahmaan (55:78)**
 <!-- quran-verse-end -->
 
 ---
