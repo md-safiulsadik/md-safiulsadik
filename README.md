@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 Could not fetch verse at this time. — ****
+> 📖 *and [man] will have neither strength nor helper!* — **At-Taariq (86:10)**
 <!-- quran-verse-end -->
 
 ---
