@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
+> 📖 *and would pray for forgiveness from their innermost hearts;* — **Adh-Dhaariyat (51:18)**
 <!-- quran-verse-end -->
 
 ---
