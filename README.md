@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, God loves [only] those who fight in His cause in [solid] ranks, as though they were a building firm and compact.* — **As-Saff (61:4)**
+> 📖 *And there is no living creature on earth but depends for its sustenance on God; and He knows its time-limit [on earth] and its resting-place [after death]: all [this] is laid down in [His] clear decree.* — **Hud (11:6)**
 <!-- quran-verse-end -->
 
 ---
