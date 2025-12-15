@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and would pray for forgiveness from their innermost hearts;* — **Adh-Dhaariyat (51:18)**
+> 📖 *Not so, however, those who consciously turn towards God in prayer.* — **Al-Ma'aarij (70:22)**
 <!-- quran-verse-end -->
 
 ---
