@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And there is no living creature on earth but depends for its sustenance on God; and He knows its time-limit [on earth] and its resting-place [after death]: all [this] is laid down in [His] clear decree.* — **Hud (11:6)**
+> 📖 *Woe on that Day unto those who give the lie to the truth –* — **Al-Mutaffifin (83:10)**
 <!-- quran-verse-end -->
 
 ---
