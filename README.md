@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Woe on that Day unto those who give the lie to the truth –* — **Al-Mutaffifin (83:10)**
+> 📖 *Alif. Lam. Mim.* — **Ar-Room (30:1)**
 <!-- quran-verse-end -->
 
 ---
