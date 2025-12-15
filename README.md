@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He answered: "As for him who does wrong [unto others] - him shall we, in time, cause to suffer; and thereupon he shall be referred to his Sustainer, and He will cause him to suffer with unnameable suffering.* — **Al-Kahf (18:87)**
+> 📖 *AND LO! We accepted your solemn pledge, raising Mount Sinai high above you, [and saying;] "Hold fast with [all your] strength unto what We have vouchsafed you, and bear in mind all that is therein, so that you might remain conscious of God!"* — **Al-Baqara (2:63)**
 <!-- quran-verse-end -->
 
 ---
