@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *secure in their winter and summer journeys,* — **Quraish (106:2)**
+> 📖 *[And after a time, Noah] said: "O my Sustainer! Verily, I have been calling unto my people night and day* — **Nooh (71:5)**
 <!-- quran-verse-end -->
 
 ---
