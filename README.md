@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And one part of him will say: “This it is that has been ever-present with me!”* — **Qaaf (50:23)**
+> 📖 *and thereupon We cause grain to grow out of it,* — **Abasa (80:27)**
 <!-- quran-verse-end -->
 
 ---
