@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NAY! I call to witness the Day of Resurrection!* — **Al-Qiyaama (75:1)**
+> 📖 *and then, behold, they shall enter the blazing fire* — **Al-Mutaffifin (83:16)**
 <!-- quran-verse-end -->
 
 ---
