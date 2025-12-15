@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[The hypocrites] swear to you by God [that they are acting in good faith], with a view to pleasing you [O believers] - the while it is God and His Apostle whose pleasure they should seek above all else, if indeed they are believers!* — **At-Tawba (9:62)**
+> 📖 *IT IS NOT [conceivable] that such as are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God should ever be abandoned [by Him] ere there comes unto them the [full] evidence of the truth:* — **Al-Bayyina (98:1)**
 <!-- quran-verse-end -->
 
 ---
