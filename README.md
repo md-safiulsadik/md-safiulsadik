@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereupon We cause grain to grow out of it,* — **Abasa (80:27)**
+> 📖 *And [so,] whenever Our messages are conveyed to them in all their clarity, their only argument is this: “Bring forth our fore­fathers [as witnesses], if what you claim is true!”* — **Al-Jaathiya (45:25)**
 <!-- quran-verse-end -->
 
 ---
