@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And after a time, Noah] said: "O my Sustainer! Verily, I have been calling unto my people night and day* — **Nooh (71:5)**
+> 📖 *Verily, God loves [only] those who fight in His cause in [solid] ranks, as though they were a building firm and compact.* — **As-Saff (61:4)**
 <!-- quran-verse-end -->
 
 ---
