@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND LO! We accepted your solemn pledge, raising Mount Sinai high above you, [and saying;] "Hold fast with [all your] strength unto what We have vouchsafed you, and bear in mind all that is therein, so that you might remain conscious of God!"* — **Al-Baqara (2:63)**
+> 📖 *NAY! I call to witness the Day of Resurrection!* — **Al-Qiyaama (75:1)**
 <!-- quran-verse-end -->
 
 ---
