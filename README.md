@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [man] will have neither strength nor helper!* — **At-Taariq (86:10)**
+> 📖 *[The hypocrites] swear to you by God [that they are acting in good faith], with a view to pleasing you [O believers] - the while it is God and His Apostle whose pleasure they should seek above all else, if indeed they are believers!* — **At-Tawba (9:62)**
 <!-- quran-verse-end -->
 
 ---
