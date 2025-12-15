@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Thus,] God grants firmness unto those who have attained to faith through the word that is unshakably true in the life of this world as well as in the life to come; but the wrongdoers He lets go astray: for God does whatever He wills.* — **Ibrahim (14:27)**
+> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
 <!-- quran-verse-end -->
 
 ---
