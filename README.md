@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
+> 📖 *And [remember the time] when We saved you from Pharaoh's people, who afflicted you with cruel suffering, slaughtering your sons and sparing [only] your women - which was an awesome trial from your Sustainer;* — **Al-Baqara (2:49)**
 <!-- quran-verse-end -->
 
 ---
