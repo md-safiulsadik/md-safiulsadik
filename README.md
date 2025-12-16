@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither will you [ever] worship that which I worship.* — **Al-Kaafiroon (109:5)**
+> 📖 *But does man not bear in mind that We have created him aforetime out of nothing?* — **Maryam (19:67)**
 <!-- quran-verse-end -->
 
 ---
