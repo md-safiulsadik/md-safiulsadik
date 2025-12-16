@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and that with thy Sustainer is the beginning and the end [of all that exists];* — **An-Najm (53:42)**
+> 📖 *AND, BEHOLD, Elijah [too] was indeed one of Our message-bearers* — **As-Saaffaat (37:123)**
 <!-- quran-verse-end -->
 
 ---
