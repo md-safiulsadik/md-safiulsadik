@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [remember the time] when We saved you from Pharaoh's people, who afflicted you with cruel suffering, slaughtering your sons and sparing [only] your women - which was an awesome trial from your Sustainer;* — **Al-Baqara (2:49)**
+> 📖 *But if they turn away, say: “I have proclaimed this in equity unto all of you alike; but I do not know whether that [judgment] which you are promised [by God] is near or far [in time].* — **Al-Anbiyaa (21:109)**
 <!-- quran-verse-end -->
 
 ---
