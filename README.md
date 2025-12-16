@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But does man not bear in mind that We have created him aforetime out of nothing?* — **Maryam (19:67)**
+> 📖 *Enter paradise, you and your spouses, with happiness blest!”* — **Az-Zukhruf (43:70)**
 <!-- quran-verse-end -->
 
 ---
