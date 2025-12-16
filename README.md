@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He knows all that is in the heavens and on earth; and He knows all that you keep secret as well as all that you bring into the open: for God has full knowledge of what is in the hearts [of men].* — **At-Taghaabun (64:4)**
+> 📖 *BEHOLD, We have bestowed upon thee good in abundance:* — **Al-Kawthar (108:1)**
 <!-- quran-verse-end -->
 
 ---
