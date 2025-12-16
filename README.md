@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *how my Sustainer has forgiven me [the sins of my past], and has placed me among the honoured ones!”* — **Yaseen (36:27)**
+> 📖 Could not fetch verse at this time. — ****
 <!-- quran-verse-end -->
 
 ---
