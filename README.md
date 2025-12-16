@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[for they have come to believe] that they ought not to adore God [although it is He] who brings forth all that is hidden in the heavens and on earth, and knows all that you would conceal as well as all that you bring into the open:* — **An-Naml (27:25)**
+> 📖 *an apostle from God, conveying [unto them] revelations blest with purity,* — **Al-Bayyina (98:2)**
 <!-- quran-verse-end -->
 
 ---
