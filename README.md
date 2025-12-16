@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND, BEHOLD, Elijah [too] was indeed one of Our message-bearers* — **As-Saaffaat (37:123)**
+> 📖 *how my Sustainer has forgiven me [the sins of my past], and has placed me among the honoured ones!”* — **Yaseen (36:27)**
 <!-- quran-verse-end -->
 
 ---
