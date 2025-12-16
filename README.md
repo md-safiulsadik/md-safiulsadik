@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "I seek refuge with the Sustainer of the rising dawn,* — **Al-Falaq (113:1)**
+> 📖 *[for they have come to believe] that they ought not to adore God [although it is He] who brings forth all that is hidden in the heavens and on earth, and knows all that you would conceal as well as all that you bring into the open:* — **An-Naml (27:25)**
 <!-- quran-verse-end -->
 
 ---
