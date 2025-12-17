@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[It was not for your enemies sake that He stayed your hands from them: for] it was they who were bent on denying the truth, and who debarred you from the Inviolable House of Worship and prevented your offering from reaching its destina­tion. And had it not been for the believing men and believing women [in Mecca], whom you might have unwittingly trampled underfoot, and on whose account you might have become guilty, without knowing it, of a grievous wrong-: [had it not been for this, you would have been allowed to fight your way into the city: but you were forbidden to fight] so that [in time] God might admit to His grace whomever He wills. Had they [who deserve Our mercy and they whom We have condemned] been clearly discernible [to you], We would indeed have imposed grievous suffering [at your hands] on such of them as were bent on denying the truth.* — **Al-Fath (48:25)**
+> 📖 *VERILY, [O man,] the suffering decreed by thy Sustainer [for the sinners] will indeed come to pass:* — **At-Tur (52:7)**
 <!-- quran-verse-end -->
 
 ---
