@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, [O Prophet,] exhort them; thy task is only to exhort:* — **Al-Ghaashiya (88:21)**
+> 📖 *and a cup [of happiness] overflowing.* — **An-Naba (78:34)**
 <!-- quran-verse-end -->
 
 ---
