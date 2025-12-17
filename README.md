@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus it will be more likely that people will offer testimony in accordance with the truth-or else they will [have cause to] fear that their oaths will be refuted by the oaths of others. Be, then, conscious of God, and hearken [unto Him]: for God does not bestow His guidance upon iniquitous folk.* — **Al-Maaida (5:108)**
+> 📖 *whereas he whom God guides aright can never be led astray. Is not God almighty, an avenger of evil?* — **Az-Zumar (39:37)**
 <!-- quran-verse-end -->
 
 ---
