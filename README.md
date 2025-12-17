@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, [O man,] the suffering decreed by thy Sustainer [for the sinners] will indeed come to pass:* — **At-Tur (52:7)**
+> 📖 *And so, [O Prophet,] exhort them; thy task is only to exhort:* — **Al-Ghaashiya (88:21)**
 <!-- quran-verse-end -->
 
 ---
