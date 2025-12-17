@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *an apostle from God, conveying [unto them] revelations blest with purity,* — **Al-Bayyina (98:2)**
+> 📖 *And what could make thee conceive what it is, that Night of Destiny?* — **Al-Qadr (97:2)**
 <!-- quran-verse-end -->
 
 ---
