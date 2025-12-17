@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O THOU enwrapped one!* — **Al-Muzzammil (73:1)**
+> 📖 *NOW AS FOR those who take aught beside Him for their protectors - God watches them, and thou art not responsible for their conduct.* — **Ash-Shura (42:6)**
 <!-- quran-verse-end -->
 
 ---
