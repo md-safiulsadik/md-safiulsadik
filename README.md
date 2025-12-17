@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *sparks of fire striking,* — **Al-Aadiyaat (100:2)**
+> 📖 *- hell - which they [themselves] will ' have to endure? And how vile a state to settle in!* — **Ibrahim (14:29)**
 <!-- quran-verse-end -->
 
 ---
