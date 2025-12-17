@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what it is, that Night of Destiny?* — **Al-Qadr (97:2)**
+> 📖 *For, they who have attained to faith in God and His Apostle - it is they, they who uphold the truth, and they who bear witness [thereto] before God: [and so] they shall have their reward and their light! But as for those who are bent on denying the truth and on giving the lie to Our messages - it is they who are destined for the blazing fire!* — **Al-Hadid (57:19)**
 <!-- quran-verse-end -->
 
 ---
