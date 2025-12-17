@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and, behold, Ours is [the dominion over] the life to come as well as [over] this earlier part [of your life]:* — **Al-Lail (92:13)**
+> 📖 *Thus it will be more likely that people will offer testimony in accordance with the truth-or else they will [have cause to] fear that their oaths will be refuted by the oaths of others. Be, then, conscious of God, and hearken [unto Him]: for God does not bestow His guidance upon iniquitous folk.* — **Al-Maaida (5:108)**
 <!-- quran-verse-end -->
 
 ---
