@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas he whom God guides aright can never be led astray. Is not God almighty, an avenger of evil?* — **Az-Zumar (39:37)**
+> 📖 *O THOU enwrapped one!* — **Al-Muzzammil (73:1)**
 <!-- quran-verse-end -->
 
 ---
