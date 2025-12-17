@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *- hell - which they [themselves] will ' have to endure? And how vile a state to settle in!* — **Ibrahim (14:29)**
+> 📖 *And thereupon he [went to Pharaoh and] made him aware of the great wonder [of God's grace].* — **An-Naazi'aat (79:20)**
 <!-- quran-verse-end -->
 
 ---
