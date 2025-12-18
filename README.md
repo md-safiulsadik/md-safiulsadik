@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [God said]: “Go thou forth with My servants by night, for you will surely be pursued;* — **Ad-Dukhaan (44:23)**
+> 📖 *Is it you who cause it to grow - or are We the cause of its growth?* — **Al-Waaqia (56:64)**
 <!-- quran-verse-end -->
 
 ---
