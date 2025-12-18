@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"I do not worship that which you worship,* — **Al-Kaafiroon (109:2)**
+> 📖 *[KNOW,] THEN, that if they [who have heard Our call] keep firmly to the [right] path, We shall certainly shower them with blessings abundant,* — **Al-Jinn (72:16)**
 <!-- quran-verse-end -->
 
 ---
