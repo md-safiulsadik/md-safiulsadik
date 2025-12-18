@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O men! Verily, God’s promise [of resurrection] is true indeed: let not, then, the life of this world delude you, and let not [your own] deceptive thoughts about God delude you!* — **Faatir (35:5)**
+> 📖 *These [allegedly divine beings] are nothing but empty names which you have invented - you and your forefathers - [and] for which God has bestowed no warrant from on high. They [who worship them] follow nothing but surmise and their own wishful thinking - although right guidance has now indeed come unto them from their Sustainer.* — **An-Najm (53:23)**
 <!-- quran-verse-end -->
 
 ---
