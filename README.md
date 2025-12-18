@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[KNOW,] THEN, that if they [who have heard Our call] keep firmly to the [right] path, We shall certainly shower them with blessings abundant,* — **Al-Jinn (72:16)**
+> 📖 *[And he prayed:] “O my Sustainer! Bestow upon me the gift of [a son who shall be] one of the righteous!” –* — **As-Saaffaat (37:100)**
 <!-- quran-verse-end -->
 
 ---
