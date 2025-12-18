@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what that [abyss] will be?* — **Al-Qaari'a (101:10)**
+> 📖 *ARE, THEN, those of you who [now] deny the truth better than those others - or have you, per­chance, [been promised] immunity in the [ancient] books of [divine] wisdom?* — **Al-Qamar (54:43)**
 <!-- quran-verse-end -->
 
 ---
