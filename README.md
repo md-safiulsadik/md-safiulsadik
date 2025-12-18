@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Is it you who cause it to grow - or are We the cause of its growth?* — **Al-Waaqia (56:64)**
+> 📖 *"I do not worship that which you worship,* — **Al-Kaafiroon (109:2)**
 <!-- quran-verse-end -->
 
 ---
