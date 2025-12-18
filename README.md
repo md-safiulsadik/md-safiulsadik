@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And he prayed:] “O my Sustainer! Bestow upon me the gift of [a son who shall be] one of the righteous!” –* — **As-Saaffaat (37:100)**
+> 📖 *And it is not given to mortal man that God should speak unto him otherwise than through sudden inspiration, or [by a voice, as it were,] from behind a veil, or by sending an apostle to reveal, by His leave, whatever He wills [to reveal]: for, verily, He is exalted, wise.* — **Ash-Shura (42:51)**
 <!-- quran-verse-end -->
 
 ---
