@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 Could not fetch verse at this time. — ****
+> 📖 *And [God said]: “Go thou forth with My servants by night, for you will surely be pursued;* — **Ad-Dukhaan (44:23)**
 <!-- quran-verse-end -->
 
 ---
