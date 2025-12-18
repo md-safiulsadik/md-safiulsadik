@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ARE, THEN, those of you who [now] deny the truth better than those others - or have you, per­chance, [been promised] immunity in the [ancient] books of [divine] wisdom?* — **Al-Qamar (54:43)**
+> 📖 *O men! Verily, God’s promise [of resurrection] is true indeed: let not, then, the life of this world delude you, and let not [your own] deceptive thoughts about God delude you!* — **Faatir (35:5)**
 <!-- quran-verse-end -->
 
 ---
