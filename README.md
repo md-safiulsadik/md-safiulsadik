@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 Could not fetch verse at this time. — ****
+> 📖 *Yet, verily, thou art bound to die, [O Muhammad,] and, verily, they, too, are bound to die:* — **Az-Zumar (39:30)**
 <!-- quran-verse-end -->
 
 ---
