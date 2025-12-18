@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet, verily, thou art bound to die, [O Muhammad,] and, verily, they, too, are bound to die:* — **Az-Zumar (39:30)**
+> 📖 *[But We have not willed it:] and so, whenever there comes unto them any fresh reminder from the Most Gracious, they [who are blind of heart] always - turn their backs upon it:* — **Ash-Shu'araa (26:5)**
 <!-- quran-verse-end -->
 
 ---
