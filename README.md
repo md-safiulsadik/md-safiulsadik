@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas, behold, the wicked will indeed be in a blazing fire –* — **Al-Infitaar (82:14)**
+> 📖 *with strength endowed, secure with Him who in almightiness is enthroned* — **At-Takwir (81:20)**
 <!-- quran-verse-end -->
 
 ---
