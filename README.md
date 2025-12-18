@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[but] woe on that Day unto those who give the lie to the truth!* — **Al-Mursalaat (77:45)**
+> 📖 *whereas, behold, the wicked will indeed be in a blazing fire –* — **Al-Infitaar (82:14)**
 <!-- quran-verse-end -->
 
 ---
