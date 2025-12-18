@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But We have not willed it:] and so, whenever there comes unto them any fresh reminder from the Most Gracious, they [who are blind of heart] always - turn their backs upon it:* — **Ash-Shu'araa (26:5)**
+> 📖 *[but] woe on that Day unto those who give the lie to the truth!* — **Al-Mursalaat (77:45)**
 <!-- quran-verse-end -->
 
 ---
