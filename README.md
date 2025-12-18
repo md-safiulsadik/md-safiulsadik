@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *These [allegedly divine beings] are nothing but empty names which you have invented - you and your forefathers - [and] for which God has bestowed no warrant from on high. They [who worship them] follow nothing but surmise and their own wishful thinking - although right guidance has now indeed come unto them from their Sustainer.* — **An-Najm (53:23)**
+> 📖 Could not fetch verse at this time. — ****
 <!-- quran-verse-end -->
 
 ---
