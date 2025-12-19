@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *till the Day the time whereof is known [only to Me].”* — **Saad (38:81)**
+> 📖 *And on some of you God has bestowed more abundant means of sustenance than on others: and yet, they who are more abundantly favoured are [often] unwilling to share their sustenance with those whom their right hands possess, so that they [all] might be equal in this respect. Will they, then, God's blessings [thus] deny?* — **An-Nahl (16:71)**
 <!-- quran-verse-end -->
 
 ---
