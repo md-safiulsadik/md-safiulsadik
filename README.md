@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And down fell the sorcerers, prostrating themselves* — **Al-A'raaf (7:120)**
+> 📖 *Say: "Can any of those beings to whom you ascribe a share in God's divinity create [life] in the first instance, and then bring it forth anew?” Say: "It is God [alone] who creates [all life] in the first instance, and then brings it forth anew. How perverted, then, are your minds!"* — **Yunus (10:34)**
 <!-- quran-verse-end -->
 
 ---
