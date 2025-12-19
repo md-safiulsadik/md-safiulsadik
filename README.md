@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *wherein there are ordinances of ever-true soundness and clarity.* — **Al-Bayyina (98:3)**
+> 📖 *till the Day the time whereof is known [only to Me].”* — **Saad (38:81)**
 <!-- quran-verse-end -->
 
 ---
