@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for such will be the paradise which you shall have inherited by virtue of your past deeds:* — **Az-Zukhruf (43:72)**
+> 📖 *And down fell the sorcerers, prostrating themselves* — **Al-A'raaf (7:120)**
 <!-- quran-verse-end -->
 
 ---
