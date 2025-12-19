@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and what will his wealth avail him when he goes down [to his grave]?* — **Al-Lail (92:11)**
+> 📖 *HAST THOU ever considered [the kind of man] who gives the lie to all moral law?* — **Al-Maa'un (107:1)**
 <!-- quran-verse-end -->
 
 ---
