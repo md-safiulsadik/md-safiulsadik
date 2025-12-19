@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THE BESTOWAL from on high of this divine writ I issues from God, the Almighty, the Wise.* — **Al-Ahqaf (46:2)**
+> 📖 *SAY: "I seek refuge with the Sustainer of men,* — **An-Naas (114:1)**
 <!-- quran-verse-end -->
 
 ---
