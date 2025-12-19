@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [this retribution will befall all evildoers because] they devise that false imagery of theirs - and all their false imagery is within God's knowledge. [And never can the blasphemers prevail against the truth - not] even if their false imagery were so (well devised and so powerful] that mountains could be moved thereby.* — **Ibrahim (14:46)**
+> 📖 *THE BESTOWAL from on high of this divine writ I issues from God, the Almighty, the Wise.* — **Al-Ahqaf (46:2)**
 <!-- quran-verse-end -->
 
 ---
