@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And there are among them such as (pretend to] listen to thee: but canst thou cause the deaf to hearken even though they will not use their reason?* — **Yunus (10:42)**
+> 📖 *AND, INDEED, God accepted a [similar] solemn pledge from the children of Israel when We caused twelve of their leaders to be sent [to Canaan as spies]. And God said: "Behold, I shall be with you! If you are constant in prayer, and spend in charity, and believe in My apostles and aid them, and offer up unto God a goodly loan, I will surely efface your bad deeds and bring you into gardens through which running waters flow. But he from among you who, after this, denies the truth, will indeed have strayed from the right path!"* — **Al-Maaida (5:12)**
 <!-- quran-verse-end -->
 
 ---
