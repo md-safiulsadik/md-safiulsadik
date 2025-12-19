@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He knows all that is in the heavens and on earth; and He knows all that you keep secret as well as all that you bring into the open: for God has full knowledge of what is in the hearts [of men].* — **At-Taghaabun (64:4)**
+> 📖 *GOD GRANTS abundant sustenance, or gives it in scant measure, unto whomever He wills; and they [who are given abundance] rejoice in the life of this world - even though, as compared with the life to come, the life of this world is nought but -a fleeting pleasure.* — **Ar-Ra'd (13:26)**
 <!-- quran-verse-end -->
 
 ---
