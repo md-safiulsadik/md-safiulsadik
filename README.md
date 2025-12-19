@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *providing guidance and grace unto the doers of good* — **Luqman (31:3)**
+> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
 <!-- quran-verse-end -->
 
 ---
