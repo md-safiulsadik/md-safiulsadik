@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
+> 📖 *providing guidance and grace unto the doers of good* — **Luqman (31:3)**
 <!-- quran-verse-end -->
 
 ---
