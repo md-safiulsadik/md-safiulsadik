@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And on some of you God has bestowed more abundant means of sustenance than on others: and yet, they who are more abundantly favoured are [often] unwilling to share their sustenance with those whom their right hands possess, so that they [all] might be equal in this respect. Will they, then, God's blessings [thus] deny?* — **An-Nahl (16:71)**
+> 📖 *And, indeed, We have adorned the skies nearest to the earth with lights, and have made them the object of futile guesses for the evil ones [from among men]: and for them have We readied suffering through a blazing flame –* — **Al-Mulk (67:5)**
 <!-- quran-verse-end -->
 
 ---
