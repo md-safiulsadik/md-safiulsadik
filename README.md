@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[ALL OF YOU are destined to die.] Now if one happens to be of those who are drawn close unto God,* — **Al-Waaqia (56:88)**
+> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
 <!-- quran-verse-end -->
 
 ---
