@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "Can any of those beings to whom you ascribe a share in God's divinity create [life] in the first instance, and then bring it forth anew?” Say: "It is God [alone] who creates [all life] in the first instance, and then brings it forth anew. How perverted, then, are your minds!"* — **Yunus (10:34)**
+> 📖 *He knows all that is in the heavens and on earth; and He knows all that you keep secret as well as all that you bring into the open: for God has full knowledge of what is in the hearts [of men].* — **At-Taghaabun (64:4)**
 <!-- quran-verse-end -->
 
 ---
