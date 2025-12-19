@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "I seek refuge with the Sustainer of men,* — **An-Naas (114:1)**
+> 📖 *But never will they long for it, because [they are aware] of what their hands have wrought in this world; and God has full knowledge of evildoers.* — **Al-Jumu'a (62:7)**
 <!-- quran-verse-end -->
 
 ---
