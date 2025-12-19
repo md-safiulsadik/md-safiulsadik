@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But never will they long for it, because [they are aware] of what their hands have wrought in this world; and God has full knowledge of evildoers.* — **Al-Jumu'a (62:7)**
+> 📖 *[ALL OF YOU are destined to die.] Now if one happens to be of those who are drawn close unto God,* — **Al-Waaqia (56:88)**
 <!-- quran-verse-end -->
 
 ---
