@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, indeed, We have adorned the skies nearest to the earth with lights, and have made them the object of futile guesses for the evil ones [from among men]: and for them have We readied suffering through a blazing flame –* — **Al-Mulk (67:5)**
+> 📖 *for such will be the paradise which you shall have inherited by virtue of your past deeds:* — **Az-Zukhruf (43:72)**
 <!-- quran-verse-end -->
 
 ---
