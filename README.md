@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
+> 📖 *And there are among them such as (pretend to] listen to thee: but canst thou cause the deaf to hearken even though they will not use their reason?* — **Yunus (10:42)**
 <!-- quran-verse-end -->
 
 ---
