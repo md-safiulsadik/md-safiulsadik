@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *it is [but] a brief enjoyment, with hell thereafter as their goal - and how vile a resting-place! -* — **Aal-i-Imraan (3:197)**
+> 📖 *whereas he whose weight is light in the balance* — **Al-Qaari'a (101:8)**
 <!-- quran-verse-end -->
 
 ---
