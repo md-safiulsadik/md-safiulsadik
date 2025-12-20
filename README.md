@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAST THOU ever considered [the kind of man] who gives the lie to all moral law?* — **Al-Maa'un (107:1)**
+> 📖 *They aim to extinguish God's light with their utterances: but God has willed to spread His light in all its fullness, however hateful this may be to all who deny the truth* — **As-Saff (61:8)**
 <!-- quran-verse-end -->
 
 ---
