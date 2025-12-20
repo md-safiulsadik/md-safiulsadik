@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas he whose weight is light in the balance* — **Al-Qaari'a (101:8)**
+> 📖 *whereas, whenever He tries him by straitening his means of livelihood, he says, "My Sustainer has disgraced me!"* — **Al-Fajr (89:16)**
 <!-- quran-verse-end -->
 
 ---
