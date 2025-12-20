@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *All [of them] -these as well as those -do We freely endow with some of thy Sustainer's gifts, since thy Sustainer's giving is never confined [to one kind of man].* — **Al-Israa (17:20)**
+> 📖 *and has set up within them the moon as a light [reflected] and set up the sun as a [radiant] lamp?* — **Nooh (71:16)**
 <!-- quran-verse-end -->
 
 ---
