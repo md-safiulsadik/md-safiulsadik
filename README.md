@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or do they, perchance, think that We do not hear their hidden thoughts and their secret confabulations? Yea, indeed, [We do,] and Our heavenly forces are with them, recording [all].* — **Az-Zukhruf (43:80)**
+> 📖 *And yet, verily, there are ever-watchful forces over you,* — **Al-Infitaar (82:10)**
 <!-- quran-verse-end -->
 
 ---
