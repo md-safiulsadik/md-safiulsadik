@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *while those who have attained to faith will say [to one another], "Are these the selfsame people who swore by God with their most solemn oaths that they were indeed with you? In vain are all their works, for now they are lost!"* — **Al-Maaida (5:53)**
+> 📖 *Nay, but they who are bent on denying the truth give the lie [to this divine writ]!* — **Al-Inshiqaaq (84:22)**
 <!-- quran-verse-end -->
 
 ---
