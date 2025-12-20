@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And We send [Our] message-bearers only as heralds of glad tidings and as warners: hence, all who believe and live righteously -no fear need they have, and neither shall they grieve;* — **Al-An'aam (6:48)**
+> 📖 *And in [the story of the tribe of] Thamud, too, when they were told, “You shall enjoy your life for [but] a little while,”* — **Adh-Dhaariyat (51:43)**
 <!-- quran-verse-end -->
 
 ---
