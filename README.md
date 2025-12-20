@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Originator [is He] of the heavens and the earth. He has given you mates of your own kind just as [He has willed that] among the beasts [there be] mates - to multiply you thereby: [but] there is nothing like unto Him, and He alone is all-hearing, all-seeing.* — **Ash-Shura (42:11)**
+> 📖 *HAVE WE NOT opened up thy heart,* — **Ash-Sharh (94:1)**
 <!-- quran-verse-end -->
 
 ---
