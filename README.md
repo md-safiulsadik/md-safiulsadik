@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAVE WE NOT opened up thy heart,* — **Ash-Sharh (94:1)**
+> 📖 *yea, enter thou My paradise!"* — **Al-Fajr (89:30)**
 <!-- quran-verse-end -->
 
 ---
