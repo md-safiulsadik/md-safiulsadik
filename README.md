@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 Could not fetch verse at this time. — ****
+> 📖 *And We send [Our] message-bearers only as heralds of glad tidings and as warners: hence, all who believe and live righteously -no fear need they have, and neither shall they grieve;* — **Al-An'aam (6:48)**
 <!-- quran-verse-end -->
 
 ---
