@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet, verily, there are ever-watchful forces over you,* — **Al-Infitaar (82:10)**
+> 📖 *"[And thou wert under Mine eye] when thy sister went forth and said [to Pharaoh's people], 'Shall I guide you unto [a woman] who might take charge of him?'' And so We returned thee unto thy mother, so that her eye be gladdened, and that she might not sorrow [any longer]. "And [when thou camest of age, thou didst slay a man: but We did save thee from all grief, although We tried thee with various trials. "And then thou didst sojourn for years among the people of Madyan; and now thou hast come [here] as ordained [by Me], O Moses:* — **Taa-Haa (20:40)**
 <!-- quran-verse-end -->
 
 ---
