@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *about to enter a glowing fire,* — **Al-Ghaashiya (88:4)**
+> 📖 *it is [but] a brief enjoyment, with hell thereafter as their goal - and how vile a resting-place! -* — **Aal-i-Imraan (3:197)**
 <!-- quran-verse-end -->
 
 ---
