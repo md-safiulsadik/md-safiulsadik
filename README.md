@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but they who are bent on denying the truth give the lie [to this divine writ]!* — **Al-Inshiqaaq (84:22)**
+> 📖 *And thereupon the blast [of Our punishment] overtook them at the time of sunrise,* — **Al-Hijr (15:73)**
 <!-- quran-verse-end -->
 
 ---
