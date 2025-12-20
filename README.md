@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They aim to extinguish God's light with their utterances: but God has willed to spread His light in all its fullness, however hateful this may be to all who deny the truth* — **As-Saff (61:8)**
+> 📖 *Or do they, perchance, think that We do not hear their hidden thoughts and their secret confabulations? Yea, indeed, [We do,] and Our heavenly forces are with them, recording [all].* — **Az-Zukhruf (43:80)**
 <!-- quran-verse-end -->
 
 ---
