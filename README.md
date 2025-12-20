@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas, whenever He tries him by straitening his means of livelihood, he says, "My Sustainer has disgraced me!"* — **Al-Fajr (89:16)**
+> 📖 *All [of them] -these as well as those -do We freely endow with some of thy Sustainer's gifts, since thy Sustainer's giving is never confined [to one kind of man].* — **Al-Israa (17:20)**
 <!-- quran-verse-end -->
 
 ---
