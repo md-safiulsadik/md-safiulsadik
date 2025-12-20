@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thereupon the blast [of Our punishment] overtook them at the time of sunrise,* — **Al-Hijr (15:73)**
+> 📖 *the way that leads to God, to whom all that is in the heavens and all that is on earth belongs. Oh, verily, with God is the beginning and the end of all things!* — **Ash-Shura (42:53)**
 <!-- quran-verse-end -->
 
 ---
