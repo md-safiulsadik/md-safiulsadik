@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the way that leads to God, to whom all that is in the heavens and all that is on earth belongs. Oh, verily, with God is the beginning and the end of all things!* — **Ash-Shura (42:53)**
+> 📖 *about to enter a glowing fire,* — **Al-Ghaashiya (88:4)**
 <!-- quran-verse-end -->
 
 ---
