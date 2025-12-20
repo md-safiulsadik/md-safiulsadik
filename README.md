@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And in [the story of the tribe of] Thamud, too, when they were told, “You shall enjoy your life for [but] a little while,”* — **Adh-Dhaariyat (51:43)**
+> 📖 *while those who have attained to faith will say [to one another], "Are these the selfsame people who swore by God with their most solemn oaths that they were indeed with you? In vain are all their works, for now they are lost!"* — **Al-Maaida (5:53)**
 <!-- quran-verse-end -->
 
 ---
