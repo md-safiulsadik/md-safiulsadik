@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SO THAT the Quraysh might remain secure,* — **Quraish (106:1)**
+> 📖 *And, indeed, [even] before thy time have [God's] apostles been derided, and for a while I gave rein to those who were [thus] bent on denying the truth: but then I took them to task - and how awesome was My retribution!* — **Ar-Ra'd (13:32)**
 <!-- quran-verse-end -->
 
 ---
