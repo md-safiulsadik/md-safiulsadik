@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Does man ever consider] out of what substance [God] creates him?* — **Abasa (80:18)**
+> 📖 *There is no deity save Him: He grants life and deals death: He is your Sustainer as well as the Sustainer of your forebears of old.* — **Ad-Dukhaan (44:8)**
 <!-- quran-verse-end -->
 
 ---
