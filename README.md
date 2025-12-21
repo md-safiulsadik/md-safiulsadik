@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NO CALAMITY can ever befall the earth, and nei­ther your own selves, unless it be [laid down] in Our decree before We bring it into being: verily, all this is easy for God.* — **Al-Hadid (57:22)**
+> 📖 *keeping yourselves aloof from all the [lawful] spouses whom your Sustainer has created for you? Nay, but you are people who transgress all bounds of what is right!”* — **Ash-Shu'araa (26:166)**
 <!-- quran-verse-end -->
 
 ---
