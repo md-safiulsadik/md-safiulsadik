@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, indeed, [even] before thy time have [God's] apostles been derided, and for a while I gave rein to those who were [thus] bent on denying the truth: but then I took them to task - and how awesome was My retribution!* — **Ar-Ra'd (13:32)**
+> 📖 *O YOU who have attained to faith! When you meet in battle those who are bent on denying the truth, advancing in great force, do not turn your backs on them:* — **Al-Anfaal (8:15)**
 <!-- quran-verse-end -->
 
 ---
