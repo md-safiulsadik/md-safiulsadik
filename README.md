@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Excepted, however, shall be those who repent and attain to faith and do righteous deeds: for it is they who will enter paradise and will not be wronged in any way:* — **Maryam (19:60)**
+> 📖 *Behold, it is this [kind of man] that thrusts the orphan away,* — **Al-Maa'un (107:2)**
 <!-- quran-verse-end -->
 
 ---
