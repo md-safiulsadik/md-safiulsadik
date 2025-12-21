@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *no headiness will be in it, and they will not get drunk thereon.* — **As-Saaffaat (37:47)**
+> 📖 *[inflicted on them] by Pharaoh, seeing that he was truly outstand­ing among those who waste their own selves;* — **Ad-Dukhaan (44:31)**
 <!-- quran-verse-end -->
 
 ---
