@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *verily, it will close in upon them* — **Al-Humaza (104:8)**
+> 📖 *for apart from one [single] house We did not find there any who had surrendered themselves to Us.* — **Adh-Dhaariyat (51:36)**
 <!-- quran-verse-end -->
 
 ---
