@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! When you meet in battle those who are bent on denying the truth, advancing in great force, do not turn your backs on them:* — **Al-Anfaal (8:15)**
+> 📖 *no headiness will be in it, and they will not get drunk thereon.* — **As-Saaffaat (37:47)**
 <!-- quran-verse-end -->
 
 ---
