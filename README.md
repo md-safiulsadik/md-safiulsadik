@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, it is this [kind of man] that thrusts the orphan away,* — **Al-Maa'un (107:2)**
+> 📖 *[Does man ever consider] out of what substance [God] creates him?* — **Abasa (80:18)**
 <!-- quran-verse-end -->
 
 ---
