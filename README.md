@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *seeing that aforetime they had been bent on denying the truth, and had been wont to cast scorn, from far away, on something that was beyond the reach of human perception?* — **Saba (34:53)**
+> 📖 *verily, it will close in upon them* — **Al-Humaza (104:8)**
 <!-- quran-verse-end -->
 
 ---
