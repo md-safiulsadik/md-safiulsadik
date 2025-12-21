@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the human self, and how it is formed in accordance with what it is meant to be,* — **Ash-Shams (91:7)**
+> 📖 *Do you, perchance, fear lest [you may be sinning if] you cannot offer up anything in charity on the occasion of your consultation [with the Apostle]? But if you fail to do it [for lack of opportunity], and God turns unto you in His mercy, remain but con­stant in prayer and render [no more than] the purify­ing dues, and [thus] pay heed unto God and His Apostle: for God is fully aware of all that you do.* — **Al-Mujaadila (58:13)**
 <!-- quran-verse-end -->
 
 ---
