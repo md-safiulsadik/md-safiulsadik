@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Do you, perchance, fear lest [you may be sinning if] you cannot offer up anything in charity on the occasion of your consultation [with the Apostle]? But if you fail to do it [for lack of opportunity], and God turns unto you in His mercy, remain but con­stant in prayer and render [no more than] the purify­ing dues, and [thus] pay heed unto God and His Apostle: for God is fully aware of all that you do.* — **Al-Mujaadila (58:13)**
+> 📖 *on the Day when God will raise them all from the dead and will make them truly understand all that they did [in life]: God will have taken [all of] it into account, even though they [themselves] may have forgotten it - for God is wit­ness unto everything.* — **Al-Mujaadila (58:6)**
 <!-- quran-verse-end -->
 
 ---
