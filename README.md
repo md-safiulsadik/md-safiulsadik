@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereupon We said: "O Adam! Verily, this is a foe unto thee and thy wife: so let him not drive the two of you out of this garden and render thee unhappy.* — **Taa-Haa (20:117)**
+> 📖 *seeing that aforetime they had been bent on denying the truth, and had been wont to cast scorn, from far away, on something that was beyond the reach of human perception?* — **Saba (34:53)**
 <!-- quran-verse-end -->
 
 ---
