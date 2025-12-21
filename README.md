@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *There is no deity save Him: He grants life and deals death: He is your Sustainer as well as the Sustainer of your forebears of old.* — **Ad-Dukhaan (44:8)**
+> 📖 *Say: “Is it, then, something other than God that you bid me to worship, O you who are unaware [of right and wrong]?”* — **Az-Zumar (39:64)**
 <!-- quran-verse-end -->
 
 ---
