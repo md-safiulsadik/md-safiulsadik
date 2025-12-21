@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *keeping yourselves aloof from all the [lawful] spouses whom your Sustainer has created for you? Nay, but you are people who transgress all bounds of what is right!”* — **Ash-Shu'araa (26:166)**
+> 📖 *SO THAT the Quraysh might remain secure,* — **Quraish (106:1)**
 <!-- quran-verse-end -->
 
 ---
