@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.* — **Az-Zalzala (99:6)**
+> 📖 *and thereupon We said: "O Adam! Verily, this is a foe unto thee and thy wife: so let him not drive the two of you out of this garden and render thee unhappy.* — **Taa-Haa (20:117)**
 <!-- quran-verse-end -->
 
 ---
