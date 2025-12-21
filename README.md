@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for apart from one [single] house We did not find there any who had surrendered themselves to Us.* — **Adh-Dhaariyat (51:36)**
+> 📖 *The evil of all this is odious in thy Sustainer's sight:* — **Al-Israa (17:38)**
 <!-- quran-verse-end -->
 
 ---
