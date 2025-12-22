@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And if all the trees on earth were pens, and the sea [were] ink, with seven [morel seas yet added to it, the words of God would not be exhausted: for, verily, God is almighty, wise.* — **Luqman (31:27)**
+> 📖 *[And] Noah continued: "O my Sustainer! Behold, they have opposed me [throughout], for they follow people whose wealth and children lead them increasingly into ruin,* — **Nooh (71:21)**
 <!-- quran-verse-end -->
 
 ---
