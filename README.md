@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and never - not on earth and not in the skies - can you [hope to] elude Him: and you have none to protect you from God, and none to bring you succour.”* — **Al-Ankaboot (29:22)**
+> 📖 *And if all the trees on earth were pens, and the sea [were] ink, with seven [morel seas yet added to it, the words of God would not be exhausted: for, verily, God is almighty, wise.* — **Luqman (31:27)**
 <!-- quran-verse-end -->
 
 ---
