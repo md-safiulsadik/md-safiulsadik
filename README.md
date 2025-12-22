@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] Noah continued: "O my Sustainer! Behold, they have opposed me [throughout], for they follow people whose wealth and children lead them increasingly into ruin,* — **Nooh (71:21)**
+> 📖 *In them, indeed, you have a good example for everyone who looks forward [with hope and awe] to God and the Last Day. And if any turns away, [let him know that] God is truly self-sufficient, the One to whom all praise is due."* — **Al-Mumtahana (60:6)**
 <!-- quran-verse-end -->
 
 ---
