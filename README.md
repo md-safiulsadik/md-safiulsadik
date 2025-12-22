@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *secure in their winter and summer journeys,* — **Quraish (106:2)**
+> 📖 *Woe on that Day unto those who give the lie to the truth!* — **Al-Mursalaat (77:40)**
 <!-- quran-verse-end -->
 
 ---
