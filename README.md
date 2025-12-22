@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thou seest people enter God's religion in hosts,* — **An-Nasr (110:2)**
+> 📖 *Say: "Verily, it is not in my power to cause you harm or to endow you with consciousness of what is right."* — **Al-Jinn (72:21)**
 <!-- quran-verse-end -->
 
 ---
