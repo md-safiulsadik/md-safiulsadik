@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Woe on that Day unto those who give the lie to the truth!* — **Al-Mursalaat (77:40)**
+> 📖 *O YOU who have attained to faith! Why do you say one thing and do another?* — **As-Saff (61:2)**
 <!-- quran-verse-end -->
 
 ---
