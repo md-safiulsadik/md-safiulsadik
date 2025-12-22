@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And at the sky, how it is raised aloft?* — **Al-Ghaashiya (88:18)**
+> 📖 *Verily, he that hates thee has indeed been cut off [from all that is good]!* — **Al-Kawthar (108:3)**
 <!-- quran-verse-end -->
 
 ---
