@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "Verily, it is not in my power to cause you harm or to endow you with consciousness of what is right."* — **Al-Jinn (72:21)**
+> 📖 *And if anyone should argue with thee about this [truth] after all the knowledge that has come unto thee, say: "Come! Let us summon our sons and your sons, and our women and your women, and ourselves and yourselves; and then let us pray [together] humbly and ardently, and let us invoke God's curse upon those [of us] who are telling a lie."* — **Aal-i-Imraan (3:61)**
 <!-- quran-verse-end -->
 
 ---
