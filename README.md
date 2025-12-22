@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and that [we were mistaken when] we thought that neither man nor [any of] the invisible forces would ever tell a lie about God.* — **Al-Jinn (72:5)**
+> 📖 *Hast thou considered whether he is on the right way,* — **Al-Alaq (96:11)**
 <!-- quran-verse-end -->
 
 ---
