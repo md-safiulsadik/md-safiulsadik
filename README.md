@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And if anyone should argue with thee about this [truth] after all the knowledge that has come unto thee, say: "Come! Let us summon our sons and your sons, and our women and your women, and ourselves and yourselves; and then let us pray [together] humbly and ardently, and let us invoke God's curse upon those [of us] who are telling a lie."* — **Aal-i-Imraan (3:61)**
+> 📖 *Thus have We caused this [message] to pass [unheeded] through the hearts of those who are lost in sin:* — **Ash-Shu'araa (26:200)**
 <!-- quran-verse-end -->
 
 ---
