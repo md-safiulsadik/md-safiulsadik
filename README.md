@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Why do you say one thing and do another?* — **As-Saff (61:2)**
+> 📖 *and never - not on earth and not in the skies - can you [hope to] elude Him: and you have none to protect you from God, and none to bring you succour.”* — **Al-Ankaboot (29:22)**
 <!-- quran-verse-end -->
 
 ---
