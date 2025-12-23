@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and from the evil of all human beings bent on occult endeavours,* — **Al-Falaq (113:4)**
+> 📖 *[And] Moses said unto his people: "Turn unto God for aid, and have patience in adversity. Verily, all the earth belongs to God: He gives it as a heritage - to such as He wills of His servants; and the future belongs to the God-conscious!"* — **Al-A'raaf (7:128)**
 <!-- quran-verse-end -->
 
 ---
