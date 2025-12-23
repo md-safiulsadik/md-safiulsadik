@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is He who bestows from on high clear mes­sages unto [this] His servant, to lead you out of the deep darkness into the light: for, behold, God is most compassionate towards you, a dispenser of grace.* — **Al-Hadid (57:9)**
+> 📖 *for, if they had the patience [to wait] until thou come forth to them [of thine own accord], it would be for their own good. Still, God is much forgiving, a dispenser of grace.* — **Al-Hujuraat (49:5)**
 <!-- quran-verse-end -->
 
 ---
