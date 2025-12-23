@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and he who shall have done an atom's weight of evil, shall behold it.* — **Az-Zalzala (99:8)**
+> 📖 *On that [night] was made clear, in wisdom, the distinction between all things [good and evil]* — **Ad-Dukhaan (44:4)**
 <!-- quran-verse-end -->
 
 ---
