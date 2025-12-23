@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that [night] was made clear, in wisdom, the distinction between all things [good and evil]* — **Ad-Dukhaan (44:4)**
+> 📖 *[but] in the end I took to task all those who were bent on denying the truth: and how awesome was My rejection!* — **Faatir (35:26)**
 <!-- quran-verse-end -->
 
 ---
