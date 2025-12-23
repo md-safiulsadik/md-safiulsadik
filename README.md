@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *To a happy state shall indeed attain he who causes this [self] to grow in purity,* — **Ash-Shams (91:9)**
+> 📖 *Are they, then, not aware that it is God who grants abundant sustenance, or gives it in scant measure, unto whomever He wills? In this, behold, there are messages indeed for peo­ple who will believe!* — **Az-Zumar (39:52)**
 <!-- quran-verse-end -->
 
 ---
