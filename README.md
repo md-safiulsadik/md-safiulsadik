@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [this divine writ is such a reminder:] no evil spirits have brought it down:* — **Ash-Shu'araa (26:210)**
+> 📖 *HENCE, [O believer,] bear thou with patience what­ever they may say, and extol thy Sustainer’s limit­less glory and praise before the rising of the sun and before its setting;* — **Qaaf (50:39)**
 <!-- quran-verse-end -->
 
 ---
