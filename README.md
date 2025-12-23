@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
+> 📖 *It is He who bestows from on high clear mes­sages unto [this] His servant, to lead you out of the deep darkness into the light: for, behold, God is most compassionate towards you, a dispenser of grace.* — **Al-Hadid (57:9)**
 <!-- quran-verse-end -->
 
 ---
