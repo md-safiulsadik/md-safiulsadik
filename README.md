@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *A record [indelibly] inscribed,* — **Al-Mutaffifin (83:20)**
+> 📖 *"and from the evil of all human beings bent on occult endeavours,* — **Al-Falaq (113:4)**
 <!-- quran-verse-end -->
 
 ---
