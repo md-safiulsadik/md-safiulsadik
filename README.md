@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *What is amiss with you? On what do you base your judgment [of right and wrong]?* — **Al-Qalam (68:36)**
+> 📖 *and he who shall have done an atom's weight of evil, shall behold it.* — **Az-Zalzala (99:8)**
 <!-- quran-verse-end -->
 
 ---
