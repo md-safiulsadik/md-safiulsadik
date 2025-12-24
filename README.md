@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And be not like those [unbelievers] who went forth from their homelands full of self-conceit and a desire to be seen and praised by men for they were trying to turn others away from the path of God -the while God encompassed all their doings [with His might].* — **Al-Anfaal (8:47)**
+> 📖 *on that Day will man exclaim "Whither to flee?"* — **Al-Qiyaama (75:10)**
 <!-- quran-verse-end -->
 
 ---
