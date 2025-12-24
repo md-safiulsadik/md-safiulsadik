@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The bestowal from on high of this divine writ issues, beyond any doubt, from the Sustainer of all the worlds:* — **As-Sajda (32:2)**
+> 📖 *And be not like those [unbelievers] who went forth from their homelands full of self-conceit and a desire to be seen and praised by men for they were trying to turn others away from the path of God -the while God encompassed all their doings [with His might].* — **Al-Anfaal (8:47)**
 <!-- quran-verse-end -->
 
 ---
