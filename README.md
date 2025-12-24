@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *There and then will every human being clearly apprehend what he has done in the past; and all will be brought back unto God, their true Lord Supreme, and all their false imagery will have forsaken them.* — **Yunus (10:30)**
+> 📖 *And [this happened, too,] when Jesus, the son of Mary, said: "O children of Israel! Behold, I am an apostle of God unto you, [sent] to confirm the truth of whatever there still remains of the Torah, and to give [you] the glad tiding of an apostle who shall come after me, whose name shall be Ahmad." But when he [whose coming Jesus had foretold] came unto them with all evidence of the truth, they said: "This [alleged message of his] is [nothing but] spellbinding eloquence!"* — **As-Saff (61:6)**
 <!-- quran-verse-end -->
 
 ---
