@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *happiness [awaits him in the life to come], and inner fulfillment, and a garden of bliss.* — **Al-Waaqia (56:89)**
+> 📖 *THE BEDOUIN say, “We have attained to faith.” Say [unto them, O Muhammad]: “You have not [yet] attained to faith; you should [rather] say, ‘We have [outwardly] surrendered’ - for [true] faith has not yet entered your hearts. But if you [truly] pay heed unto God and His Apostle, He will not let the least of your deeds go to waste: for, behold, God is much-forgiving, a dispenser of grace.”* — **Al-Hujuraat (49:14)**
 <!-- quran-verse-end -->
 
 ---
