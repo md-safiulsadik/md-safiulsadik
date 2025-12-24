@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Those of the bedouin who stayed behind will say unto thee: “[The need to take care of] our chat­tels and our families kept us busy: do then, [O Prophet,] ask God to forgive us!” [Thus,] they will utter with their tongues something that is not in their hearts. Say: “Who, then, has it in his power to avert from you aught that God may have willed, whether it be His will to harm you or to confer a benefit on you? Nay, but God is fully aware of what you do!* — **Al-Fath (48:11)**
+> 📖 *And [as for thee], O Adam', dwell thou and thy wife in this garden, and eat, both of you, whatever you may wish; but do not approach this one tree, lest you become evildoers!"* — **Al-A'raaf (7:19)**
 <!-- quran-verse-end -->
 
 ---
