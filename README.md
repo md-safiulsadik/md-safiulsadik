@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [this happened, too,] when Jesus, the son of Mary, said: "O children of Israel! Behold, I am an apostle of God unto you, [sent] to confirm the truth of whatever there still remains of the Torah, and to give [you] the glad tiding of an apostle who shall come after me, whose name shall be Ahmad." But when he [whose coming Jesus had foretold] came unto them with all evidence of the truth, they said: "This [alleged message of his] is [nothing but] spellbinding eloquence!"* — **As-Saff (61:6)**
+> 📖 *Behold, it is this [kind of man] that thrusts the orphan away,* — **Al-Maa'un (107:2)**
 <!-- quran-verse-end -->
 
 ---
