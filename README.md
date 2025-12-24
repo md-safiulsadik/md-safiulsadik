@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, it is this [kind of man] that thrusts the orphan away,* — **Al-Maa'un (107:2)**
+> 📖 *And so, [O Prophet,] exhort them; thy task is only to exhort:* — **Al-Ghaashiya (88:21)**
 <!-- quran-verse-end -->
 
 ---
