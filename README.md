@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [as for thee], O Adam', dwell thou and thy wife in this garden, and eat, both of you, whatever you may wish; but do not approach this one tree, lest you become evildoers!"* — **Al-A'raaf (7:19)**
+> 📖 *Does he, then, think that no one has power over him?* — **Al-Balad (90:5)**
 <!-- quran-verse-end -->
 
 ---
