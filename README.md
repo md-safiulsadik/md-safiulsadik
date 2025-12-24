@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, God will admit all who attain to faith and do righteous deeds into gardens through which running waters flow, whereas they who are bent on denying the truth shall have - even though they may enjoy their life [in this world] and eat as cattle eat - the fire [of the hereafter] for their abode.* — **Muhammad (47:12)**
+> 📖 *And when Our messengers came unto Lot, he was sorely grieved on their account, seeing that it was beyond his power to shield them; but they said: “Fear not, and grieve not! Behold, we shall save thee and thy household - all but thy wife: she will indeed be among those that stay behind.* — **Al-Ankaboot (29:33)**
 <!-- quran-verse-end -->
 
 ---
