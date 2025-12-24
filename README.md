@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And they will be waited upon by [immortal] youths, [as if they were children] of their own, [as pure] as if they were pearls hidden in their shells.* — **At-Tur (52:24)**
+> 📖 *He boasts, "I have spent wealth abundant!"* — **Al-Balad (90:6)**
 <!-- quran-verse-end -->
 
 ---
