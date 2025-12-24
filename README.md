@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *knowing all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind - the Almighty, the Wise!* — **At-Taghaabun (64:18)**
+> 📖 *There and then will every human being clearly apprehend what he has done in the past; and all will be brought back unto God, their true Lord Supreme, and all their false imagery will have forsaken them.* — **Yunus (10:30)**
 <!-- quran-verse-end -->
 
 ---
