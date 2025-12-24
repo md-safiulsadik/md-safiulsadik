@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereupon We cause grain to grow out of it,* — **Abasa (80:27)**
+> 📖 *and splendid companions well matched,* — **An-Naba (78:33)**
 <!-- quran-verse-end -->
 
 ---
