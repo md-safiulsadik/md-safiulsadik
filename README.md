@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Does he, then, think that no one has power over him?* — **Al-Balad (90:5)**
+> 📖 *And they will be waited upon by [immortal] youths, [as if they were children] of their own, [as pure] as if they were pearls hidden in their shells.* — **At-Tur (52:24)**
 <!-- quran-verse-end -->
 
 ---
