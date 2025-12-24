@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on that Day will man exclaim "Whither to flee?"* — **Al-Qiyaama (75:10)**
+> 📖 *Dost thou not know that God knows all that occurs in heaven as well as on earth? All this, behold, is in [God’s] record: verily, [to know] all this is easy for God.* — **Al-Hajj (22:70)**
 <!-- quran-verse-end -->
 
 ---
