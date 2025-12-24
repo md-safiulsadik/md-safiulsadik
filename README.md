@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Dost thou not know that God knows all that occurs in heaven as well as on earth? All this, behold, is in [God’s] record: verily, [to know] all this is easy for God.* — **Al-Hajj (22:70)**
+> 📖 *Verily, God will admit all who attain to faith and do righteous deeds into gardens through which running waters flow, whereas they who are bent on denying the truth shall have - even though they may enjoy their life [in this world] and eat as cattle eat - the fire [of the hereafter] for their abode.* — **Muhammad (47:12)**
 <!-- quran-verse-end -->
 
 ---
