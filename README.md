@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[In the life to come] he shall have to endure a fire fiercely glowing;* — **Al-Masad (111:3)**
+> 📖 *and [that], when the Qur’an is read unto them, they do not fall down in prostration?* — **Al-Inshiqaaq (84:21)**
 <!-- quran-verse-end -->
 
 ---
