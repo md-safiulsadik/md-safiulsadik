@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Shall I point out to you a bargain that will save you from grievous suffering [in this world and in the life to come]?* — **As-Saff (61:10)**
+> 📖 *For, when they come unto you, they say, "We do believe": whereas, in fact, they come with the resolve to deny the truth, and depart in the same state. But God is fully aware of all that they would conceal.* — **Al-Maaida (5:61)**
 <!-- quran-verse-end -->
 
 ---
