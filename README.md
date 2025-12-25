@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thereby raising clouds of dust,* — **Al-Aadiyaat (100:4)**
+> 📖 *And every human being's destiny have We tied to his neck; and on the Day of Resurrection We shall bring forth for him a record which he will find wide open;* — **Al-Israa (17:13)**
 <!-- quran-verse-end -->
 
 ---
