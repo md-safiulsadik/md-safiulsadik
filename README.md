@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, when they come unto you, they say, "We do believe": whereas, in fact, they come with the resolve to deny the truth, and depart in the same state. But God is fully aware of all that they would conceal.* — **Al-Maaida (5:61)**
+> 📖 *Let, then, the deniers of the truth have their will: let them have their will for a little while.* — **At-Taariq (86:17)**
 <!-- quran-verse-end -->
 
 ---
