@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and splendid companions well matched,* — **An-Naba (78:33)**
+> 📖 *enveloping all mankind, [and causing the sinners to exclaim:] “Grievous is this suffering!* — **Ad-Dukhaan (44:11)**
 <!-- quran-verse-end -->
 
 ---
