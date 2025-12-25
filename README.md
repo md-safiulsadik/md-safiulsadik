@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And every human being's destiny have We tied to his neck; and on the Day of Resurrection We shall bring forth for him a record which he will find wide open;* — **Al-Israa (17:13)**
+> 📖 *Hence, when thou art freed [from distress], remain steadfast,* — **Ash-Sharh (94:7)**
 <!-- quran-verse-end -->
 
 ---
