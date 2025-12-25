@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"who whispers in the hearts of men* — **An-Naas (114:5)**
+> 📖 *O YOU who have attained to faith! Why do you say one thing and do another?* — **As-Saff (61:2)**
 <!-- quran-verse-end -->
 
 ---
