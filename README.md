@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thee alone do we worship; and unto Thee alone do we turn for aid.* — **Al-Faatiha (1:5)**
+> 📖 *And God will judge in accordance with truth and justice, whereas those [beings] whom they invoke beside Him cannot judge at all: for, verily, God alone is all-hearing, all-seeing.* — **Ghafir (40:20)**
 <!-- quran-verse-end -->
 
 ---
