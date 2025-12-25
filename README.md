@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [that], when the Qur’an is read unto them, they do not fall down in prostration?* — **Al-Inshiqaaq (84:21)**
+> 📖 *And he has placed firm mountains on earth, lest it sway with you, and rivers and paths, so that you might find your way,* — **An-Nahl (16:15)**
 <!-- quran-verse-end -->
 
 ---
