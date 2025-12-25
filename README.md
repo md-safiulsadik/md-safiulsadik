@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And God will judge in accordance with truth and justice, whereas those [beings] whom they invoke beside Him cannot judge at all: for, verily, God alone is all-hearing, all-seeing.* — **Ghafir (40:20)**
+> 📖 *Say: “It is God who gives you life, and then causes you to die; and in the end He will gather you together on Resurrection Day, [the coming of] which is beyond all doubt - but most human beings under­stand it not.”* — **Al-Jaathiya (45:26)**
 <!-- quran-verse-end -->
 
 ---
