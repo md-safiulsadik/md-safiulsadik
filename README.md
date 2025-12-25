@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *until you go down to your graves.* — **At-Takaathur (102:2)**
+> 📖 *Say: “Have you [really] given thought to what it is that you invoke instead of God? Show me what these [beings or forces] have created anywhere on earth! Or had they, perchance, a share in [creating] the heavens? [If so,] bring me any divine writ pre­ceding this one, or any [other] vestige of knowledge - if what you claim is true!”* — **Al-Ahqaf (46:4)**
 <!-- quran-verse-end -->
 
 ---
