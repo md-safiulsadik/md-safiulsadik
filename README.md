@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NOW [among the best of the deeds which] We have enjoined upon man is goodness towards his parents. In pain did his mother bear him, and in pain did she give him birth; and her bearing him and his utter dependence on her took thirty months. and so, when he attains to full maturity and reaches forty years, he [that is righteous] prays: “O my Sustainer! Inspire me so that I may forever be grateful for those blessings of Thine with which Thou hast graced me and my parents, and that I may do what is right [in a manner] that will meet with Thy goodly acceptance; and grant me righteousness in my offspring [as well]. Verily, unto Thee have I turned in repentance: for, verily, I am of those who have surrendered themselves unto Thee!”* — **Al-Ahqaf (46:15)**
+> 📖 *[But unto the righteous God will say,] "O thou human being that hast attained to inner peace!* — **Al-Fajr (89:27)**
 <!-- quran-verse-end -->
 
 ---
