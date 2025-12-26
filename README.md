@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *this [should be] a clear lesson unto all men, and a guidance and an admonition unto the God-conscious.* — **Aal-i-Imraan (3:138)**
+> 📖 *And so, of no benefit to them could be the intercession of any that would intercede for them.* — **Al-Muddaththir (74:48)**
 <!-- quran-verse-end -->
 
 ---
