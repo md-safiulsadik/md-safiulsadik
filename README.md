@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let them, therefore, worship the Sustainer of this Temple;* — **Quraish (106:3)**
+> 📖 *the Day when the trumpet [of resurrection] is sounded and you all come forward in multitudes;* — **An-Naba (78:18)**
 <!-- quran-verse-end -->
 
 ---
