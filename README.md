@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [We have sent thee] lest they say [on Judg­ment Day], when disaster befalls them as an outcome of what their own hands have wrought, “O our Sus­tainer, if only Thou had sent an apostle unto us, we would have followed Thy messages, and would have been among those who believe!”* — **Al-Qasas (28:47)**
+> 📖 *And what could make thee conceive what it is that comes in the night?* — **At-Taariq (86:2)**
 <!-- quran-verse-end -->
 
 ---
