@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the Day when the trumpet [of resurrection] is sounded and you all come forward in multitudes;* — **An-Naba (78:18)**
+> 📖 *THE BESTOWAL from on high of this divine writ issues from God, the Almighty, the Wise.* — **Al-Jaathiya (45:2)**
 <!-- quran-verse-end -->
 
 ---
