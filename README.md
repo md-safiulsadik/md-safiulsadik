@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But unto the righteous God will say,] "O thou human being that hast attained to inner peace!* — **Al-Fajr (89:27)**
+> 📖 *[And] some faces will on that Day shine with bliss,* — **Al-Ghaashiya (88:8)**
 <!-- quran-verse-end -->
 
 ---
