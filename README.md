@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And fight against them until there is no more oppression and all worship is devoted to God alone. And if they desist-behold, God sees all that they do;* — **Al-Anfaal (8:39)**
+> 📖 *and [We have sent thee] lest they say [on Judg­ment Day], when disaster befalls them as an outcome of what their own hands have wrought, “O our Sus­tainer, if only Thou had sent an apostle unto us, we would have followed Thy messages, and would have been among those who believe!”* — **Al-Qasas (28:47)**
 <!-- quran-verse-end -->
 
 ---
