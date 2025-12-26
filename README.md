@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O PROPHET! Why dost thou, out of a desire to please [one or another of] thy wives, impose [on thyself] a prohibition of something that God has made lawful to thee? But God is much-forgiving, a dispenser of grace:* — **At-Tahrim (66:1)**
+> 📖 *[Jacob] answered: "Behold, it grieves me indeed [to think] that you might take him with you, for I dread lest the wolf devour him at a moment when you are heedless of him!"* — **Yusuf (12:13)**
 <!-- quran-verse-end -->
 
 ---
