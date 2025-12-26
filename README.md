@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and provides for him in a manner beyond all expectation; and for everyone who places his trust in God He [alone] is enough. Verily, God always attains to His purpose: [and] indeed, unto everything has God appointed its [term and] measure.* — **At-Talaaq (65:3)**
+> 📖 *And fight against them until there is no more oppression and all worship is devoted to God alone. And if they desist-behold, God sees all that they do;* — **Al-Anfaal (8:39)**
 <!-- quran-verse-end -->
 
 ---
