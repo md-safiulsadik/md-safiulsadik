@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] some faces will on that Day shine with bliss,* — **Al-Ghaashiya (88:8)**
+> 📖 *and it floated under Our eyes: a recom­pense for him who had been rejected with ingratitude.* — **Al-Qamar (54:14)**
 <!-- quran-verse-end -->
 
 ---
