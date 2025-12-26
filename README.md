@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, of no benefit to them could be the intercession of any that would intercede for them.* — **Al-Muddaththir (74:48)**
+> 📖 *And so, when they are about to reach the end of their waiting-term, either retain them in a fair manner or part with them in a fair manner. And let two persons of [known] probity from among your own community witness [what you have decided]; and do yourselves bear true witness before God: thus are admonished all who believe in God and the Last Day. And unto everyone who is conscious of God, He [always] grants a way out [of unhappiness],* — **At-Talaaq (65:2)**
 <!-- quran-verse-end -->
 
 ---
