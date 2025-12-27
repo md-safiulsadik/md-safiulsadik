@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and it floated under Our eyes: a recom­pense for him who had been rejected with ingratitude.* — **Al-Qamar (54:14)**
+> 📖 *save those upon whom God will have bestowed His grace and mercy: for, verily, He alone is almighty, a dispenser of grace.* — **Ad-Dukhaan (44:42)**
 <!-- quran-verse-end -->
 
 ---
