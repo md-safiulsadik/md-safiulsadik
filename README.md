@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that He might prove the truth to be true and the false to be false, however hateful this might be to those who were lost in sin.* — **Al-Anfaal (8:8)**
+> 📖 *Is not God the most just of judges?* — **At-Tin (95:8)**
 <!-- quran-verse-end -->
 
 ---
