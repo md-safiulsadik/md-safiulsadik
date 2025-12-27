@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Bring me ingots of iron!" Then, after he had [piled up the iron and] filled the gap between the two mountain-sides, he said: "[Light a fire and] ply your bellows!" At length, when he had made it [glow like] fire, he commanded: "Bring me molten copper which I may pour upon it."* — **Al-Kahf (18:96)**
+> 📖 *God answered: "Verily, I [always] do send it down unto you: and so, if any of you should henceforth deny [this] truth, on him, behold, will I inflict suffering the like of which I have never [yet] inflicted upon anyone in the world!"* — **Al-Maaida (5:115)**
 <!-- quran-verse-end -->
 
 ---
