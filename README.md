@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *We [but want to] make them vie with one another in doing [what they consider] good works? Nay, but they do not perceive [their error]!* — **Al-Muminoon (23:56)**
+> 📖 *Is not God the most just of judges?* — **At-Tin (95:8)**
 <!-- quran-verse-end -->
 
 ---
