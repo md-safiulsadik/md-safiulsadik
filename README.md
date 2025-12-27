@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *save those upon whom God will have bestowed His grace and mercy: for, verily, He alone is almighty, a dispenser of grace.* — **Ad-Dukhaan (44:42)**
+> 📖 *BEHOLD, [O men,] We have sent unto you an apostle who shall bear witness to the truth before you, even as We sent an apostle unto Pharaoh:* — **Al-Muzzammil (73:15)**
 <!-- quran-verse-end -->
 
 ---
