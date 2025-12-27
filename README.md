@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, [O men,] We have sent unto you an apostle who shall bear witness to the truth before you, even as We sent an apostle unto Pharaoh:* — **Al-Muzzammil (73:15)**
+> 📖 *[But] thus it is: never yet came any apostle to those who lived before their time but they said, “A spellbinder [Lit., "sorcerer".] [is he], or a madman!”* — **Adh-Dhaariyat (51:52)**
 <!-- quran-verse-end -->
 
 ---
