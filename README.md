@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Have you given thought [to how you will fare] if this be truly [a revelation] from God and yet you deny its truth? - even though a witness from among the children of Israel has already borne wit­ness to [the advent of] one like himself, and has believed [in him], the while you glory in your arro­gance [and reject his message]? Verily, God does not grace [such] evildoing folk with His guidance!”* — **Al-Ahqaf (46:10)**
+> 📖 *so that He might prove the truth to be true and the false to be false, however hateful this might be to those who were lost in sin.* — **Al-Anfaal (8:8)**
 <!-- quran-verse-end -->
 
 ---
