@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Is not God the most just of judges?* — **At-Tin (95:8)**
+> 📖 *O our Sustainer! Make us not a plaything for those who are bent on denying the truth! And forgive us our sins, O our sustainer: for Thou alone art, almighty, truly wise!"* — **Al-Mumtahana (60:5)**
 <!-- quran-verse-end -->
 
 ---
