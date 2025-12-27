@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Go, then., with thy household while it is yet night, with thyself following them in the rear; and let none of you look back, but proceed whither you are bidden."* — **Al-Hijr (15:65)**
+> 📖 *And [like those earlier revelations,] this one, too, is a blessed reminder which We have bestowed from on high: will you, then, disavow it?* — **Al-Anbiyaa (21:50)**
 <!-- quran-verse-end -->
 
 ---
