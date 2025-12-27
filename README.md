@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Oh, the chargers that run panting,* — **Al-Aadiyaat (100:1)**
+> 📖 *Bring me ingots of iron!" Then, after he had [piled up the iron and] filled the gap between the two mountain-sides, he said: "[Light a fire and] ply your bellows!" At length, when he had made it [glow like] fire, he commanded: "Bring me molten copper which I may pour upon it."* — **Al-Kahf (18:96)**
 <!-- quran-verse-end -->
 
 ---
