@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But] thus it is: never yet came any apostle to those who lived before their time but they said, “A spellbinder [Lit., "sorcerer".] [is he], or a madman!”* — **Adh-Dhaariyat (51:52)**
+> 📖 *Oh, the chargers that run panting,* — **Al-Aadiyaat (100:1)**
 <!-- quran-verse-end -->
 
 ---
