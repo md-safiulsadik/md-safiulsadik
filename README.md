@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now surely, unto Pharaoh’s folk [too] came such warnings;* — **Al-Qamar (54:41)**
+> 📖 *Verily, [O men,] you aim at most divergent ends!* — **Al-Lail (92:4)**
 <!-- quran-verse-end -->
 
 ---
