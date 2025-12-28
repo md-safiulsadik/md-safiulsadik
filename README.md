@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but in time they will come to understand [it]!* — **An-Naba (78:4)**
+> 📖 *“Go thou back unto them [that have sent thee]! For, [God says:] ‘We shall most certainly come upon them with forces which they will never be able to withstand, and shall most certainly cause them to be driven from that [land of theirs], despicable and humbled!’”* — **An-Naml (27:37)**
 <!-- quran-verse-end -->
 
 ---
