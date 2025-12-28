@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now, verily, He [who thus creates man in the first instance] is well able to bring him back [to life]* — **At-Taariq (86:8)**
+> 📖 *"O my Sustainer! Grant Thy forgiveness unto me and unto my parents, and unto everyone who enters my house as a believer, and unto all believing men and believing women [of later times]; and grant Thou that the doers of evil shall increasingly meet with destruction!"'* — **Nooh (71:28)**
 <!-- quran-verse-end -->
 
 ---
