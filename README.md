@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *If God succours you, none can ever overcome you; but if He should forsake you, who could succour you thereafter? In God, then, let the believers place their trust!* — **Aal-i-Imraan (3:160)**
+> 📖 *and when I have formed him fully and breathed into him of My spirit, fall you down before him in prostration!”* — **Saad (38:72)**
 <!-- quran-verse-end -->
 
 ---
