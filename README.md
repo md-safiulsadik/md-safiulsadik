@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the sky and its wondrous make,* — **Ash-Shams (91:5)**
+> 📖 *you would indeed, most surely, behold the blazing fire [of hell]!* — **At-Takaathur (102:6)**
 <!-- quran-verse-end -->
 
 ---
