@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *you would indeed, most surely, behold the blazing fire [of hell]!* — **At-Takaathur (102:6)**
+> 📖 *[Whereupon God will command:] “Cast, cast into hell every [such] stubborn enemy of the truth,* — **Qaaf (50:24)**
 <!-- quran-verse-end -->
 
 ---
