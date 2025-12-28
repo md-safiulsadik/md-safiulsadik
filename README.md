@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Qaf. CONSIDER this sublime Qur’an!* — **Qaaf (50:1)**
+> 📖 *Consider the sky and its wondrous make,* — **Ash-Shams (91:5)**
 <!-- quran-verse-end -->
 
 ---
