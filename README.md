@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yea, turn thy vision [upon it] again and yet again: [and every time] thy vision will fall back upon thee, dazzled and truly defeated….* — **Al-Mulk (67:4)**
+> 📖 *Now, verily, He [who thus creates man in the first instance] is well able to bring him back [to life]* — **At-Taariq (86:8)**
 <!-- quran-verse-end -->
 
 ---
