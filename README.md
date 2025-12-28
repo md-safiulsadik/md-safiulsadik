@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *you would indeed, most surely, behold the blazing fire [of hell]!* — **At-Takaathur (102:6)**
+> 📖 *If God succours you, none can ever overcome you; but if He should forsake you, who could succour you thereafter? In God, then, let the believers place their trust!* — **Aal-i-Imraan (3:160)**
 <!-- quran-verse-end -->
 
 ---
