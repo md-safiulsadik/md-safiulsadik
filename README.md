@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *none of this have We created without [an inner] truth: but most of them under­stand it not.* — **Ad-Dukhaan (44:39)**
+> 📖 *Could the reward of good be aught but good?* — **Ar-Rahmaan (55:60)**
 <!-- quran-verse-end -->
 
 ---
