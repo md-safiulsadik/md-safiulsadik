@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Whereupon God will command:] “Cast, cast into hell every [such] stubborn enemy of the truth,* — **Qaaf (50:24)**
+> 📖 *and in whose possessions there is a due share, acknowledged [by them],* — **Al-Ma'aarij (70:24)**
 <!-- quran-verse-end -->
 
 ---
