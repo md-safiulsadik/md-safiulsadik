@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whose hearts from their prayer are remote* — **Al-Maa'un (107:5)**
+> 📖 *Yea, turn thy vision [upon it] again and yet again: [and every time] thy vision will fall back upon thee, dazzled and truly defeated….* — **Al-Mulk (67:4)**
 <!-- quran-verse-end -->
 
 ---
