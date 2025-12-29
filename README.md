@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, We create man in the best conformation;* — **At-Tin (95:4)**
+> 📖 *although the life to come is better and more enduring.* — **Al-A'laa (87:17)**
 <!-- quran-verse-end -->
 
 ---
