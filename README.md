@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, when thou art freed [from distress], remain steadfast,* — **Ash-Sharh (94:7)**
+> 📖 *[And] they add, "That, then, would be a return with loss!"* — **An-Naazi'aat (79:12)**
 <!-- quran-verse-end -->
 
 ---
