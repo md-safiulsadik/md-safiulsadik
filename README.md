@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and in whose possessions there is a due share, acknowledged [by them],* — **Al-Ma'aarij (70:24)**
+> 📖 *Yet [withal, O Prophet,] We have sent thee only as a herald of glad tidings and a warner.* — **Al-Furqaan (25:56)**
 <!-- quran-verse-end -->
 
 ---
