@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *or the feeding, upon a day of [one's own] hunger,* — **Al-Balad (90:14)**
+> 📖 *Could, then, one who shall have nothing but is [bare] face to protect him from the awful suffering [that will befall him] on Resurrection Day [be likened to the God-conscious]? [On that Day,] the evildoers will be told: “Taste [now] what you have earned [in life]!”* — **Az-Zumar (39:24)**
 <!-- quran-verse-end -->
 
 ---
