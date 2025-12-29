@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And after a time, Noah] said: "O my Sustainer! Verily, I have been calling unto my people night and day* — **Nooh (71:5)**
+> 📖 *On that Day We will ask hell, “Art thou filled?”- and it will answer, “[Nay,] is there yet more [for me]?”* — **Qaaf (50:30)**
 <!-- quran-verse-end -->
 
 ---
