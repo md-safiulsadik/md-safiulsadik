@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *in a garden sublime,* — **Al-Ghaashiya (88:10)**
+> 📖 *Hence, when thou art freed [from distress], remain steadfast,* — **Ash-Sharh (94:7)**
 <!-- quran-verse-end -->
 
 ---
