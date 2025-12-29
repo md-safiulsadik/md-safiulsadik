@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that Day We will ask hell, “Art thou filled?”- and it will answer, “[Nay,] is there yet more [for me]?”* — **Qaaf (50:30)**
+> 📖 *[For Him,] the creation of you all and the resurrection of you all is but like [the creation and resurrection of] a single soul: for, verily, God is all-hearing, all-seeing.* — **Luqman (31:28)**
 <!-- quran-verse-end -->
 
 ---
