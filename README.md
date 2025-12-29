@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND SO, when the great overwhelming event [of, resurrection] comes to pass –* — **An-Naazi'aat (79:34)**
+> 📖 *[And after a time, Noah] said: "O my Sustainer! Verily, I have been calling unto my people night and day* — **Nooh (71:5)**
 <!-- quran-verse-end -->
 
 ---
