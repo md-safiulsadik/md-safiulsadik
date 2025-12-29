@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet [withal, O Prophet,] We have sent thee only as a herald of glad tidings and a warner.* — **Al-Furqaan (25:56)**
+> 📖 *and shall lead them astray, and fill them with vain desires; and I shall command them - and they will cut off the ears of cattle [in idolatrous sacrifice]; and I shall command them - and they will corrupt God's creation!" But all who take Satan rather than God for their master do indeed, most clearly, lose all:* — **An-Nisaa (4:119)**
 <!-- quran-verse-end -->
 
 ---
