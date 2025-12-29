@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[inclining] towards God, [and] turning away from all that is false, without ascribing divine qualities to aught beside Him: for he who ascribes divinity to aught but God is like one who is hurtling down from the skies - whereupon the birds carry him off, or the wind blows him away onto a far-off place.* — **Al-Hajj (22:31)**
+> 📖 *No true understanding of God have they [who err in this way]: for, verily, God is most powerful, almighty!* — **Al-Hajj (22:74)**
 <!-- quran-verse-end -->
 
 ---
