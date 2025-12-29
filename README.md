@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and from the evil of the black darkness whenever it descends,* — **Al-Falaq (113:3)**
+> 📖 *or the feeding, upon a day of [one's own] hunger,* — **Al-Balad (90:14)**
 <!-- quran-verse-end -->
 
 ---
