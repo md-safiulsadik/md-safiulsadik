@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *No true understanding of God have they [who err in this way]: for, verily, God is most powerful, almighty!* — **Al-Hajj (22:74)**
+> 📖 *AND SO, when the great overwhelming event [of, resurrection] comes to pass –* — **An-Naazi'aat (79:34)**
 <!-- quran-verse-end -->
 
 ---
