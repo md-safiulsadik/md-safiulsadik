@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] they add, "That, then, would be a return with loss!"* — **An-Naazi'aat (79:12)**
+> 📖 *it is they who are destined for paradise, therein to abide as a reward for all that they have done.* — **Al-Ahqaf (46:14)**
 <!-- quran-verse-end -->
 
 ---
