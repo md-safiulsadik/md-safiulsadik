@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[For Him,] the creation of you all and the resurrection of you all is but like [the creation and resurrection of] a single soul: for, verily, God is all-hearing, all-seeing.* — **Luqman (31:28)**
+> 📖 *near unto the garden of promise.* — **An-Najm (53:15)**
 <!-- quran-verse-end -->
 
 ---
