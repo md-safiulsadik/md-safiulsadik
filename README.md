@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and shall lead them astray, and fill them with vain desires; and I shall command them - and they will cut off the ears of cattle [in idolatrous sacrifice]; and I shall command them - and they will corrupt God's creation!" But all who take Satan rather than God for their master do indeed, most clearly, lose all:* — **An-Nisaa (4:119)**
+> 📖 *[inclining] towards God, [and] turning away from all that is false, without ascribing divine qualities to aught beside Him: for he who ascribes divinity to aught but God is like one who is hurtling down from the skies - whereupon the birds carry him off, or the wind blows him away onto a far-off place.* — **Al-Hajj (22:31)**
 <!-- quran-verse-end -->
 
 ---
