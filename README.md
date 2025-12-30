@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[HENCE, think of] the Day when a violent convulsion will convulse [the world],* — **An-Naazi'aat (79:6)**
+> 📖 *and feels no urge to feed the needy.* — **Al-Maa'un (107:3)**
 <!-- quran-verse-end -->
 
 ---
