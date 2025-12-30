@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Could, then, one who shall have nothing but is [bare] face to protect him from the awful suffering [that will befall him] on Resurrection Day [be likened to the God-conscious]? [On that Day,] the evildoers will be told: “Taste [now] what you have earned [in life]!”* — **Az-Zumar (39:24)**
+> 📖 *for, suffering in hell awaits all who are [thus] bent on blaspheming against their Sustainer: and how vile a journey's end!* — **Al-Mulk (67:6)**
 <!-- quran-verse-end -->
 
 ---
