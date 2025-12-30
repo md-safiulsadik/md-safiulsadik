@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[seeing that] with thy Sustainer alone rests the beginning and the end [of all knowledge] thereof?* — **An-Naazi'aat (79:44)**
+> 📖 *and [that] We create for them things of a similar kind, on which they may embark [in their travels];* — **Yaseen (36:42)**
 <!-- quran-verse-end -->
 
 ---
