@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAST THOU ever considered [the kind of man] who makes his own desires his deity, and whom God has [thereupon] let go astray, knowing [that his mind is closed to all guidance], and whose hearing and heart He has sealed, and upon whose sight He has placed a veil? Who, then, could guide him after God [has abandoned him]? Will you not, then, bethink your­selves?* — **Al-Jaathiya (45:23)**
+> 📖 *[seeing that] with thy Sustainer alone rests the beginning and the end [of all knowledge] thereof?* — **An-Naazi'aat (79:44)**
 <!-- quran-verse-end -->
 
 ---
