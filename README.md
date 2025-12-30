@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and feels no urge to feed the needy.* — **Al-Maa'un (107:3)**
+> 📖 *most certainly shall I cut off your hands and your feet in great numbers, because of [your] perverseness, and then I shall most certainly crucify you, in great numbers, all together! "* — **Al-A'raaf (7:124)**
 <!-- quran-verse-end -->
 
 ---
