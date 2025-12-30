@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"from all [temptation to evil by] invisible forces as well as men,"* — **An-Naas (114:6)**
+> 📖 *O Prophet! Inspire the believers to conquer all fear of death when fighting, [so that,] if there be twenty of you who are patient in adversity, they might overcome two hundred; and [that,] if there be one hundred of you, they might overcome one thousand of those who are bent on denying the truth, because they are people who cannot grasp it.* — **Al-Anfaal (8:65)**
 <!-- quran-verse-end -->
 
 ---
