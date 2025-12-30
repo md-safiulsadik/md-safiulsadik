@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Ask them:] “Would you, perchance, after having turned away [from God’s commandment, pre­fer to revert to your old ways, and] spread corruption on earth, and [once again] cut asunder your ties of kinship?”* — **Muhammad (47:22)**
+> 📖 *[And they will be told:] “Eat and drink with good cheer as an outcome of what you were wont to do,* — **At-Tur (52:19)**
 <!-- quran-verse-end -->
 
 ---
