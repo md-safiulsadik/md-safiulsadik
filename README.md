@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [that] We create for them things of a similar kind, on which they may embark [in their travels];* — **Yaseen (36:42)**
+> 📖 *[HENCE, think of] the Day when a violent convulsion will convulse [the world],* — **An-Naazi'aat (79:6)**
 <!-- quran-verse-end -->
 
 ---
