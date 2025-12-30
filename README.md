@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *most certainly shall I cut off your hands and your feet in great numbers, because of [your] perverseness, and then I shall most certainly crucify you, in great numbers, all together! "* — **Al-A'raaf (7:124)**
+> 📖 *And on that Day hell will be brought [within sight]; on that Day man will remember [all that he did and failed to do]: but what will that remembrance avail him?* — **Al-Fajr (89:23)**
 <!-- quran-verse-end -->
 
 ---
