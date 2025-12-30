@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and grain growing tall on its stalks, and sweet-smelling plants.* — **Ar-Rahmaan (55:12)**
+> 📖 *and [of] many war-gains which they would achieve: for God is indeed almighty, wise.* — **Al-Fath (48:19)**
 <!-- quran-verse-end -->
 
 ---
