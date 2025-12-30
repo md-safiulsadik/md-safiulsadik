@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [of] many war-gains which they would achieve: for God is indeed almighty, wise.* — **Al-Fath (48:19)**
+> 📖 *and remembers his Sustainer's name, and prays [unto Him].* — **Al-A'laa (87:15)**
 <!-- quran-verse-end -->
 
 ---
