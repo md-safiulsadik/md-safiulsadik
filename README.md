@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *To happiness [in the life to come] will indeed attain he who attains to purity [in this world],* — **Al-A'laa (87:14)**
+> 📖 *and made no allowance [for the will of God]:* — **Al-Qalam (68:18)**
 <!-- quran-verse-end -->
 
 ---
