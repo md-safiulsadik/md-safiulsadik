@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O men! Behold, We have created you all out of a male and a female, and have made you into nations and tribes, so that you might come to know one another. Verily, the noblest of you in the sight of God is the one who is most deeply conscious of Him. Behold, God is all-knowing, all-aware.* — **Al-Hujuraat (49:13)**
+> 📖 *“O my people! Yours is the dominion today, [and] most eminent are you on earth: but who will rescue us from God’s punishment, once it befalls us?” Said Pharaoh: “I but want to make you see what I see myself; and I would never make you follow any path but that of rectitude!”* — **Ghafir (40:29)**
 <!-- quran-verse-end -->
 
 ---
