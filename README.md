@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“O my people! Yours is the dominion today, [and] most eminent are you on earth: but who will rescue us from God’s punishment, once it befalls us?” Said Pharaoh: “I but want to make you see what I see myself; and I would never make you follow any path but that of rectitude!”* — **Ghafir (40:29)**
+> 📖 *and this land secure!* — **At-Tin (95:3)**
 <!-- quran-verse-end -->
 
 ---
