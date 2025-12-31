@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for him who believes and does righteous deeds - he will have the ultimate good [of the life to come] as his reward; and [as for us,] we shall make binding on him [only] that which is easy to fulfill."* — **Al-Kahf (18:88)**
+> 📖 *But as for those who were bent on denying the truth, [they will be told:] “Were not My messages conveyed to you? And withal, you gloried in your arrogance, and so you became people lost in sin:* — **Al-Jaathiya (45:31)**
 <!-- quran-verse-end -->
 
 ---
