@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "O you who follow the Jewish faith! If you claim that you [alone] are close to God, to the exclusion of all other people, then you should be longing for death - if what you say is true!"* — **Al-Jumu'a (62:6)**
+> 📖 *But as for him who believes and does righteous deeds - he will have the ultimate good [of the life to come] as his reward; and [as for us,] we shall make binding on him [only] that which is easy to fulfill."* — **Al-Kahf (18:88)**
 <!-- quran-verse-end -->
 
 ---
