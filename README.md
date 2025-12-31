@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He it is who has made the earth easy to live upon: go about, then, in all its regions, and partake the sustenance which He provides: but [always bear in mind that] unto Him you shall be resurrected.* — **Al-Mulk (67:15)**
+> 📖 *"from the evil of the whispering, elusive tempter* — **An-Naas (114:4)**
 <!-- quran-verse-end -->
 
 ---
