@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and in the night, too, extol His glory, and at every prayer’s end.* — **Qaaf (50:40)**
+> 📖 *and you love wealth with boundless love!* — **Al-Fajr (89:20)**
 <!-- quran-verse-end -->
 
 ---
