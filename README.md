@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HALLOWED be thy Sustainer’s name, full of majesty and glory!* — **Ar-Rahmaan (55:78)**
+> 📖 *and you cannot elude Him on earth, and you will have none to protect you from God [in the life to come], and none to bring you succour.* — **Ash-Shura (42:31)**
 <!-- quran-verse-end -->
 
 ---
