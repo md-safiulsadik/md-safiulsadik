@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and you love wealth with boundless love!* — **Al-Fajr (89:20)**
+> 📖 *Behold, they [who are unmindful of God] love this fleeting life, and leave behind them [all thought of] a grief-laden Day.* — **Al-Insaan (76:27)**
 <!-- quran-verse-end -->
 
 ---
