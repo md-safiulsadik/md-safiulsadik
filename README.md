@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and this land secure!* — **At-Tin (95:3)**
+> 📖 *and in the night, too, extol His glory, and at every prayer’s end.* — **Qaaf (50:40)**
 <!-- quran-verse-end -->
 
 ---
