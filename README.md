@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Let not your worldly goods or your children make you oblivious of the remembrance of God: for If any behave thus - it is they, they who are the losers!* — **Al-Munaafiqoon (63:9)**
+> 📖 *extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.* — **An-Nasr (110:3)**
 <!-- quran-verse-end -->
 
 ---
