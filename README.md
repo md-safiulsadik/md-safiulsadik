@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O followers of the Bible! Now, after a long time during which no apostles have appeared, there has come unto you [this] Our Apostle to make [the truth] clear to you, lest you say, "No bearer of glad tidings has come unto us, nor any warner ": for now there has come unto you a bearer of glad tidings and a warner -since God has the power to will anything.* — **Al-Maaida (5:19)**
+> 📖 *Say: "O you who follow the Jewish faith! If you claim that you [alone] are close to God, to the exclusion of all other people, then you should be longing for death - if what you say is true!"* — **Al-Jumu'a (62:6)**
 <!-- quran-verse-end -->
 
 ---
