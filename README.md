@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O Prophet! Inspire the believers to conquer all fear of death when fighting, [so that,] if there be twenty of you who are patient in adversity, they might overcome two hundred; and [that,] if there be one hundred of you, they might overcome one thousand of those who are bent on denying the truth, because they are people who cannot grasp it.* — **Al-Anfaal (8:65)**
+> 📖 *It is they who follow the guidance [that comes to them] from their Sustainer; and it is they, they who shall attain to a happy state!* — **Luqman (31:5)**
 <!-- quran-verse-end -->
 
 ---
