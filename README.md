@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, they [who are unmindful of God] love this fleeting life, and leave behind them [all thought of] a grief-laden Day.* — **Al-Insaan (76:27)**
+> 📖 *O followers of the Bible! Now, after a long time during which no apostles have appeared, there has come unto you [this] Our Apostle to make [the truth] clear to you, lest you say, "No bearer of glad tidings has come unto us, nor any warner ": for now there has come unto you a bearer of glad tidings and a warner -since God has the power to will anything.* — **Al-Maaida (5:19)**
 <!-- quran-verse-end -->
 
 ---
