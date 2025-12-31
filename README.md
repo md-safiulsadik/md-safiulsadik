@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware of those who, having been granted their share of the divine writ, now barter it away for error, and want you [too] to lose your way?* — **An-Nisaa (4:44)**
+> 📖 *BUT NAY! I call to witness the revolving stars,* — **At-Takwir (81:15)**
 <!-- quran-verse-end -->
 
 ---
