@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and placed it before them, saying, “Will you not eat?”* — **Adh-Dhaariyat (51:27)**
+> 📖 *ART THOU NOT aware of those who, having been granted their share of the divine writ, now barter it away for error, and want you [too] to lose your way?* — **An-Nisaa (4:44)**
 <!-- quran-verse-end -->
 
 ---
