@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Remain conscious of God, and be among those who are true to their word!* — **At-Tawba (9:119)**
+> 📖 *But [Pharaoh] gave him the lie and rebelliously rejected [all guidance],* — **An-Naazi'aat (79:21)**
 <!-- quran-verse-end -->
 
 ---
