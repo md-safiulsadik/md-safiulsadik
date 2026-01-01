@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"from the evil of the whispering, elusive tempter* — **An-Naas (114:4)**
+> 📖 *but be conscious of God and disgrace me not!"* — **Al-Hijr (15:69)**
 <!-- quran-verse-end -->
 
 ---
