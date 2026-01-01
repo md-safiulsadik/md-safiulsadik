@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the earth and the mountains shall be lifted up and crushed with a single stroke!* — **Al-Haaqqa (69:14)**
+> 📖 *[AND THE SONS of Jacob went back to Egypt and to Joseph;] and when they presented themselves before him, they said: "O thou great one! Hardship has visited us and our folk, and so we have brought but scanty merchandise; but give us a full measure [of grain], and be charitable to us: behold, God rewards those who give in charity!"* — **Yusuf (12:88)**
 <!-- quran-verse-end -->
 
 ---
