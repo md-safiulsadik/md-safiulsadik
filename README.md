@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Such is He who knows all that is beyond the reach of a created being’s perception, as well as all that can be witnessed by a creature’s senses or mind: the Almighty, the Dispenser of Grace,* — **As-Sajda (32:6)**
+> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
 <!-- quran-verse-end -->
 
 ---
