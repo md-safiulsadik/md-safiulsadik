@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and defer not to [the likes and dislikes of] the deniers of the truth and the hypocrites, and disregard their hurtful talk, and place thy trust in God: for none is as worthy of trust as God.* — **Al-Ahzaab (33:48)**
+> 📖 *For, had they been [truly] desirous of setting out [with thee], they would surely have made some preparation therefor: but God was averse to their taking the field, and so He caused them to hold back when it was said, "[You may] stay at home with all [the others] who stay at home."* — **At-Tawba (9:46)**
 <!-- quran-verse-end -->
 
 ---
