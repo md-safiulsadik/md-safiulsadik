@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the creation of the male and the female!* — **Al-Lail (92:3)**
+> 📖 *Verily, it is God [alone] who upholds the celestial bodies and the earth, lest they deviate [from their orbits] - for if they should ever deviate, there is none that could uphold them after He will have ceased to do so. [But,] verily, He is ever-forbearing, much-for­giving!* — **Faatir (35:41)**
 <!-- quran-verse-end -->
 
 ---
