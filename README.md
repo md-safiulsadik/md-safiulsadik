@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but be conscious of God and disgrace me not!"* — **Al-Hijr (15:69)**
+> 📖 *and the earth and the mountains shall be lifted up and crushed with a single stroke!* — **Al-Haaqqa (69:14)**
 <!-- quran-verse-end -->
 
 ---
