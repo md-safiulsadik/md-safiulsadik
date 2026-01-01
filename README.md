@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And in the course of time We brought out [of Lot ’s city] such [few] believers as were there:* — **Adh-Dhaariyat (51:35)**
+> 📖 *Or can you ever feel secure that He who is in heaven will not let loose against you a deadly stormwind, whereupon you would come to know how [true] My warning was?* — **Al-Mulk (67:17)**
 <!-- quran-verse-end -->
 
 ---
