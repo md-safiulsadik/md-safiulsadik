@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thus they had to taste the evil outcome of their own doing: for, [in this world,] the end of their doings was ruin,* — **At-Talaaq (65:9)**
+> 📖 *AND [there are hypocrites] who have established a [separate] house of worship in order to create mischief, and to promote apostasy and disunity among the believers, and to provide an outpost for all who from the outset have been warring against God and His Apostle. And they will surely swear [to you, O believers], "We had but the best of intentions!" -the while God [Himself] bears witness that they are lying.* — **At-Tawba (9:107)**
 <!-- quran-verse-end -->
 
 ---
