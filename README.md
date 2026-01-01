@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, had they been [truly] desirous of setting out [with thee], they would surely have made some preparation therefor: but God was averse to their taking the field, and so He caused them to hold back when it was said, "[You may] stay at home with all [the others] who stay at home."* — **At-Tawba (9:46)**
+> 📖 *O YOU who have attained to faith! Remain conscious of God, and be among those who are true to their word!* — **At-Tawba (9:119)**
 <!-- quran-verse-end -->
 
 ---
