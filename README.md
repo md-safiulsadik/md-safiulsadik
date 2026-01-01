@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the Sustainer of the heavens and the earth and all that is between them, the Almighty, the All-Forgiving!”* — **Saad (38:66)**
+> 📖 *Such is He who knows all that is beyond the reach of a created being’s perception, as well as all that can be witnessed by a creature’s senses or mind: the Almighty, the Dispenser of Grace,* — **As-Sajda (32:6)**
 <!-- quran-verse-end -->
 
 ---
