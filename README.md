@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But [Pharaoh] gave him the lie and rebelliously rejected [all guidance],* — **An-Naazi'aat (79:21)**
+> 📖 *the Sustainer of the heavens and the earth and all that is between them, the Almighty, the All-Forgiving!”* — **Saad (38:66)**
 <!-- quran-verse-end -->
 
 ---
