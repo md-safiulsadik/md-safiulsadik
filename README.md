@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[AND THE SONS of Jacob went back to Egypt and to Joseph;] and when they presented themselves before him, they said: "O thou great one! Hardship has visited us and our folk, and so we have brought but scanty merchandise; but give us a full measure [of grain], and be charitable to us: behold, God rewards those who give in charity!"* — **Yusuf (12:88)**
+> 📖 *And in the course of time We brought out [of Lot ’s city] such [few] believers as were there:* — **Adh-Dhaariyat (51:35)**
 <!-- quran-verse-end -->
 
 ---
