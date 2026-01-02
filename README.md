@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *How, then, if you refuse to acknowledge the truth, will you protect yourselves on that Day which shall turn the hair of children grey,* — **Al-Muzzammil (73:17)**
+> 📖 *For among His signs is this: thou seest the earth lying desolate - and lo! when We send down water upon it, it stirs and swells [with life]! Verily, He who brings it to life can surely give life to the dead [of heart as well]: for, behold, He has the power to will anything.* — **Fussilat (41:39)**
 <!-- quran-verse-end -->
 
 ---
