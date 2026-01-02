@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Woe unto every sinful self-deceiver* — **Al-Jaathiya (45:7)**
+> 📖 *but all the while God encompasses them [with His knowledge and might] without their being aware of it.* — **Al-Burooj (85:20)**
 <!-- quran-verse-end -->
 
 ---
