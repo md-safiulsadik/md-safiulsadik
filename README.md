@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.* — **An-Nasr (110:3)**
+> 📖 *Whatever [spoils taken] from the people of those villages God has turned over to His Apostle - [all of it] belongs to God and the Apostle, and the near of kin [of deceased believers], and the orphans, and the needy, and the wayfarer, so that it may not be [a benefit] going round and round among such of you as may [already] be rich. Hence, accept [willing­ly] whatever the Apostle* gives you [thereof], and refrain from [demanding] anything that he withholds from you; and remain conscious of God: for, verily, God is severe in retribution.* — **Al-Hashr (59:7)**
 <!-- quran-verse-end -->
 
 ---
