@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thy Sustainer's greatness glorify!* — **Al-Muddaththir (74:3)**
+> 📖 *THUS, INDEED, have We propounded unto men all kinds of parables in this Qur’an, so that they might bethink themselves; [and We have revealed it]* — **Az-Zumar (39:27)**
 <!-- quran-verse-end -->
 
 ---
