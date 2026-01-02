@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
+> 📖 *And thus it is: whenever We sent, before thy time, a warner to any community, those of its people who had lost themselves entirely in the pursuit of pleasures would always say, “Behold, we found our forefathers agreed on what to believe - and, verily, it is but in their footsteps that we follow!”* — **Az-Zukhruf (43:23)**
 <!-- quran-verse-end -->
 
 ---
