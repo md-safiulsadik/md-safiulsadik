@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thus it is: whenever We sent, before thy time, a warner to any community, those of its people who had lost themselves entirely in the pursuit of pleasures would always say, “Behold, we found our forefathers agreed on what to believe - and, verily, it is but in their footsteps that we follow!”* — **Az-Zukhruf (43:23)**
+> 📖 *And thy Sustainer's greatness glorify!* — **Al-Muddaththir (74:3)**
 <!-- quran-verse-end -->
 
 ---
