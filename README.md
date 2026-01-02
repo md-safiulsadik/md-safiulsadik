@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! When the call to prayer is sounded on the day of congregation, hasten to the remembrance of God, and leave all worldly commerce: this is for your own good, if you but knew it.* — **Al-Jumu'a (62:9)**
+> 📖 *Those who have attained to faith and do righteous deeds incur no sin by partaking of whatever they may, so long as they are conscious of God and [truly] believe and do righteous deeds, and continue to be conscious of God and to believe, and grow ever more conscious of God, and persevere in doing good: for God loves the doers of good.* — **Al-Maaida (5:93)**
 <!-- quran-verse-end -->
 
 ---
