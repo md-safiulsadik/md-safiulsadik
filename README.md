@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, we did invoke Him [alone] ere this: [and now He has shown us] that He alone is truly benign, a true dispenser of grace!”* — **At-Tur (52:28)**
+> 📖 *It is the star that pierces through [life's] darkness:* — **At-Taariq (86:3)**
 <!-- quran-verse-end -->
 
 ---
