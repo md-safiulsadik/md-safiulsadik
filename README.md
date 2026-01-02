@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For among His signs is this: thou seest the earth lying desolate - and lo! when We send down water upon it, it stirs and swells [with life]! Verily, He who brings it to life can surely give life to the dead [of heart as well]: for, behold, He has the power to will anything.* — **Fussilat (41:39)**
+> 📖 *Therefore, the orphan shalt thou never wrong,* — **Ad-Dhuhaa (93:9)**
 <!-- quran-verse-end -->
 
 ---
