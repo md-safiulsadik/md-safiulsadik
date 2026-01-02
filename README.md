@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Those who have attained to faith and do righteous deeds incur no sin by partaking of whatever they may, so long as they are conscious of God and [truly] believe and do righteous deeds, and continue to be conscious of God and to believe, and grow ever more conscious of God, and persevere in doing good: for God loves the doers of good.* — **Al-Maaida (5:93)**
+> 📖 *O YOU who have attained to faith! Why do you say one thing and do another?* — **As-Saff (61:2)**
 <!-- quran-verse-end -->
 
 ---
