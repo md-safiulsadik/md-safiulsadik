@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is the star that pierces through [life's] darkness:* — **At-Taariq (86:3)**
+> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
 <!-- quran-verse-end -->
 
 ---
