@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for whoever is blind [of heart] in this [world] will be blind in the life to come [as well], and still farther astray from the path [of truth].* — **Al-Israa (17:72)**
+> 📖 *as thy Sustainer will have inspired her to do!* — **Az-Zalzala (99:5)**
 <!-- quran-verse-end -->
 
 ---
