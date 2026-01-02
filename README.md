@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Whatever [spoils taken] from the people of those villages God has turned over to His Apostle - [all of it] belongs to God and the Apostle, and the near of kin [of deceased believers], and the orphans, and the needy, and the wayfarer, so that it may not be [a benefit] going round and round among such of you as may [already] be rich. Hence, accept [willing­ly] whatever the Apostle* gives you [thereof], and refrain from [demanding] anything that he withholds from you; and remain conscious of God: for, verily, God is severe in retribution.* — **Al-Hashr (59:7)**
+> 📖 *But [bear in mind that] neither your kinsfolk nor [even] your own children will be of any benefit to you on Resurrection Day, [for then] He will decide between you [on your merit alone]: and God sees all that you do.* — **Al-Mumtahana (60:3)**
 <!-- quran-verse-end -->
 
 ---
