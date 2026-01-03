@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *shall find himself in a happy' state of life;* — **Al-Qaari'a (101:7)**
+> 📖 *for a term pre-ordained?* — **Al-Mursalaat (77:22)**
 <!-- quran-verse-end -->
 
 ---
