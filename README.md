@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and caused them to become like a field of grain that has been eaten down to stubble* — **Al-Fil (105:5)**
+> 📖 *that had weighed so heavily on thy back?* — **Ash-Sharh (94:3)**
 <!-- quran-verse-end -->
 
 ---
