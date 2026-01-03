@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *We will let them enjoy them­selves for a short while - but in the end We shall drive them into suffering severe.* — **Luqman (31:24)**
+> 📖 *shall find himself in a happy' state of life;* — **Al-Qaari'a (101:7)**
 <!-- quran-verse-end -->
 
 ---
