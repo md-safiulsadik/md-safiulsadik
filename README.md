@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *he who [in the life to come] shall have to endure the great fire* — **Al-A'laa (87:12)**
+> 📖 *Hence, when thou art freed [from distress], remain steadfast,* — **Ash-Sharh (94:7)**
 <!-- quran-verse-end -->
 
 ---
