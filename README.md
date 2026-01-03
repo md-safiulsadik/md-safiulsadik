@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for a term pre-ordained?* — **Al-Mursalaat (77:22)**
+> 📖 *This is nothing but the word of mortal man!"* — **Al-Muddaththir (74:25)**
 <!-- quran-verse-end -->
 
 ---
