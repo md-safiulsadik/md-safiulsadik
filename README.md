@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what it is that comes in the night?* — **At-Taariq (86:2)**
+> 📖 *And as for the first and foremost of those who have forsaken the domain of evil and of those who have sheltered and succoured the Faith, as well as those who follow them in [the way of] righteousness - God is well-pleased with them, and well--pleased are they with Him. And for them has He readied gardens through which running waters flow, therein to abide beyond the count of time: this is the triumph supreme!* — **At-Tawba (9:100)**
 <!-- quran-verse-end -->
 
 ---
