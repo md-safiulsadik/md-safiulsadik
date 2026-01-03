@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, when thou art freed [from distress], remain steadfast,* — **Ash-Sharh (94:7)**
+> 📖 *thus offering an insight and a reminder unto every human being who willingly turns unto God.* — **Qaaf (50:8)**
 <!-- quran-verse-end -->
 
 ---
