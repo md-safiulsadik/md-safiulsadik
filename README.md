@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the heavens, ever-revolving,* — **At-Taariq (86:11)**
+> 📖 *[and] neither may the sun overtake the moon, nor can the night usurp the time of day, since all of them float through space [in accordance with Our laws].* — **Yaseen (36:40)**
 <!-- quran-verse-end -->
 
 ---
