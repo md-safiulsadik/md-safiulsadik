@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And as for the first and foremost of those who have forsaken the domain of evil and of those who have sheltered and succoured the Faith, as well as those who follow them in [the way of] righteousness - God is well-pleased with them, and well--pleased are they with Him. And for them has He readied gardens through which running waters flow, therein to abide beyond the count of time: this is the triumph supreme!* — **At-Tawba (9:100)**
+> 📖 *For [thus it is with most men:] when the waves engulf them like shadows [of death], they call unto God, sincere [at that moment] in their faith in Him alone: but as soon as He has brought them safe ashore, some of them stop half-way [between belief and unbelief] Yet none could knowingly reject Our messages unless he be utterly perfidious, ingrate.* — **Luqman (31:32)**
 <!-- quran-verse-end -->
 
 ---
