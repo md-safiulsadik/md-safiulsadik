@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when heaven is laid bare,* — **At-Takwir (81:11)**
+> 📖 *And [know that] all of the divine writ with which We have inspired thee is the very truth, confirming the truth of whatever there still remains of earlier revelations for, behold, of [the needs of] His servants God is fully aware, all-seeing.* — **Faatir (35:31)**
 <!-- quran-verse-end -->
 
 ---
