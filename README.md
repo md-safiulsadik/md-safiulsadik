@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and will aid you with worldly goods and children, and will bestow upon you gardens, and bestow upon you running waters.* — **Nooh (71:12)**
+> 📖 *and they said: “Are we to follow one single mortal, one from among ourselves? In that case, behold, we would certainly sink into error and folly!* — **Al-Qamar (54:24)**
 <!-- quran-verse-end -->
 
 ---
