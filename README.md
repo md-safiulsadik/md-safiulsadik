@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *This is nothing but the word of mortal man!"* — **Al-Muddaththir (74:25)**
+> 📖 *And what could make thee conceive what it is that comes in the night?* — **At-Taariq (86:2)**
 <!-- quran-verse-end -->
 
 ---
