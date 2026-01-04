@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *him didst thou disregard!* — **Abasa (80:10)**
+> 📖 *and with [the tribe of] Thamud, who hollowed out rocks in the valley? –* — **Al-Fajr (89:9)**
 <!-- quran-verse-end -->
 
 ---
