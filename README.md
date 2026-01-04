@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *nor be allowed to proffer excuses!* — **Al-Mursalaat (77:36)**
+> 📖 *and will admit them to the paradise which He has promised them.* — **Muhammad (47:6)**
 <!-- quran-verse-end -->
 
 ---
