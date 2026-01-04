@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and will admit them to the paradise which He has promised them.* — **Muhammad (47:6)**
+> 📖 *Indeed, unto God belongs all that is in the heavens and all that is on earth: and so He will reward those who do evil in accordance with what they did, and will reward those who do good with ultimate good.* — **An-Najm (53:31)**
 <!-- quran-verse-end -->
 
 ---
