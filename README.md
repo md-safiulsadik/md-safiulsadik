@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and ever nearer unto thee, and nearer!* — **Al-Qiyaama (75:35)**
+> 📖 *nor be allowed to proffer excuses!* — **Al-Mursalaat (77:36)**
 <!-- quran-verse-end -->
 
 ---
