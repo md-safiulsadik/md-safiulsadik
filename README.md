@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let, then, the deniers of the truth have their will: let them have their will for a little while.* — **At-Taariq (86:17)**
+> 📖 *for they were [willing to be] guided towards the best of all tenets, and so they were guided onto the way that leads to the One unto whom all praise is due.* — **Al-Hajj (22:24)**
 <!-- quran-verse-end -->
 
 ---
