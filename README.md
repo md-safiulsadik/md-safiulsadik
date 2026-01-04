@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and with [the tribe of] Thamud, who hollowed out rocks in the valley? –* — **Al-Fajr (89:9)**
+> 📖 *Behold, it is this [kind of man] that thrusts the orphan away,* — **Al-Maa'un (107:2)**
 <!-- quran-verse-end -->
 
 ---
