@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NAY! I call to witness this land –* — **Al-Balad (90:1)**
+> 📖 *And [thereafter], indeed, We assigned unto the children of Israel a most goodly abode, and provided for them sustenance out of the good things of life. And it was not until knowledge [of God's revelation] was vouchsafed to them that they began to hold divergent views: [but,] verily, thy Sustainer will judge between them on Resurrection Day regarding all on which they were wont to differ.* — **Yunus (10:93)**
 <!-- quran-verse-end -->
 
 ---
