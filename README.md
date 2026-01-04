@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *or add to it [at will]; and [during that time] recite the Qur’an calmly and distinctly, with thy mind attuned to its meaning.* — **Al-Muzzammil (73:4)**
+> 📖 *given to drink from a boiling spring.* — **Al-Ghaashiya (88:5)**
 <!-- quran-verse-end -->
 
 ---
