@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on that Day man will [clearly] remember all that he has ever wrought;* — **An-Naazi'aat (79:35)**
+> 📖 *NAY! I call to witness this land –* — **Al-Balad (90:1)**
 <!-- quran-verse-end -->
 
 ---
