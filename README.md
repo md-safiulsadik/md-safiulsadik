@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And there are yet other [gains] which are still beyond your grasp, [but] which God has already encompassed [for you]: for God has the power to will anything.* — **Al-Fath (48:21)**
+> 📖 *him didst thou disregard!* — **Abasa (80:10)**
 <!-- quran-verse-end -->
 
 ---
