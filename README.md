@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.* — **Az-Zalzala (99:6)**
+> 📖 *reclining upon them, facing one another [in love].* — **Al-Waaqia (56:16)**
 <!-- quran-verse-end -->
 
 ---
