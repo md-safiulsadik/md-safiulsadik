@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for they were [willing to be] guided towards the best of all tenets, and so they were guided onto the way that leads to the One unto whom all praise is due.* — **Al-Hajj (22:24)**
+> 📖 *With thy Sustainer, on that Day, the journey's end will be!* — **Al-Qiyaama (75:12)**
 <!-- quran-verse-end -->
 
 ---
