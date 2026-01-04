@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *reclining upon them, facing one another [in love].* — **Al-Waaqia (56:16)**
+> 📖 *he will in time be called to account with an easy accounting,* — **Al-Inshiqaaq (84:8)**
 <!-- quran-verse-end -->
 
 ---
