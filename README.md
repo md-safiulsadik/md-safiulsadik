@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, it is this [kind of man] that thrusts the orphan away,* — **Al-Maa'un (107:2)**
+> 📖 *on that Day man will [clearly] remember all that he has ever wrought;* — **An-Naazi'aat (79:35)**
 <!-- quran-verse-end -->
 
 ---
