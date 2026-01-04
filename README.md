@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *out of this [earth] have We created you, and into it shall We return you, and out of it shall We bring you forth once again.* — **Taa-Haa (20:55)**
+> 📖 *and ever nearer unto thee, and nearer!* — **Al-Qiyaama (75:35)**
 <!-- quran-verse-end -->
 
 ---
