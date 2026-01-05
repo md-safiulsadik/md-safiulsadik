@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[thinking that] he has hosts of helpers-both such as can be perceived by him and such as are hidden from him -that could preserve him from whatever God may have willed. Verily, God does not change men's condition unless they change their inner selves; and when God wills people to suffer evil [in consequence of their own evil deeds], there is none who could avert it: for they have none who could protect them from Him.* — **Ar-Ra'd (13:11)**
+> 📖 *But as for those who were bent on denying the truth, [they will be told:] “Were not My messages conveyed to you? And withal, you gloried in your arrogance, and so you became people lost in sin:* — **Al-Jaathiya (45:31)**
 <!-- quran-verse-end -->
 
 ---
