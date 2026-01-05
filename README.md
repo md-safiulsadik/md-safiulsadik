@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Did they, perchance, [think that they could] choose protectors other than Him? But God alone is the Protector [of all that exists], since it is He alone who brings the dead to life, and He alone who has the power to will anything.* — **Ash-Shura (42:9)**
+> 📖 *"'And [now we know] that the foolish among us were wont to say outrageous things about God,* — **Al-Jinn (72:4)**
 <!-- quran-verse-end -->
 
 ---
