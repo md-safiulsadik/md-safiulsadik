@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER this divine writ, clear in itself and clearly showing the truth!* — **Ad-Dukhaan (44:2)**
+> 📖 *[And] think not that those who are bent on denying the truth can elude [their final reckoning even if they remain unscathed] on earth: the fire is their goal [in the life to come] - and vile indeed is such a journey’s end!* — **An-Noor (24:57)**
 <!-- quran-verse-end -->
 
 ---
