@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *although the life to come is better and more enduring.* — **Al-A'laa (87:17)**
+> 📖 *CONSIDER this divine writ, clear in itself and clearly showing the truth!* — **Ad-Dukhaan (44:2)**
 <!-- quran-verse-end -->
 
 ---
