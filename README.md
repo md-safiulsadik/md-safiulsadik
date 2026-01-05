@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *those who eagerly listen to any falsehood, greedily swallowing all that is evil! Hence, if they come to thee [for judgment], thou mayest either judge between them or leave them alone: for, if thou leave them alone, they cannot harm thee in any way. But if thou dost judge, judge between them with equity: verily, God knows those who act equitably.* — **Al-Maaida (5:42)**
+> 📖 *Did they, perchance, [think that they could] choose protectors other than Him? But God alone is the Protector [of all that exists], since it is He alone who brings the dead to life, and He alone who has the power to will anything.* — **Ash-Shura (42:9)**
 <!-- quran-verse-end -->
 
 ---
