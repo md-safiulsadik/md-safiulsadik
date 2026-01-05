@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, verily, O my Sustainer, these [false objects of worship] have led many people astray! "Hence, [only] he who follows me [in this my faith] ~ is truly of me; and as for him who disobeys me - Thou art, verily, much-forgiving, a dispenser of grace!* — **Ibrahim (14:36)**
+> 📖 *and that it is He alone who deals death and grants life;* — **An-Najm (53:44)**
 <!-- quran-verse-end -->
 
 ---
