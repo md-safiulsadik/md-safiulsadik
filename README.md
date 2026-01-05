@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for those who were bent on denying the truth, [they will be told:] “Were not My messages conveyed to you? And withal, you gloried in your arrogance, and so you became people lost in sin:* — **Al-Jaathiya (45:31)**
+> 📖 *for, verily, O my Sustainer, these [false objects of worship] have led many people astray! "Hence, [only] he who follows me [in this my faith] ~ is truly of me; and as for him who disobeys me - Thou art, verily, much-forgiving, a dispenser of grace!* — **Ibrahim (14:36)**
 <!-- quran-verse-end -->
 
 ---
