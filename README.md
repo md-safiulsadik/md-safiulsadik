@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who has created me and is the One who guides me,* — **Ash-Shu'araa (26:78)**
+> 📖 *As they came upon David, and he shrank back in fear from them, they said: “Fear not! [We are but] two litigants. One of us has wronged the other: so judge thou between us with justice, and deviate not from what is right, and show [both of] us the way to rectitude.* — **Saad (38:22)**
 <!-- quran-verse-end -->
 
 ---
