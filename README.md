@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on the Day when God will raise them all from the dead and will make them truly understand all that they did [in life]: God will have taken [all of] it into account, even though they [themselves] may have forgotten it - for God is wit­ness unto everything.* — **Al-Mujaadila (58:6)**
+> 📖 *[thinking that] he has hosts of helpers-both such as can be perceived by him and such as are hidden from him -that could preserve him from whatever God may have willed. Verily, God does not change men's condition unless they change their inner selves; and when God wills people to suffer evil [in consequence of their own evil deeds], there is none who could avert it: for they have none who could protect them from Him.* — **Ar-Ra'd (13:11)**
 <!-- quran-verse-end -->
 
 ---
