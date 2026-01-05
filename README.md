@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"'And [now we know] that the foolish among us were wont to say outrageous things about God,* — **Al-Jinn (72:4)**
+> 📖 *who has created me and is the One who guides me,* — **Ash-Shu'araa (26:78)**
 <!-- quran-verse-end -->
 
 ---
