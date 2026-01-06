@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *he truly beheld [the angel - beheld] him on the clear horizon;* — **At-Takwir (81:23)**
+> 📖 *[And they will be told:] "Verily, all this is your reward since Your endeavour [in life] has met [God's] goodly acceptance!"* — **Al-Insaan (76:22)**
 <!-- quran-verse-end -->
 
 ---
