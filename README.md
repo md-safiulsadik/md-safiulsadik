@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
+> 📖 *Behold, [in the life to come] the truly virtuous: will indeed be in bliss,* — **Al-Infitaar (82:13)**
 <!-- quran-verse-end -->
 
 ---
