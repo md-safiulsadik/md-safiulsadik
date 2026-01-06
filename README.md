@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *those who spread corruption on earth instead of setting things to rights!”* — **Ash-Shu'araa (26:152)**
+> 📖 *for, were they not aware that it is We who had made the night for them, so that they might rest therein, and the day, to make [them] see? In this, behold, there are messages indeed for peo­ple who will believe!* — **An-Naml (27:86)**
 <!-- quran-verse-end -->
 
 ---
