@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, were they not aware that it is We who had made the night for them, so that they might rest therein, and the day, to make [them] see? In this, behold, there are messages indeed for peo­ple who will believe!* — **An-Naml (27:86)**
+> 📖 *this, because they cut themselves off from God and His Apostle: and as for him who cuts himself off from God and His Apostle - verily, God is severe in retribution!* — **Al-Hashr (59:4)**
 <!-- quran-verse-end -->
 
 ---
