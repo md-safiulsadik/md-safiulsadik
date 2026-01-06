@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And they will be told:] “Eat and drink with good cheer as an outcome of what you were wont to do,* — **At-Tur (52:19)**
+> 📖 *wherein thou wilt hear no empty talk.* — **Al-Ghaashiya (88:11)**
 <!-- quran-verse-end -->
 
 ---
