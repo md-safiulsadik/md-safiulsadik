@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, [in the life to come] the truly virtuous: will indeed be in bliss,* — **Al-Infitaar (82:13)**
+> 📖 *save Iblis: he refused to be among those who prostrated themselves.* — **Al-Hijr (15:31)**
 <!-- quran-verse-end -->
 
 ---
