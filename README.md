@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *save Iblis: he refused to be among those who prostrated themselves.* — **Al-Hijr (15:31)**
+> 📖 *But nay, [O men,] you prefer the life of this world,* — **Al-A'laa (87:16)**
 <!-- quran-verse-end -->
 
 ---
