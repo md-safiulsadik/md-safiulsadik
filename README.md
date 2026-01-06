@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *wherein thou wilt hear no empty talk.* — **Al-Ghaashiya (88:11)**
+> 📖 *those who spread corruption on earth instead of setting things to rights!”* — **Ash-Shu'araa (26:152)**
 <!-- quran-verse-end -->
 
 ---
