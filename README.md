@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And they will be told:] "Verily, all this is your reward since Your endeavour [in life] has met [God's] goodly acceptance!"* — **Al-Insaan (76:22)**
+> 📖 *[And they will be told:] “Eat and drink with good cheer as an outcome of what you were wont to do,* — **At-Tur (52:19)**
 <!-- quran-verse-end -->
 
 ---
