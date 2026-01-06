@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and him that seeks [thy] help shalt thou never chide,* — **Ad-Dhuhaa (93:10)**
+> 📖 *As soon as you [O believers] are about to set forth on a war that promises booty, those who stayed behind [aforetime] will surely say, “Allow us to go with you” - [thus showing that] they would like to alter the Word of God. Say: “By no means shall you go with us: God has declared aforetime [to whom all spoils shall belong].” Thereupon they will [surely] answer, “Nay, but you begrudge us [our share of booty]!” Nay, they can grasp but so little of the truth!* — **Al-Fath (48:15)**
 <!-- quran-verse-end -->
 
 ---
