@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when paradise is brought into view:* — **At-Takwir (81:13)**
+> 📖 *[In the end] they said: "Oh, woe unto us! Verily, we did behave outrageously!* — **Al-Qalam (68:31)**
 <!-- quran-verse-end -->
 
 ---
