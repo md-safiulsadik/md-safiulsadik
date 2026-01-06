@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *this, because they cut themselves off from God and His Apostle: and as for him who cuts himself off from God and His Apostle - verily, God is severe in retribution!* — **Al-Hashr (59:4)**
+> 📖 *If they could but overcome you, they would [still] remain your foes, and would stretch forth their hands and tongues against you with evil intent: for they desire that you [too] should deny the truth.* — **Al-Mumtahana (60:2)**
 <!-- quran-verse-end -->
 
 ---
