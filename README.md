@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet even if [they should listen to] a [divine] discourse by which mountains could be moved, or the earth cleft asunder, or the dead made to speak - [they who are bent on denying the truth would still refuse to believe in it]! Nay, but God alone has the power to decide what shall be. Have, then, they who have attained to faith not yet come to know that, had God so willed; He would indeed have guided all mankind aright? But as for those who are bent on denying the truth-in result of their [evil] deeds, sudden calamities will always befall them or will alight close to their homes; [and this will continue] until God's promise [of resurrection] is fulfilled: verily, God never fails to fulfil His promise!* — **Ar-Ra'd (13:31)**
+> 📖 *And for those who have attained to faith God has propounded a parable in [the story of] Pharaoh's wife as she prayed "O my Sustainer! Build Thou for me a mansion in the paradise [that is] with Thee, and save me from Pharaoh and his doings, and save me, from all evildoing folk!* — **At-Tahrim (66:11)**
 <!-- quran-verse-end -->
 
 ---
