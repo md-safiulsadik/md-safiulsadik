@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *As soon as you [O believers] are about to set forth on a war that promises booty, those who stayed behind [aforetime] will surely say, “Allow us to go with you” - [thus showing that] they would like to alter the Word of God. Say: “By no means shall you go with us: God has declared aforetime [to whom all spoils shall belong].” Thereupon they will [surely] answer, “Nay, but you begrudge us [our share of booty]!” Nay, they can grasp but so little of the truth!* — **Al-Fath (48:15)**
+> 📖 *he truly beheld [the angel - beheld] him on the clear horizon;* — **At-Takwir (81:23)**
 <!-- quran-verse-end -->
 
 ---
