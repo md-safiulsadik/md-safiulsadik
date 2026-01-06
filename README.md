@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Do not take the Jews and the Christians for your allies: they are but allies of one another and whoever of you allies himself with them becomes, verily, one of them; behold, God does not guide such evildoers.* — **Al-Maaida (5:51)**
+> 📖 *and when paradise is brought into view:* — **At-Takwir (81:13)**
 <!-- quran-verse-end -->
 
 ---
