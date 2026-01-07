@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[For, indeed,] God will judge between you [all] on Resurrection Day with regard to all on which you were wont to differ.* — **Al-Hajj (22:69)**
+> 📖 *And why should you not spend freely in the cause of God, seeing that God’s [alone] is the heritage of the heavens and the earth? Not equal are those of you who spent and fought [in God’s cause] before the Victory [and those who did not do so]: they are of a higher rank than those who would spend and fight [only] after it - although God has promised the ultimate good to all [who strive in His cause]. and god is aware of that you do.* — **Al-Hadid (57:10)**
 <!-- quran-verse-end -->
 
 ---
