@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Extol, then the limitless glory of thy Sustainer's mighty name!* — **Al-Haaqqa (69:52)**
+> 📖 *and whenever they pass by them, they wink at one another [derisively];* — **Al-Mutaffifin (83:30)**
 <!-- quran-verse-end -->
 
 ---
