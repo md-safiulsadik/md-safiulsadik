@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And do not use your oaths as a means of deceiving one another-or else [your] foot will slip after having been firm, and then you will have to taste the evil [consequences] of your having turned away from the path of God, with tremendous suffering awaiting you [in the life to come].* — **An-Nahl (16:94)**
+> 📖 *for, behold, it has been revealed to us that [in the life to come] suffering shall befall all who give the lie to the truth and turn away [from it]!"'* — **Taa-Haa (20:48)**
 <!-- quran-verse-end -->
 
 ---
