@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but as for those who are bent on denying the truth, ill fortune awaits them, since He will let all their [good] deeds go to waste:* — **Muhammad (47:8)**
+> 📖 *Extol, then the limitless glory of thy Sustainer's mighty name!* — **Al-Haaqqa (69:52)**
 <!-- quran-verse-end -->
 
 ---
