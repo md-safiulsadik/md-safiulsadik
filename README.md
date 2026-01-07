@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But [when] those who are conscious of God are asked, "What is it that your Sustainer has bestowed from on high?" -they answer, "Goodness supreme!" Good fortune awaits, in this world, all who persevere in doing good; but their ultimate state will be far better still: for, how excellent indeed will be the state of the God-conscious [in the life to come]!* — **An-Nahl (16:30)**
+> 📖 *but as for those who are lost in iniquity - their goal is the fire: as oft as they will try to come out of it, they will be thrown back into it; and they will be told, “Taste [now] this suffering through fire which you were wont to call a lie!”* — **As-Sajda (32:20)**
 <!-- quran-verse-end -->
 
 ---
