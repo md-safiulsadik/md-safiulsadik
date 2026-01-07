@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The offerings given for the sake of God are [meant] only for the poor and the needy, and those who are in charge thereof, and those whose hearts are to be won over, and for the freeing of human beings from bondage, and [for] those who are over burdened with debts, and [for every struggle] in God's cause, and [for] the wayfarer: [this is] an ordinance from God - and God is all-knowing, wise.* — **At-Tawba (9:60)**
+> 📖 *But [when] those who are conscious of God are asked, "What is it that your Sustainer has bestowed from on high?" -they answer, "Goodness supreme!" Good fortune awaits, in this world, all who persevere in doing good; but their ultimate state will be far better still: for, how excellent indeed will be the state of the God-conscious [in the life to come]!* — **An-Nahl (16:30)**
 <!-- quran-verse-end -->
 
 ---
