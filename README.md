@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but as for those who are lost in iniquity - their goal is the fire: as oft as they will try to come out of it, they will be thrown back into it; and they will be told, “Taste [now] this suffering through fire which you were wont to call a lie!”* — **As-Sajda (32:20)**
+> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
 <!-- quran-verse-end -->
 
 ---
