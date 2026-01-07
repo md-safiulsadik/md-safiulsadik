@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[thinking that] he has hosts of helpers-both such as can be perceived by him and such as are hidden from him -that could preserve him from whatever God may have willed. Verily, God does not change men's condition unless they change their inner selves; and when God wills people to suffer evil [in consequence of their own evil deeds], there is none who could avert it: for they have none who could protect them from Him.* — **Ar-Ra'd (13:11)**
+> 📖 *AND NEVER have We sent forth any apostle otherwise than [with a message] in his own people's tongue, so that he might make [the truth] clear unto them; but God lets go astray him that wills [to go astray], and guides him that wills [to be guided] -for He alone is almighty, truly wise.* — **Ibrahim (14:4)**
 <!-- quran-verse-end -->
 
 ---
