@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHEN THE EARTH quakes with her [last] mighty quaking,* — **Az-Zalzala (99:1)**
+> 📖 *And do not use your oaths as a means of deceiving one another-or else [your] foot will slip after having been firm, and then you will have to taste the evil [consequences] of your having turned away from the path of God, with tremendous suffering awaiting you [in the life to come].* — **An-Nahl (16:94)**
 <!-- quran-verse-end -->
 
 ---
