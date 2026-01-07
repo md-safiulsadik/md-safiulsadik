@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
+> 📖 *whenever he believes himself to be self-sufficient:* — **Al-Alaq (96:7)**
 <!-- quran-verse-end -->
 
 ---
