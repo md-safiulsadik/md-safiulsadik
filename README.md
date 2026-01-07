@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In gardens of bliss [will they dwell] -* — **Al-Waaqia (56:12)**
+> 📖 *WHEN THE EARTH quakes with her [last] mighty quaking,* — **Az-Zalzala (99:1)**
 <!-- quran-verse-end -->
 
 ---
