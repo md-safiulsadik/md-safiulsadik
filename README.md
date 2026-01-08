@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and has caused its waters to come out of it, and its pastures,* — **An-Naazi'aat (79:31)**
+> 📖 *perverted in his views thereon is he who would deceive himself!* — **Adh-Dhaariyat (51:9)**
 <!-- quran-verse-end -->
 
 ---
