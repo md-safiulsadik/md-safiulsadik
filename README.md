@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *perverted in his views thereon is he who would deceive himself!* — **Adh-Dhaariyat (51:9)**
+> 📖 *[But] He will say: “Away with you into this [ignominy]! And speak no more unto Me!* — **Al-Muminoon (23:108)**
 <!-- quran-verse-end -->
 
 ---
