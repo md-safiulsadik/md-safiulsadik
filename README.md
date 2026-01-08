@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And if We so willed, We could indeed take away whatever We have revealed unto thee, and in that [state of need] thou wouldst find none to plead in thy behalf before Us.* — **Al-Israa (17:86)**
+> 📖 *NAY! I call to witness this land –* — **Al-Balad (90:1)**
 <!-- quran-verse-end -->
 
 ---
