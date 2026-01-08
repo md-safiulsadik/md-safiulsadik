@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet, among men there is many a one who argues about God without having any knowledge [of Him], and follows every rebellious satanic force* — **Al-Hajj (22:3)**
+> 📖 *But as for those who were bent on denying the truth, [they will be told:] “Were not My messages conveyed to you? And withal, you gloried in your arrogance, and so you became people lost in sin:* — **Al-Jaathiya (45:31)**
 <!-- quran-verse-end -->
 
 ---
