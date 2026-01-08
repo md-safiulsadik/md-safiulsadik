@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NAY! I call to witness this land –* — **Al-Balad (90:1)**
+> 📖 *and has caused its waters to come out of it, and its pastures,* — **An-Naazi'aat (79:31)**
 <!-- quran-verse-end -->
 
 ---
