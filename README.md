@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The uppermost heavens are well-nigh rent asunder [for awe of Him]; and the angels extol their Sustainer’s limitless glory and praise, and ask for­giveness for all who are on earth. Oh, verily, God alone is truly-forgiving, a dispenser of grace!* — **Ash-Shura (42:5)**
+> 📖 *On that Day will every human being be requited for what he has earned: no wrong [will be done] on that Day: verily, swift in reckoning is God!* — **Ghafir (40:17)**
 <!-- quran-verse-end -->
 
 ---
