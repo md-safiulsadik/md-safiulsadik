@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Alif. Lam. Mim.* — **Luqman (31:1)**
+> 📖 *And Noah called out to his Sustainer, and said: "O my Sustainer! Verily, my son was of my family; and, verily, Thy promise always comes true, and Thou art the most just of all judges!"* — **Hud (11:45)**
 <!-- quran-verse-end -->
 
 ---
