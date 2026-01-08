@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But] He will say: “Away with you into this [ignominy]! And speak no more unto Me!* — **Al-Muminoon (23:108)**
+> 📖 *created man out of a germ-cell* — **Al-Alaq (96:2)**
 <!-- quran-verse-end -->
 
 ---
