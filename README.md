@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who are constant in prayer and dispense charity: for it is they, they who in their innermost are certain of the life to come!* — **Luqman (31:4)**
+> 📖 *[And they will be told:] “Eat and drink with good cheer as an outcome of what you were wont to do,* — **At-Tur (52:19)**
 <!-- quran-verse-end -->
 
 ---
