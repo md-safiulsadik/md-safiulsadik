@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And they will be told:] “Eat and drink with good cheer as an outcome of what you were wont to do,* — **At-Tur (52:19)**
+> 📖 *O YOU who have attained to faith! Why do you say one thing and do another?* — **As-Saff (61:2)**
 <!-- quran-verse-end -->
 
 ---
