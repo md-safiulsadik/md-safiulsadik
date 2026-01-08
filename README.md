@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that Day will every human being be requited for what he has earned: no wrong [will be done] on that Day: verily, swift in reckoning is God!* — **Ghafir (40:17)**
+> 📖 *And if We so willed, We could indeed take away whatever We have revealed unto thee, and in that [state of need] thou wouldst find none to plead in thy behalf before Us.* — **Al-Israa (17:86)**
 <!-- quran-verse-end -->
 
 ---
