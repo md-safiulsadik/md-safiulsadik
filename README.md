@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and made me blessed wherever I may be; and He has enjoined upon me prayer and charity as long as I live,* — **Maryam (19:31)**
+> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:75)**
 <!-- quran-verse-end -->
 
 ---
