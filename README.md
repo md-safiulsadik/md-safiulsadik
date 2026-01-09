@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[As soon as the cup came to light out of Benjamin's bag, the brothers] exclaimed: "If he has stolen-well, a brother of his used to steal afore-time!" Thereupon Joseph said to himself, without revealing his thought to them: "You are far worse in this respect, and God is fully aware of what you are saying.* — **Yusuf (12:77)**
+> 📖 *Verily, he that hates thee has indeed been cut off [from all that is good]!* — **Al-Kawthar (108:3)**
 <!-- quran-verse-end -->
 
 ---
