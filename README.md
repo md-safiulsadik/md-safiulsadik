@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *This, verily, is a reminder: let him who wills, then set out on a way to his Sustainer!* — **Al-Muzzammil (73:19)**
+> 📖 *[As soon as the cup came to light out of Benjamin's bag, the brothers] exclaimed: "If he has stolen-well, a brother of his used to steal afore-time!" Thereupon Joseph said to himself, without revealing his thought to them: "You are far worse in this respect, and God is fully aware of what you are saying.* — **Yusuf (12:77)**
 <!-- quran-verse-end -->
 
 ---
