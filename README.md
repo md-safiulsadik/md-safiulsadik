@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said they: “Thou art but one of the be­witched,* — **Ash-Shu'araa (26:185)**
+> 📖 *O YOU who have attained to faith! Bow down and prostrate yourselves, and worship your Sustainer [alone], and do good, so that you might attain to a happy state!* — **Al-Hajj (22:77)**
 <!-- quran-verse-end -->
 
 ---
