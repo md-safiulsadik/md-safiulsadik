@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *not even a word can he utter but there is a watcher with him, ever-present.* — **Qaaf (50:18)**
+> 📖 *Say: “It is God who gives you life, and then causes you to die; and in the end He will gather you together on Resurrection Day, [the coming of] which is beyond all doubt - but most human beings under­stand it not.”* — **Al-Jaathiya (45:26)**
 <!-- quran-verse-end -->
 
 ---
