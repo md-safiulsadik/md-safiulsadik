@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “It is God who gives you life, and then causes you to die; and in the end He will gather you together on Resurrection Day, [the coming of] which is beyond all doubt - but most human beings under­stand it not.”* — **Al-Jaathiya (45:26)**
+> 📖 *O YOU who have attained to faith! Behold, some of your spouses and your children are enemies unto you: so beware of them! But if you pardon [their faults] and forbear, and forgive-then, behold, God will be much-forgiving, a dispenser of grace.* — **At-Taghaabun (64:14)**
 <!-- quran-verse-end -->
 
 ---
