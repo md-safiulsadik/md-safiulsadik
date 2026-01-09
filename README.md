@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:75)**
+> 📖 *But they who are bent on denying the truth speak thus of those who have attained to faith: “If this [message] were any good, these [people] would not have preceded us in accepting it!” And since they refuse to be guided by it, they will always say, “This is [but] an ancient falsehood!”* — **Al-Ahqaf (46:11)**
 <!-- quran-verse-end -->
 
 ---
