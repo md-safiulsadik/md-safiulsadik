@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: His is all dominion, and to Him all praise is due; and He has the power to will anything.* — **At-Taghaabun (64:1)**
+> 📖 *AND [remember:] out of all the accounts relating to the [earlier] apostles We convey unto thee [only] that wherewith We [aim to] make firm thy heart: for through these [accounts] comes the truth unto thee, as well as an admonition and a reminder unto all believers.* — **Hud (11:120)**
 <!-- quran-verse-end -->
 
 ---
