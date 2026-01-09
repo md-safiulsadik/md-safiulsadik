@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say thou: “Wait, [then,] hopefully; behold, I, too, shall hopefully wait with you!”* — **At-Tur (52:31)**
+> 📖 *Now when thou seest them, their outward appearance may please thee; and when they speak, thou art inclined to lend ear to what they say. [But though they may seem as sure of themselves] as if they were timbers [firmly] propped up, they think that every shout is [directed] against them. They are the [real] enemies [of all faith], so beware of them. [They deserve the imprecation,] "May God destroy them!" How perverted are their minds!* — **Al-Munaafiqoon (63:4)**
 <!-- quran-verse-end -->
 
 ---
