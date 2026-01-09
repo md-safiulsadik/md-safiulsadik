@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas he whose weight is light in the balance* — **Al-Qaari'a (101:8)**
+> 📖 *On that Day you shall be brought to judgment: not [even] the most hidden of your deeds will remain hidden.* — **Al-Haaqqa (69:18)**
 <!-- quran-verse-end -->
 
 ---
