@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [remember:] out of all the accounts relating to the [earlier] apostles We convey unto thee [only] that wherewith We [aim to] make firm thy heart: for through these [accounts] comes the truth unto thee, as well as an admonition and a reminder unto all believers.* — **Hud (11:120)**
+> 📖 *not even a word can he utter but there is a watcher with him, ever-present.* — **Qaaf (50:18)**
 <!-- quran-verse-end -->
 
 ---
