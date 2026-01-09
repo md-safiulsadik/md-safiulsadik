@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, he that hates thee has indeed been cut off [from all that is good]!* — **Al-Kawthar (108:3)**
+> 📖 *ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: His is all dominion, and to Him all praise is due; and He has the power to will anything.* — **At-Taghaabun (64:1)**
 <!-- quran-verse-end -->
 
 ---
