@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that Day you shall be brought to judgment: not [even] the most hidden of your deeds will remain hidden.* — **Al-Haaqqa (69:18)**
+> 📖 *AND HOW MANY a community has turned with disdain from the commandment of its Sustainer and His apostles! -whereupon We callled them all to account with an accounting severe, and caused them to suffer with a suffering unnameable:* — **At-Talaaq (65:8)**
 <!-- quran-verse-end -->
 
 ---
