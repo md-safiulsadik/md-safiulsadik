@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and, withal, deny all assistance [to their fellow-men]!* — **Al-Maa'un (107:7)**
+> 📖 *whereas he whose weight is light in the balance* — **Al-Qaari'a (101:8)**
 <!-- quran-verse-end -->
 
 ---
