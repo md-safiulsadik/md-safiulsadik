@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *High above all orders [of being] is He, in almightiness enthroned. By His Own will does He bestow inspiration upon whomever He wills of His servants, so as to warn [all human beings of the coming] of the Day when they shall meet Him* — **Ghafir (40:15)**
+> 📖 *[Hallowed be] He who has created seven heavens in full harmony with one another: no fault will thou see in the creation of the Most Gracious. And turn thy vision [upon it] once more: canst thou see any flaw?* — **Al-Mulk (67:3)**
 <!-- quran-verse-end -->
 
 ---
