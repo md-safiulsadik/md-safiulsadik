@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"O my people! No reward do I ask of you for this [message]: my reward rests with none but Him who brought me into being. Will you not, then, use your reason?* — **Hud (11:51)**
+> 📖 *And [yet,] when they are told, “Beware of [God’s insight into] all that lies open before you and all that is hidden from you, so that you might be graced with His mercy,” [most men choose to remain deaf;]* — **Yaseen (36:45)**
 <!-- quran-verse-end -->
 
 ---
