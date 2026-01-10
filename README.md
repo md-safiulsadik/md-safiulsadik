@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And if you have reason to fear that a breach might occur between a [married] couple, appoint an arbiter from among his people and an arbiter from among her people; if they both want to set things aright, God may bring about their reconciliation. Be­hold, God is indeed all-knowing, aware.* — **An-Nisaa (4:35)**
+> 📖 *Yet if the people of those communities had but attained to faith and been conscious of Us, We would indeed have opened up for them blessings out of heaven and earth: but they gave the lie to the truth - and so We took them to task through what they [themselves] had been doing.* — **Al-A'raaf (7:96)**
 <!-- quran-verse-end -->
 
 ---
