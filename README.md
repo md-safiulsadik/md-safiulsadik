@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *after they had turned with disdain from their Sustainer’s commandment - whereupon the thunderbolt of punishment overtook them while they were [helplessly] looking on:* — **Adh-Dhaariyat (51:44)**
+> 📖 *[AS AGAINST this,] behold, the God-conscious shall dwell amidst [cooling] shades and springs,* — **Al-Mursalaat (77:41)**
 <!-- quran-verse-end -->
 
 ---
