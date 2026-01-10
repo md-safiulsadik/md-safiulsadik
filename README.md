@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[on that Day,] then, shall you be [divided into] three kinds.* — **Al-Waaqia (56:7)**
+> 📖 *Why, then, when [the last breath] comes up to the throat [of a dying man],* — **Al-Waaqia (56:83)**
 <!-- quran-verse-end -->
 
 ---
