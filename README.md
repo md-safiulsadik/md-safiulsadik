@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Hallowed be] He who has created seven heavens in full harmony with one another: no fault will thou see in the creation of the Most Gracious. And turn thy vision [upon it] once more: canst thou see any flaw?* — **Al-Mulk (67:3)**
+> 📖 *And on that Day He will call unto them, and will ask: “How did you respond to My message­ bearers?”* — **Al-Qasas (28:65)**
 <!-- quran-verse-end -->
 
 ---
