@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and remembers his Sustainer's name, and prays [unto Him].* — **Al-A'laa (87:15)**
+> 📖 *and thou seest people enter God's religion in hosts,* — **An-Nasr (110:2)**
 <!-- quran-verse-end -->
 
 ---
