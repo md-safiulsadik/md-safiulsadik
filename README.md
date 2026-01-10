@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and] all my power of argument has died away from me!"* — **Al-Haaqqa (69:29)**
+> 📖 *"the Sovereign of men,* — **An-Naas (114:2)**
 <!-- quran-verse-end -->
 
 ---
