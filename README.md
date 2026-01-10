@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"the Sovereign of men,* — **An-Naas (114:2)**
+> 📖 *[on that Day,] then, shall you be [divided into] three kinds.* — **Al-Waaqia (56:7)**
 <!-- quran-verse-end -->
 
 ---
