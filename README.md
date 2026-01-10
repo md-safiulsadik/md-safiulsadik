@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And on that Day He will call unto them, and will ask: “How did you respond to My message­ bearers?”* — **Al-Qasas (28:65)**
+> 📖 *"O my people! No reward do I ask of you for this [message]: my reward rests with none but Him who brought me into being. Will you not, then, use your reason?* — **Hud (11:51)**
 <!-- quran-verse-end -->
 
 ---
