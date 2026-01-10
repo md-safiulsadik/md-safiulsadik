@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *YOU ARE OBSESSED by greed for more and more* — **At-Takaathur (102:1)**
+> 📖 *But nay - they who are bent on evildoing fol­low but their own desires, without having any knowl­edge (of the truth). And who could guide those whom God has [thus] let go astray, and who (thereupon) have none to succour them?* — **Ar-Room (30:29)**
 <!-- quran-verse-end -->
 
 ---
