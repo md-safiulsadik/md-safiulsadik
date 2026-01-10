@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Why, then, when [the last breath] comes up to the throat [of a dying man],* — **Al-Waaqia (56:83)**
+> 📖 *High above all orders [of being] is He, in almightiness enthroned. By His Own will does He bestow inspiration upon whomever He wills of His servants, so as to warn [all human beings of the coming] of the Day when they shall meet Him* — **Ghafir (40:15)**
 <!-- quran-verse-end -->
 
 ---
