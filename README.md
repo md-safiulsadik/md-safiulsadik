@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and perhaps, too, our forebears of old?”* — **Al-Waaqia (56:48)**
+> 📖 *after they had turned with disdain from their Sustainer’s commandment - whereupon the thunderbolt of punishment overtook them while they were [helplessly] looking on:* — **Adh-Dhaariyat (51:44)**
 <!-- quran-verse-end -->
 
 ---
