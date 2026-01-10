@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet if the people of those communities had but attained to faith and been conscious of Us, We would indeed have opened up for them blessings out of heaven and earth: but they gave the lie to the truth - and so We took them to task through what they [themselves] had been doing.* — **Al-A'raaf (7:96)**
+> 📖 *[and] all my power of argument has died away from me!"* — **Al-Haaqqa (69:29)**
 <!-- quran-verse-end -->
 
 ---
