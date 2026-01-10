@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But nay - they who are bent on evildoing fol­low but their own desires, without having any knowl­edge (of the truth). And who could guide those whom God has [thus] let go astray, and who (thereupon) have none to succour them?* — **Ar-Room (30:29)**
+> 📖 *O YOU who have attained to faith! Behold, some of your spouses and your children are enemies unto you: so beware of them! But if you pardon [their faults] and forbear, and forgive-then, behold, God will be much-forgiving, a dispenser of grace.* — **At-Taghaabun (64:14)**
 <!-- quran-verse-end -->
 
 ---
