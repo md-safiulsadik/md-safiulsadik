@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and know that your worldly goods and your children are but a trial and a temptation, and that with God there is a tremendous reward.* — **Al-Anfaal (8:28)**
+> 📖 *and perhaps, too, our forebears of old?”* — **Al-Waaqia (56:48)**
 <!-- quran-verse-end -->
 
 ---
