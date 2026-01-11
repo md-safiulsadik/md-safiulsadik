@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God will not take you to task for oaths which you may have uttered without thought, but will take you to task [only] for what your hearts have conceived [in earnest]: for God is much-forgiving, forbearing.* — **Al-Baqara (2:225)**
+> 📖 *and float [through space] with floating serene,* — **An-Naazi'aat (79:3)**
 <!-- quran-verse-end -->
 
 ---
