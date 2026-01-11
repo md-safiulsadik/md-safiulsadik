@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Place him in a chest and throw it into the river, and thereupon the river will cast him ashore, [and] one who is an enemy unto Me and an enemy unto him will adopt him. "And [thus early] I spread Mine Own love over thee -and [this] in order that thou might be formed under Mine eye.* — **Taa-Haa (20:39)**
+> 📖 *and when the blazing fire [of hell] is kindled bright,* — **At-Takwir (81:12)**
 <!-- quran-verse-end -->
 
 ---
