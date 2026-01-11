@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, [O Prophet,] as for those who call thee from without thy private apartments - most of them do not use their reason:* — **Al-Hujuraat (49:4)**
+> 📖 *NOW THOSE who have attained to faith say, “Would that a revelation [allowing us to fight] was bestowed from on high!” But now that a revelation clear in and by itself, mentioning war, has been bestowed from on high, thou canst see those in whose hearts is disease look­ing at thee, [O Muhammad,] with the look of one who is about to faint for fear of death! And yet, far better for them would be* — **Muhammad (47:20)**
 <!-- quran-verse-end -->
 
 ---
