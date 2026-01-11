@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and float [through space] with floating serene,* — **An-Naazi'aat (79:3)**
+> 📖 *or lest he should say, “If God had but guided me, I would surely have been among those who are conscious of Him!”-* — **Az-Zumar (39:57)**
 <!-- quran-verse-end -->
 
 ---
