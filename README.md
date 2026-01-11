@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *witnessed~ by all who have [ever] been drawn close unto God.* — **Al-Mutaffifin (83:21)**
+> 📖 *No true understanding of God have they [who err in this way]: for, verily, God is most powerful, almighty!* — **Al-Hajj (22:74)**
 <!-- quran-verse-end -->
 
 ---
