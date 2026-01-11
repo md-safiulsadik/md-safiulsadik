@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[even thus, O men,] are you bound to move; onward from stage to stage.* — **Al-Inshiqaaq (84:19)**
+> 📖 *never-failing and never out of reach.* — **Al-Waaqia (56:33)**
 <!-- quran-verse-end -->
 
 ---
