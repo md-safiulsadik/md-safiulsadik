@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[borne] by the hands of messengers* — **Abasa (80:15)**
+> 📖 *witnessed~ by all who have [ever] been drawn close unto God.* — **Al-Mutaffifin (83:21)**
 <!-- quran-verse-end -->
 
 ---
