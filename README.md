@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *What, then, [O man,] could henceforth cause thee to give the lie to this moral law?* — **At-Tin (95:7)**
+> 📖 *[derived from] a source [to be found] therein, whose name is "Seek Thy Way".* — **Al-Insaan (76:18)**
 <!-- quran-verse-end -->
 
 ---
