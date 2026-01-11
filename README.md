@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NOW THOSE who have attained to faith say, “Would that a revelation [allowing us to fight] was bestowed from on high!” But now that a revelation clear in and by itself, mentioning war, has been bestowed from on high, thou canst see those in whose hearts is disease look­ing at thee, [O Muhammad,] with the look of one who is about to faint for fear of death! And yet, far better for them would be* — **Muhammad (47:20)**
+> 📖 *for, when they are told, "Come, the Apostle of God will pray [unto God] that you be forgiven", they turn their heads away, and thou canst see how they draw back in their false pride.* — **Al-Munaafiqoon (63:5)**
 <!-- quran-verse-end -->
 
 ---
