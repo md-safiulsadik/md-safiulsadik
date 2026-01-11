@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *or lest he should say, “If God had but guided me, I would surely have been among those who are conscious of Him!”-* — **Az-Zumar (39:57)**
+> 📖 *But if they turn away, say: “I have proclaimed this in equity unto all of you alike; but I do not know whether that [judgment] which you are promised [by God] is near or far [in time].* — **Al-Anbiyaa (21:109)**
 <!-- quran-verse-end -->
 
 ---
