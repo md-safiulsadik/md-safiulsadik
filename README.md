@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *never-failing and never out of reach.* — **Al-Waaqia (56:33)**
+> 📖 *God will not take you to task for oaths which you may have uttered without thought, but will take you to task [only] for what your hearts have conceived [in earnest]: for God is much-forgiving, forbearing.* — **Al-Baqara (2:225)**
 <!-- quran-verse-end -->
 
 ---
