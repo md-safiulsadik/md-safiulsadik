@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[AS AGAINST this,] behold, the God-conscious shall dwell amidst [cooling] shades and springs,* — **Al-Mursalaat (77:41)**
+> 📖 *Place him in a chest and throw it into the river, and thereupon the river will cast him ashore, [and] one who is an enemy unto Me and an enemy unto him will adopt him. "And [thus early] I spread Mine Own love over thee -and [this] in order that thou might be formed under Mine eye.* — **Taa-Haa (20:39)**
 <!-- quran-verse-end -->
 
 ---
