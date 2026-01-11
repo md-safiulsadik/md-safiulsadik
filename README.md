@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[derived from] a source [to be found] therein, whose name is "Seek Thy Way".* — **Al-Insaan (76:18)**
+> 📖 *Verily, [O Prophet,] as for those who call thee from without thy private apartments - most of them do not use their reason:* — **Al-Hujuraat (49:4)**
 <!-- quran-verse-end -->
 
 ---
