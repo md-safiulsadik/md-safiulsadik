@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *No true understanding of God have they [who err in this way]: for, verily, God is most powerful, almighty!* — **Al-Hajj (22:74)**
+> 📖 *[even thus, O men,] are you bound to move; onward from stage to stage.* — **Al-Inshiqaaq (84:19)**
 <!-- quran-verse-end -->
 
 ---
