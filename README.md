@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet, behold, thy Sustainer [grants His forgiveness] unto those who forsake the domain of evil after having succumbed to its temptation, and who thenceforth strive hard [in God's cause] and are patient in adversity: behold, after such [repentance] thy Sustainer is indeed much-forgiving, a dispenser of grace!* — **An-Nahl (16:110)**
+> 📖 *[borne] by the hands of messengers* — **Abasa (80:15)**
 <!-- quran-verse-end -->
 
 ---
