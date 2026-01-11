@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But if they turn away, say: “I have proclaimed this in equity unto all of you alike; but I do not know whether that [judgment] which you are promised [by God] is near or far [in time].* — **Al-Anbiyaa (21:109)**
+> 📖 *But [bear in mind that] neither your kinsfolk nor [even] your own children will be of any benefit to you on Resurrection Day, [for then] He will decide between you [on your merit alone]: and God sees all that you do.* — **Al-Mumtahana (60:3)**
 <!-- quran-verse-end -->
 
 ---
