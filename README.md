@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, those [towns] stood by a road that still exists.* — **Al-Hijr (15:76)**
+> 📖 *the Day on which neither wealth will be of any use, nor children,* — **Ash-Shu'araa (26:88)**
 <!-- quran-verse-end -->
 
 ---
