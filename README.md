@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the Day on which neither wealth will be of any use, nor children,* — **Ash-Shu'araa (26:88)**
+> 📖 *On the Day when they shall be dragged into the fire on their faces, [they will be told:] “Taste now the touch of hell-fire!”* — **Al-Qamar (54:48)**
 <!-- quran-verse-end -->
 
 ---
