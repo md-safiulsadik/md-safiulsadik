@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *knowing all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind - the Almighty, the Wise!* — **At-Taghaabun (64:18)**
+> 📖 *TO [THIS] TRUTH gave the lie, in their overweening arrogance, [the tribe of] Thamud,* — **Ash-Shams (91:11)**
 <!-- quran-verse-end -->
 
 ---
