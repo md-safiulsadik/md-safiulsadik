@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And were it not for God’s favour upon you and His grace, and that God is compassionate, a dispenser of grace...!* — **An-Noor (24:20)**
+> 📖 *and endure with patience whatever people may say [against thee], and avoid them with a comely avoidance.* — **Al-Muzzammil (73:10)**
 <!-- quran-verse-end -->
 
 ---
