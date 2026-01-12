@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *they who are true to their bond with God and never break their covenant;* — **Ar-Ra'd (13:20)**
+> 📖 *And were it not for God’s favour upon you and His grace, and that God is compassionate, a dispenser of grace...!* — **An-Noor (24:20)**
 <!-- quran-verse-end -->
 
 ---
