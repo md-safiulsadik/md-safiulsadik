@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O men! Verily, God’s promise [of resurrection] is true indeed: let not, then, the life of this world delude you, and let not [your own] deceptive thoughts about God delude you!* — **Faatir (35:5)**
+> 📖 *And when they threw down [their staffs and cast a spell upon the people's eyes], Moses said unto them: "What you have contrived is [but] sorcery which, verily, God will bring to nought! Verily, God does not further the works of spreaders of corruption -* — **Yunus (10:81)**
 <!-- quran-verse-end -->
 
 ---
