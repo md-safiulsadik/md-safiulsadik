@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, verily, O my Sustainer, these [false objects of worship] have led many people astray! "Hence, [only] he who follows me [in this my faith] ~ is truly of me; and as for him who disobeys me - Thou art, verily, much-forgiving, a dispenser of grace!* — **Ibrahim (14:36)**
+> 📖 *AND [remember:] it is God who sends forth the winds, so that they raise a cloud, whereupon We drive it towards dead land and thereby give life to the earth after it had been lifeless: even thus shall resur­rection be!* — **Faatir (35:9)**
 <!-- quran-verse-end -->
 
 ---
