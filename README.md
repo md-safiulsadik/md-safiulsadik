@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and endure with patience whatever people may say [against thee], and avoid them with a comely avoidance.* — **Al-Muzzammil (73:10)**
+> 📖 *for, behold, those [towns] stood by a road that still exists.* — **Al-Hijr (15:76)**
 <!-- quran-verse-end -->
 
 ---
