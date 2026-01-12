@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"He begets not, and neither is He begotten;* — **Al-Ikhlaas (112:3)**
+> 📖 *they who are true to their bond with God and never break their covenant;* — **Ar-Ra'd (13:20)**
 <!-- quran-verse-end -->
 
 ---
