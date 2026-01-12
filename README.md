@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, thy Sustainer's grip is exceedingly strong!* — **Al-Burooj (85:12)**
+> 📖 *O men! Verily, God’s promise [of resurrection] is true indeed: let not, then, the life of this world delude you, and let not [your own] deceptive thoughts about God delude you!* — **Faatir (35:5)**
 <!-- quran-verse-end -->
 
 ---
