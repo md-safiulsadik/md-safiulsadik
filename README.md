@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"from all [temptation to evil by] invisible forces as well as men,"* — **An-Naas (114:6)**
+> 📖 *VERILY, thy Sustainer's grip is exceedingly strong!* — **Al-Burooj (85:12)**
 <!-- quran-verse-end -->
 
 ---
