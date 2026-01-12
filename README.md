@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [remember:] it is God who sends forth the winds, so that they raise a cloud, whereupon We drive it towards dead land and thereby give life to the earth after it had been lifeless: even thus shall resur­rection be!* — **Faatir (35:9)**
+> 📖 *He is God, the Creator, the Maker who shapes all forms and appearances! His [alone] are the attributes of perfection. All that is in the heavens and on earth extols His limitless glory: for He alone is almighty, truly wise!* — **Al-Hashr (59:24)**
 <!-- quran-verse-end -->
 
 ---
