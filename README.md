@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHEN GOD'S SUCCOUR comes, and victory,* — **An-Nasr (110:1)**
+> 📖 *Alif. Lam. Ra. THESE ARE MESSAGES of revelation -of a discourse clear in itself and clearly showing the truth.* — **Al-Hijr (15:1)**
 <!-- quran-verse-end -->
 
 ---
