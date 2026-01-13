@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But when he came close to it, a call was sounded: “Blessed are all who are within [reach of] this fire, and all who are near it! And limitless in His glory is God, the Sustainer of all the worlds!”* — **An-Naml (27:8)**
+> 📖 *AND TELL THEM [once again] about Abraham's guests -* — **Al-Hijr (15:51)**
 <!-- quran-verse-end -->
 
 ---
