@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *those who want only to be seen and praised,* — **Al-Maa'un (107:6)**
+> 📖 *WHEN GOD'S SUCCOUR comes, and victory,* — **An-Nasr (110:1)**
 <!-- quran-verse-end -->
 
 ---
