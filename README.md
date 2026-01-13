@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and say: "Behold, I am indeed the plain warner [promised by God]!* — **Al-Hijr (15:89)**
+> 📖 *Hence, leave them to indulge in idle talk and play [with words] until they face that [Judgment] Day of theirs which they have been promised –* — **Al-Ma'aarij (70:42)**
 <!-- quran-verse-end -->
 
 ---
