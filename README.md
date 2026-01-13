@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who has given them food against hunger, and made them safe from danger.* — **Quraish (106:4)**
+> 📖 *and say: "Behold, I am indeed the plain warner [promised by God]!* — **Al-Hijr (15:89)**
 <!-- quran-verse-end -->
 
 ---
