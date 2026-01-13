@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but aloof from it will remain that most hapless wretch –* — **Al-A'laa (87:11)**
+> 📖 *though they may be in one another's sight: [for,] everyone who was lost in sin will on that Day but desire to ransom himself from suffering at the price of his own children,* — **Al-Ma'aarij (70:11)**
 <!-- quran-verse-end -->
 
 ---
