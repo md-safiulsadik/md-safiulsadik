@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and bear in mind thy Sustainer's name at morn and evening* — **Al-Insaan (76:25)**
+> 📖 *Is not God the most just of judges?* — **At-Tin (95:8)**
 <!-- quran-verse-end -->
 
 ---
