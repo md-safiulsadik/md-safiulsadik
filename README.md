@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But nay! I call to witness the accusing voice of man's own conscience!* — **Al-Qiyaama (75:2)**
+> 📖 *those who want only to be seen and praised,* — **Al-Maa'un (107:6)**
 <!-- quran-verse-end -->
 
 ---
