@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on which they [so utterly] disagree.* — **An-Naba (78:3)**
+> 📖 *and that they [so often] say what they do not do [or feel]?* — **Ash-Shu'araa (26:226)**
 <!-- quran-verse-end -->
 
 ---
