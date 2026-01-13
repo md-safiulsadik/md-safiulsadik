@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *though they may be in one another's sight: [for,] everyone who was lost in sin will on that Day but desire to ransom himself from suffering at the price of his own children,* — **Al-Ma'aarij (70:11)**
+> 📖 *BEHOLD, We have bestowed upon thee good in abundance:* — **Al-Kawthar (108:1)**
 <!-- quran-verse-end -->
 
 ---
