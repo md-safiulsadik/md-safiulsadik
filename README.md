@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [withal.] We do not burden any human being with more than he is well able to bear: for with Us is a record that speaks the truth [about what men do and can do]; and none shall be wronged.* — **Al-Muminoon (23:62)**
+> 📖 *on which they [so utterly] disagree.* — **An-Naba (78:3)**
 <!-- quran-verse-end -->
 
 ---
