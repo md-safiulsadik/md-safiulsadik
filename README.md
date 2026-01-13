@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and that they [so often] say what they do not do [or feel]?* — **Ash-Shu'araa (26:226)**
+> 📖 *In [each of] these two [gardens] two springs will flow.* — **Ar-Rahmaan (55:50)**
 <!-- quran-verse-end -->
 
 ---
