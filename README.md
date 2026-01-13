@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND TELL THEM [once again] about Abraham's guests -* — **Al-Hijr (15:51)**
+> 📖 *They will answer: “Limitless art Thou in Thy glory! Thou [alone] art close unto us, not they! Nay, [when they thought that they were worshipping us,] they were but [blindly] worshipping forces concealed from their senses; most of them believed in them.”* — **Saba (34:41)**
 <!-- quran-verse-end -->
 
 ---
