@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "He is the One God:* — **Al-Ikhlaas (112:1)**
+> 📖 *and bear in mind thy Sustainer's name at morn and evening* — **Al-Insaan (76:25)**
 <!-- quran-verse-end -->
 
 ---
