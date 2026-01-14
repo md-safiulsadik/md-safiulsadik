@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And God has said: "Do not take to worshipping two [or more] deities. He is the One and Only God: hence, of Me, of Me alone stand in awe!"* — **An-Nahl (16:51)**
+> 📖 *All this [for the righteous]: but, verily, the most evil of all goals awaits those who are wont to transgress the bounds of what is right:* — **Saad (38:55)**
 <!-- quran-verse-end -->
 
 ---
