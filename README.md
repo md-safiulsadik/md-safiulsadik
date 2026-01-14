@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that He may forgive you some of your sins, and grant you respite until a term known [to Him alone]: but, behold, when the term appointed by God does come, it can never be put back - if you but knew it!"* — **Nooh (71:4)**
+> 📖 *And God has said: "Do not take to worshipping two [or more] deities. He is the One and Only God: hence, of Me, of Me alone stand in awe!"* — **An-Nahl (16:51)**
 <!-- quran-verse-end -->
 
 ---
