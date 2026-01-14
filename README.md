@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "Consider whatever there is in the heavens and on earth!" But of what avail could all the messages and all the warnings be to people who will not believe?* — **Yunus (10:101)**
+> 📖 *SAY: "I seek refuge with the Sustainer of the rising dawn,* — **Al-Falaq (113:1)**
 <!-- quran-verse-end -->
 
 ---
