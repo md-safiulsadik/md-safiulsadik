@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But he who does not respond to God’s call can never elude [Him] on earth, nor can he has any protector against Him [in the life to come]: all such are most obviously lost in error.”* — **Al-Ahqaf (46:32)**
+> 📖 *It is they who say [to their compatriots], "Do not spend anything on those who are with God's Apostle, so that they [may be forced to] leave." However, unto God belong the treasures of the heavens and the earth: but this truth the hypocrites cannot grasp.* — **Al-Munaafiqoon (63:7)**
 <!-- quran-verse-end -->
 
 ---
