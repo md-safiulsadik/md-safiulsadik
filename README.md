@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Joseph] replied: "You shall sow for seven years as usual; but let all [the grain] that you harvest remain [untouched] in its ear, excepting only a little, whereof you may eat:* — **Yusuf (12:47)**
+> 📖 *But he who does not respond to God’s call can never elude [Him] on earth, nor can he has any protector against Him [in the life to come]: all such are most obviously lost in error.”* — **Al-Ahqaf (46:32)**
 <!-- quran-verse-end -->
 
 ---
