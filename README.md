@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *does it make secure, until the rise of dawn.* — **Al-Qadr (97:5)**
+> 📖 *[and] He will most certainly cause them to enter upon a state (of being) that shall please them well: for, verily, God is all-knowing, most forbearing.* — **Al-Hajj (22:59)**
 <!-- quran-verse-end -->
 
 ---
