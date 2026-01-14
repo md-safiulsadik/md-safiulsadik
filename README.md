@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "I seek refuge with the Sustainer of the rising dawn,* — **Al-Falaq (113:1)**
+> 📖 *And so, when they beheld it in the shape of a dense cloud approaching their valleys, they exclaimed, “This is but a heavy cloud which will bring us [wel­come] rain!” [But Hud said:] “Nay, but it is the very thing which you [so contemptuously] sought to hasten - a wind bearing grievous suffering,* — **Al-Ahqaf (46:24)**
 <!-- quran-verse-end -->
 
 ---
