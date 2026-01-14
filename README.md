@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who has taught [man] the use of the pen –* — **Al-Alaq (96:4)**
+> 📖 *And Pharaoh said: “Leave it to me to slay Moses - and let him invoke his [alleged] sustainer! Behold, I fear lest he cause you to change your religion, or lest he cause corruption to prevail in the land!”* — **Ghafir (40:26)**
 <!-- quran-verse-end -->
 
 ---
