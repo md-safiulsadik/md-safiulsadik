@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And then, on Resurrection Day, He will cover them [all] with ignominy, and will say: "Where, now, are those beings to whom you ascribed a share in My divinity, [and] for whose sake you cut yourselves off [from My guidance]?" [Whereupon] those who [in their lifetime] were endowed with knowledge will say: "Verily, ignominy and misery [have fallen] this day upon those who have been denying the truth-* — **An-Nahl (16:27)**
+> 📖 *But as for those who are bent on denying the truth and on giving the lie to Our messages - they are destined for the fire, therein to abide: and how vile a journey’s end!* — **At-Taghaabun (64:10)**
 <!-- quran-verse-end -->
 
 ---
