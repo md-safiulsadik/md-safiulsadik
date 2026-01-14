@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And if any of your wives should go over to the deniers of the truth, and you are thus afflicted in turn, then give unto those whose wives have gone away the equivalent of what they had spent [on their wives by way of dower], and remain conscious of God, in whom you believe!* — **Al-Mumtahana (60:11)**
+> 📖 *Say: "Consider whatever there is in the heavens and on earth!" But of what avail could all the messages and all the warnings be to people who will not believe?* — **Yunus (10:101)**
 <!-- quran-verse-end -->
 
 ---
