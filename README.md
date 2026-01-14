@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Is not God the most just of judges?* — **At-Tin (95:8)**
+> 📖 *And then, on Resurrection Day, He will cover them [all] with ignominy, and will say: "Where, now, are those beings to whom you ascribed a share in My divinity, [and] for whose sake you cut yourselves off [from My guidance]?" [Whereupon] those who [in their lifetime] were endowed with knowledge will say: "Verily, ignominy and misery [have fallen] this day upon those who have been denying the truth-* — **An-Nahl (16:27)**
 <!-- quran-verse-end -->
 
 ---
