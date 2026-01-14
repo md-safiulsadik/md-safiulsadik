@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and] He will most certainly cause them to enter upon a state (of being) that shall please them well: for, verily, God is all-knowing, most forbearing.* — **Al-Hajj (22:59)**
+> 📖 *who has taught [man] the use of the pen –* — **Al-Alaq (96:4)**
 <!-- quran-verse-end -->
 
 ---
