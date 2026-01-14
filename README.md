@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for those who are bent on denying the truth and on giving the lie to Our messages - they are destined for the fire, therein to abide: and how vile a journey’s end!* — **At-Taghaabun (64:10)**
+> 📖 *The parable of the life of this world is but that of rain which We send down from the sky, and which is absorbed by the plants of the earth whereof men and animals draw nourishment, until -when the earth has assumed its artful adornment and has been embellished, and they who dwell on it believe that they have gained mastery over it -there comes down upon it Our judgment, by night or by day, and We cause it to become [like] a field mown down, as if there had been no yesterday. Thus clearly do We spell out these messages unto people who think!* — **Yunus (10:24)**
 <!-- quran-verse-end -->
 
 ---
