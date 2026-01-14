@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, in time you will come to understand!* — **At-Takaathur (102:3)**
+> 📖 *so that He may forgive you some of your sins, and grant you respite until a term known [to Him alone]: but, behold, when the term appointed by God does come, it can never be put back - if you but knew it!"* — **Nooh (71:4)**
 <!-- quran-verse-end -->
 
 ---
