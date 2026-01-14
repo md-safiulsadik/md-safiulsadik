@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *When those [heavenly messengers] came unto him and bade him peace, he answered, “[And upon you be] peace!” - [saying to himself,] “They are strangers.”* — **Adh-Dhaariyat (51:25)**
+> 📖 *Nay, in time you will come to understand!* — **At-Takaathur (102:3)**
 <!-- quran-verse-end -->
 
 ---
