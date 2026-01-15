@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *although each sign that We showed them was weigh­tier than the preceding one: and [each time] We took them to task through suffering, so that they might return [to Us].* — **Az-Zukhruf (43:48)**
+> 📖 *Whoever chooses to follow the right path, follows it but for his own good; and whoever goes astray, goes but astray to his own hurt; and no bearer of burdens shall be made to bear another" burden. Moreover. We would never chastise [any community for the wrong they may do] ere We have sent an apostle [to them].* — **Al-Israa (17:15)**
 <!-- quran-verse-end -->
 
 ---
