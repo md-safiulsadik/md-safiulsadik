@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thou seest people enter God's religion in hosts,* — **An-Nasr (110:2)**
+> 📖 *DISAVOWAL by God and His Apostle [is herewith announced] unto those who ascribe divinity to aught beside God, [and] with whom you [O: believers] have made a covenant.* — **At-Tawba (9:1)**
 <!-- quran-verse-end -->
 
 ---
