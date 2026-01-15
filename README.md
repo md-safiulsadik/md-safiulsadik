@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[such has been Our] way with all of Our apostles whom We sent before thy time; and no change wilt thou find in Our ways.* — **Al-Israa (17:77)**
+> 📖 *SAY [unto those who believe]: “No weight or value would my Sustainer attach to you were it not for your faith [in Him]!” And say unto those who deny the truth:] “You have indeed given the lie [to God’s message], and in time this [sin] will cleave unto you!”* — **Al-Furqaan (25:77)**
 <!-- quran-verse-end -->
 
 ---
