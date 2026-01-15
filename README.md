@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and even demanded that he give up his guests [to them]: whereupon We deprived them of their sight [and thus told them, as it were]: “Taste, then, the suffering which I inflict when My warnings are disregarded!”* — **Al-Qamar (54:37)**
+> 📖 *Let, then, the deniers of the truth have their will: let them have their will for a little while.* — **At-Taariq (86:17)**
 <!-- quran-verse-end -->
 
 ---
