@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *obedience [to God’s call] and a word that could win [His] approval: for, since the matter has been resolved [by His revelation], it would be but for their own good to remain true to God.* — **Muhammad (47:21)**
+> 📖 *And they say, “Fables of ancient times which he has caused to be written down, so that they might be read out to him at morn and evening!”* — **Al-Furqaan (25:5)**
 <!-- quran-verse-end -->
 
 ---
