@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, however many angels there be in the heavens, their intercession can be of no least avail [to anyone] - except after God has given leave [to inter­cede] for whomever He wills and with whom He is well-pleased.* — **An-Najm (53:26)**
+> 📖 *obedience [to God’s call] and a word that could win [His] approval: for, since the matter has been resolved [by His revelation], it would be but for their own good to remain true to God.* — **Muhammad (47:21)**
 <!-- quran-verse-end -->
 
 ---
