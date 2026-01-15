@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And Pharaoh said: “Leave it to me to slay Moses - and let him invoke his [alleged] sustainer! Behold, I fear lest he cause you to change your religion, or lest he cause corruption to prevail in the land!”* — **Ghafir (40:26)**
+> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
 <!-- quran-verse-end -->
 
 ---
