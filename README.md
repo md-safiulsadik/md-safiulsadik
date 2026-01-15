@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And they say, “Fables of ancient times which he has caused to be written down, so that they might be read out to him at morn and evening!”* — **Al-Furqaan (25:5)**
+> 📖 *although each sign that We showed them was weigh­tier than the preceding one: and [each time] We took them to task through suffering, so that they might return [to Us].* — **Az-Zukhruf (43:48)**
 <!-- quran-verse-end -->
 
 ---
