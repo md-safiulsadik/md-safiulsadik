@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DISAVOWAL by God and His Apostle [is herewith announced] unto those who ascribe divinity to aught beside God, [and] with whom you [O: believers] have made a covenant.* — **At-Tawba (9:1)**
+> 📖 *thereby raising clouds of dust,* — **Al-Aadiyaat (100:4)**
 <!-- quran-verse-end -->
 
 ---
