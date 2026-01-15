@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thereby raising clouds of dust,* — **Al-Aadiyaat (100:4)**
+> 📖 *[such has been Our] way with all of Our apostles whom We sent before thy time; and no change wilt thou find in Our ways.* — **Al-Israa (17:77)**
 <!-- quran-verse-end -->
 
 ---
