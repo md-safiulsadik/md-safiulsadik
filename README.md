@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Whoever chooses to follow the right path, follows it but for his own good; and whoever goes astray, goes but astray to his own hurt; and no bearer of burdens shall be made to bear another" burden. Moreover. We would never chastise [any community for the wrong they may do] ere We have sent an apostle [to them].* — **Al-Israa (17:15)**
+> 📖 *“Taste, then, the suffering which I inflict when My warnings are disregarded!”* — **Al-Qamar (54:39)**
 <!-- quran-verse-end -->
 
 ---
