@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
+> 📖 *These it is who in the gardens [of paradise] shall be honoured!* — **Al-Ma'aarij (70:35)**
 <!-- quran-verse-end -->
 
 ---
