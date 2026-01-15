@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“Taste, then, the suffering which I inflict when My warnings are disregarded!”* — **Al-Qamar (54:39)**
+> 📖 *And, lo, Luqman spoke thus unto his son, admonishing him: “O my dear son! Do not ascribe divine powers to aught beside God: for, behold, such [a false] ascribing of divinity is indeed an awesome wrong!* — **Luqman (31:13)**
 <!-- quran-verse-end -->
 
 ---
