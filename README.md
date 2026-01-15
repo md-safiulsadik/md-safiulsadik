@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He it is who has sent forth His Apostle with the [task of spreading] guidance and the religion of truth, to the end that He make it prevail over every [false] religion; and none can bear witness [to the truth] as God does.* — **Al-Fath (48:28)**
+> 📖 *For, however many angels there be in the heavens, their intercession can be of no least avail [to anyone] - except after God has given leave [to inter­cede] for whomever He wills and with whom He is well-pleased.* — **An-Najm (53:26)**
 <!-- quran-verse-end -->
 
 ---
