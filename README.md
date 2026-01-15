@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let, then, the deniers of the truth have their will: let them have their will for a little while.* — **At-Taariq (86:17)**
+> 📖 *Many people think that they have bestowed a favour upon thee [O Prophet] by having surrendered [to thee]. Say thou: “Deem not your surrender a favour unto me: nay, but it is God who bestows a favour upon you by showing you the way to faith - if you are true to your word!”* — **Al-Hujuraat (49:17)**
 <!-- quran-verse-end -->
 
 ---
