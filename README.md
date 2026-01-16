@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[To pay heed to God’s signs and messages:] this is [the meaning of] guidance; on the other hand, for those who are bent on denying the truth of their Sustainer’s messages there is grievous suffering in store as an outcome of [their] vileness.* — **Al-Jaathiya (45:11)**
+> 📖 *or lest he should say, when he becomes aware of the suffering [that awaits him], “Would that I had a second chance [in life], so that I could be among the doers of good!”* — **Az-Zumar (39:58)**
 <!-- quran-verse-end -->
 
 ---
