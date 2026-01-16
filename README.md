@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "I seek refuge with the Sustainer of men,* — **An-Naas (114:1)**
+> 📖 *And We streng­thened his dominion, and bestowed upon him wisdom and sagacity in judgment.* — **Saad (38:20)**
 <!-- quran-verse-end -->
 
 ---
