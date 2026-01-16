@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "Whether you conceal what is in your hearts or bring it into the open, God knows it: for He knows all that is in the heavens and all that is on earth; and God has the power to will anything."* — **Aal-i-Imraan (3:29)**
+> 📖 *It is He who grants life and deals death; and when He wills a thing to be, He but says unto it, “Be” - and it is.* — **Ghafir (40:68)**
 <!-- quran-verse-end -->
 
 ---
