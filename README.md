@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *or lest he should say, when he becomes aware of the suffering [that awaits him], “Would that I had a second chance [in life], so that I could be among the doers of good!”* — **Az-Zumar (39:58)**
+> 📖 *And if all the trees on earth were pens, and the sea [were] ink, with seven [morel seas yet added to it, the words of God would not be exhausted: for, verily, God is almighty, wise.* — **Luqman (31:27)**
 <!-- quran-verse-end -->
 
 ---
