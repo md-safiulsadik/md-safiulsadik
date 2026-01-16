@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY [unto those who believe]: “No weight or value would my Sustainer attach to you were it not for your faith [in Him]!” And say unto those who deny the truth:] “You have indeed given the lie [to God’s message], and in time this [sin] will cleave unto you!”* — **Al-Furqaan (25:77)**
+> 📖 *SAY: "I seek refuge with the Sustainer of men,* — **An-Naas (114:1)**
 <!-- quran-verse-end -->
 
 ---
