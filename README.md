@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And We streng­thened his dominion, and bestowed upon him wisdom and sagacity in judgment.* — **Saad (38:20)**
+> 📖 *And yet, they [who are bent on denying the truth] assert, "[Muhammad] has invented it!" Say [unto them]: "Produce, then, a surah of similar merit; and [to this end] call to your aid whomever you can, other than God, if what you say is true!* — **Yunus (10:38)**
 <!-- quran-verse-end -->
 
 ---
