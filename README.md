@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And for those who have attained to faith God has propounded a parable in [the story of] Pharaoh's wife as she prayed "O my Sustainer! Build Thou for me a mansion in the paradise [that is] with Thee, and save me from Pharaoh and his doings, and save me, from all evildoing folk!* — **At-Tahrim (66:11)**
+> 📖 *theirs shall be gardens of perpetual bliss - [gardens] through which running waters flow - wherein they will be adorned with bracelets of gold and will wear green garments of silk and brocade, [and] wherein upon couches they will recline:" how excellent a recompense, and how goodly a place to rest!* — **Al-Kahf (18:31)**
 <!-- quran-verse-end -->
 
 ---
