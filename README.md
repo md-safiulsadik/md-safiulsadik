@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Arise and warn!* — **Al-Muddaththir (74:2)**
+> 📖 *and then, behold, they shall enter the blazing fire* — **Al-Mutaffifin (83:16)**
 <!-- quran-verse-end -->
 
 ---
