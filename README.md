@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let them, therefore, worship the Sustainer of this Temple;* — **Quraish (106:3)**
+> 📖 *[In the life to come] he shall have to endure a fire fiercely glowing;* — **Al-Masad (111:3)**
 <!-- quran-verse-end -->
 
 ---
