@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet, they [who are bent on denying the truth] assert, "[Muhammad] has invented it!" Say [unto them]: "Produce, then, a surah of similar merit; and [to this end] call to your aid whomever you can, other than God, if what you say is true!* — **Yunus (10:38)**
+> 📖 *Now whenever God and His Apostle have decided a matter, it is not for a believing man or a believing woman to claim freedom of choice insofar as they themselves are concerned: for he who [thus] rebels against God and His Apostle has already, most obviously, gone astray.* — **Al-Ahzaab (33:36)**
 <!-- quran-verse-end -->
 
 ---
