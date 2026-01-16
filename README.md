@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now whenever God and His Apostle have decided a matter, it is not for a believing man or a believing woman to claim freedom of choice insofar as they themselves are concerned: for he who [thus] rebels against God and His Apostle has already, most obviously, gone astray.* — **Al-Ahzaab (33:36)**
+> 📖 *Some faces will on that Day be bright with happiness,* — **Al-Qiyaama (75:22)**
 <!-- quran-verse-end -->
 
 ---
