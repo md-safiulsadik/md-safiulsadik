@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet they say: What sort of apostle is this [man] who eats food [like all other mortals] and goes about in the market places? Why has not an angel [visibly] been sent down unto him, to act as a warner together with him?”* — **Al-Furqaan (25:7)**
+> 📖 *but build, under Our eyes and according to Our inspiration, the ark [that shall save thee and those who follow thee]; and do not appeal to Me in behalf of those who are bent on evildoing for, behold, they are destined to be drowned!"* — **Hud (11:37)**
 <!-- quran-verse-end -->
 
 ---
