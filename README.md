@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *if I should fail to convey [to the world whatever illumination comes to me] from God and His messages." Now as for him who rebels against God and His Apostle - verily, the fire of hell awaits him, therein to abide beyond the count of time.* — **Al-Jinn (72:23)**
+> 📖 *The Most Gracious, the Dispenser of Grace,* — **Al-Faatiha (1:3)**
 <!-- quran-verse-end -->
 
 ---
