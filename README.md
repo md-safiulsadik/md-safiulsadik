@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, he who shall have done an atom's weight of good, shall behold it;* — **Az-Zalzala (99:7)**
+> 📖 *and brusquely turned his back [on Moses];* — **An-Naazi'aat (79:22)**
 <!-- quran-verse-end -->
 
 ---
