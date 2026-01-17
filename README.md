@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is He who grants life and deals death; and when He wills a thing to be, He but says unto it, “Be” - and it is.* — **Ghafir (40:68)**
+> 📖 *Nay, but they do not [believe in and, hence, do not] fear the life to come.* — **Al-Muddaththir (74:53)**
 <!-- quran-verse-end -->
 
 ---
