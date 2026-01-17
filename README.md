@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *LIMITLESS in His glory is He who transported His servant by night from the Inviolable House of Worship [at Mecca] to the Remote House of Worship [, at Jerusalem] - the environs of which We had blessed -so that We might show him some of Our symbols: for, verily, He alone is all-hearing, all-seeing.* — **Al-Israa (17:1)**
+> 📖 *Woe on that Day unto those who give the lie to the truth!* — **Al-Mursalaat (77:40)**
 <!-- quran-verse-end -->
 
 ---
