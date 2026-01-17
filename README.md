@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *save Iblis: he gloried in his arrogance, and [thus] became one of those who deny the truth.* — **Saad (38:74)**
+> 📖 *and will say: “Oh, woe unto us! This is the Day of Judgment!”* — **As-Saaffaat (37:20)**
 <!-- quran-verse-end -->
 
 ---
