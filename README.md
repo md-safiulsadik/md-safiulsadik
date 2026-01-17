@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and give no thought to the life to come [and to Judgment Day]!* — **Al-Qiyaama (75:21)**
+> 📖 *And were it not for God’s favour upon you and His grace, and that God is compassionate, a dispenser of grace...!* — **An-Noor (24:20)**
 <!-- quran-verse-end -->
 
 ---
