@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Most certainly will I fill hell with thee and such of them as shall follow thee, all together!”* — **Saad (38:85)**
+> 📖 *if I should fail to convey [to the world whatever illumination comes to me] from God and His messages." Now as for him who rebels against God and His Apostle - verily, the fire of hell awaits him, therein to abide beyond the count of time.* — **Al-Jinn (72:23)**
 <!-- quran-verse-end -->
 
 ---
