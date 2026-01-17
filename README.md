@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but build, under Our eyes and according to Our inspiration, the ark [that shall save thee and those who follow thee]; and do not appeal to Me in behalf of those who are bent on evildoing for, behold, they are destined to be drowned!"* — **Hud (11:37)**
+> 📖 *AND [remember the time] when I inspired the white-garbed ones: Believe in Me and in My Apostle!" They answered: "We believe; and bear Thou witness that we have surrendered ourselves [unto Thee]."* — **Al-Maaida (5:111)**
 <!-- quran-verse-end -->
 
 ---
