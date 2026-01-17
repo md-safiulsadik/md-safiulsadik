@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *they know but the outer surface of this world’s life, whereas of the ultimate things they are utterly un­aware.* — **Ar-Room (30:7)**
+> 📖 *And so, he who shall have done an atom's weight of good, shall behold it;* — **Az-Zalzala (99:7)**
 <!-- quran-verse-end -->
 
 ---
