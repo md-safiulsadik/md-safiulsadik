@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and will say: “Oh, woe unto us! This is the Day of Judgment!”* — **As-Saaffaat (37:20)**
+> 📖 *[every] withholder of good [and] sinful aggressor [and] fomentor of distrust [between man and man – everyone]* — **Qaaf (50:25)**
 <!-- quran-verse-end -->
 
 ---
