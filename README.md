@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said [Moses] “O my Sustainer! I have slain one of them, and so I fear that they will slay me.* — **Al-Qasas (28:33)**
+> 📖 *Most certainly will I fill hell with thee and such of them as shall follow thee, all together!”* — **Saad (38:85)**
 <!-- quran-verse-end -->
 
 ---
