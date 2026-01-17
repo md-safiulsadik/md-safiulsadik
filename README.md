@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but they do not [believe in and, hence, do not] fear the life to come.* — **Al-Muddaththir (74:53)**
+> 📖 *Yet they say: What sort of apostle is this [man] who eats food [like all other mortals] and goes about in the market places? Why has not an angel [visibly] been sent down unto him, to act as a warner together with him?”* — **Al-Furqaan (25:7)**
 <!-- quran-verse-end -->
 
 ---
