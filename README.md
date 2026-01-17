@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and brusquely turned his back [on Moses];* — **An-Naazi'aat (79:22)**
+> 📖 *and give no thought to the life to come [and to Judgment Day]!* — **Al-Qiyaama (75:21)**
 <!-- quran-verse-end -->
 
 ---
