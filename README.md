@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[seeing that] for those who are bent on denying the truth there is suffering severe in store, just as for those who have attained to faith and do righteous deeds there is forgiveness of sins, and a great reward.* — **Faatir (35:7)**
+> 📖 *save Iblis: he gloried in his arrogance, and [thus] became one of those who deny the truth.* — **Saad (38:74)**
 <!-- quran-verse-end -->
 
 ---
