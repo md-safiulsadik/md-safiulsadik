@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Most Gracious, the Dispenser of Grace,* — **Al-Faatiha (1:3)**
+> 📖 *“And then - why have no golden armlets been bestowed on him? or why have no angels come together with him?”* — **Az-Zukhruf (43:53)**
 <!-- quran-verse-end -->
 
 ---
