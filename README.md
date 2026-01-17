@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And were it not for God’s favour upon you and His grace, and that God is compassionate, a dispenser of grace...!* — **An-Noor (24:20)**
+> 📖 *LIMITLESS in His glory is He who transported His servant by night from the Inviolable House of Worship [at Mecca] to the Remote House of Worship [, at Jerusalem] - the environs of which We had blessed -so that We might show him some of Our symbols: for, verily, He alone is all-hearing, all-seeing.* — **Al-Israa (17:1)**
 <!-- quran-verse-end -->
 
 ---
