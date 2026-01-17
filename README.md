@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [remember the time] when I inspired the white-garbed ones: Believe in Me and in My Apostle!" They answered: "We believe; and bear Thou witness that we have surrendered ourselves [unto Thee]."* — **Al-Maaida (5:111)**
+> 📖 *Most loathsome is it in the sight of God that you say what you do not do!* — **As-Saff (61:3)**
 <!-- quran-verse-end -->
 
 ---
