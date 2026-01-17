@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
+> 📖 *they know but the outer surface of this world’s life, whereas of the ultimate things they are utterly un­aware.* — **Ar-Room (30:7)**
 <!-- quran-verse-end -->
 
 ---
