@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[every] withholder of good [and] sinful aggressor [and] fomentor of distrust [between man and man – everyone]* — **Qaaf (50:25)**
+> 📖 *Said [Moses] “O my Sustainer! I have slain one of them, and so I fear that they will slay me.* — **Al-Qasas (28:33)**
 <!-- quran-verse-end -->
 
 ---
