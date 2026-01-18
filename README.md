@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He it is who has made the earth easy to live upon: go about, then, in all its regions, and partake the sustenance which He provides: but [always bear in mind that] unto Him you shall be resurrected.* — **Al-Mulk (67:15)**
+> 📖 *But as for those who [by virtue of their past deeds] will have been blest with happiness, [they shall live] in paradise, therein to abide as long as the heavens and the earth endure -unless thy Sustainer wills it otherwise -as a gift unceasing.* — **Hud (11:108)**
 <!-- quran-verse-end -->
 
 ---
