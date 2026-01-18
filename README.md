@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for those who are bent on denying the truth - the fire of hell awaits them: no end shall be put to their lives so that they could die, nor shall aught of the suffering caused by that [fire] be lightened for them: thus shall We requite all who are bereft of gratitude.* — **Faatir (35:36)**
+> 📖 *so that God might separate the bad from the good, and join the bad with one another, and link them all together [within His condemnation], and then place them in hell. They, they are the lost!* — **Al-Anfaal (8:37)**
 <!-- quran-verse-end -->
 
 ---
