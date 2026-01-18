@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for those who [by virtue of their past deeds] will have been blest with happiness, [they shall live] in paradise, therein to abide as long as the heavens and the earth endure -unless thy Sustainer wills it otherwise -as a gift unceasing.* — **Hud (11:108)**
+> 📖 *But as for those who are bent on denying the truth - the fire of hell awaits them: no end shall be put to their lives so that they could die, nor shall aught of the suffering caused by that [fire] be lightened for them: thus shall We requite all who are bereft of gratitude.* — **Faatir (35:36)**
 <!-- quran-verse-end -->
 
 ---
