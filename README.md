@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They will reply: "Yea, a warner did indeed come unto us, but we gave him the lie and said, 'Never has God sent down anything [by way of revelation]! You [self-styled warners] are but lost in a great delusion!"'* — **Al-Mulk (67:9)**
+> 📖 *Do they [really think that they] have deities that could shield them from Us? Those [alleged dei­ties] are not [even] able to succour themselves: hence, neither can they [who worship them hope to] be aided [by them] against Us.* — **Al-Anbiyaa (21:43)**
 <!-- quran-verse-end -->
 
 ---
