@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Do they [really think that they] have deities that could shield them from Us? Those [alleged dei­ties] are not [even] able to succour themselves: hence, neither can they [who worship them hope to] be aided [by them] against Us.* — **Al-Anbiyaa (21:43)**
+> 📖 *and the earth, bursting forth with plants!* — **At-Taariq (86:12)**
 <!-- quran-verse-end -->
 
 ---
