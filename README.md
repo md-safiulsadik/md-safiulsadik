@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[He it is who will cause you to die, and in time will resurrect you.] And when the Last Hour dawns, those who had been lost in sin will swear that they had not tarried [on earth] longer than an hour: thus were they wont to delude themselves [all their lives]!* — **Ar-Room (30:55)**
+> 📖 *[the fire] which none shall have to endure but that most hapless wretch* — **Al-Lail (92:15)**
 <!-- quran-verse-end -->
 
 ---
