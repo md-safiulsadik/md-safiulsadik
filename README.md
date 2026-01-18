@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“And then - why have no golden armlets been bestowed on him? or why have no angels come together with him?”* — **Az-Zukhruf (43:53)**
+> 📖 *amid gardens and springs,* — **Ad-Dukhaan (44:52)**
 <!-- quran-verse-end -->
 
 ---
