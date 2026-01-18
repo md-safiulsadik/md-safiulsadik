@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"God the Eternal, the Uncaused Cause of All Being.* — **Al-Ikhlaas (112:2)**
+> 📖 *Now as for such of your women as are beyond, the age of monthly courses, as well as for such as do not have any courses, their waiting-period - if you have any doubt [about it] - shall be three [calendar] months; and as for those who are with child, the end of their waiting-term shall come when they deliver their burden. And for everyone who is conscious of God, He makes it easy to obey His commandment:* — **At-Talaaq (65:4)**
 <!-- quran-verse-end -->
 
 ---
