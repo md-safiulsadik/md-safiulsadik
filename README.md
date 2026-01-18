@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And when the last Hour dawns, those who were lost in sin will be broken in spirit* — **Ar-Room (30:12)**
+> 📖 *And withal, they were not enjoined aught but that they should worship God, sincere in their faith in Him alone, turning away from all that is false; and that they should be constant in prayer; and that they should spend in charity: for this is a moral law endowed with ever-true soundness and clarity.* — **Al-Bayyina (98:5)**
 <!-- quran-verse-end -->
 
 ---
