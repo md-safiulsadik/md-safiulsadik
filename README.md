@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *amid gardens and springs,* — **Ad-Dukhaan (44:52)**
+> 📖 *And when the last Hour dawns, those who were lost in sin will be broken in spirit* — **Ar-Room (30:12)**
 <!-- quran-verse-end -->
 
 ---
