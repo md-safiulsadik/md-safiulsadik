@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[the fire] which none shall have to endure but that most hapless wretch* — **Al-Lail (92:15)**
+> 📖 *Say [unto those who deny the truth]: "What do you think? If of a sudden all your water were to vanish underground, who [but God] could provide you with water from [new] unsullied springs?"* — **Al-Mulk (67:30)**
 <!-- quran-verse-end -->
 
 ---
