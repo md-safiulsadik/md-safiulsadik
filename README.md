@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that God might separate the bad from the good, and join the bad with one another, and link them all together [within His condemnation], and then place them in hell. They, they are the lost!* — **Al-Anfaal (8:37)**
+> 📖 *VERILY, God will admit those who have attained to faith and have done righteous deeds into gardens through which running waters flow: for, behold, God does whatever He wills.* — **Al-Hajj (22:14)**
 <!-- quran-verse-end -->
 
 ---
