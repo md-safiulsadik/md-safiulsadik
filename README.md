@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say [unto those who deny the truth]: "What do you think? If of a sudden all your water were to vanish underground, who [but God] could provide you with water from [new] unsullied springs?"* — **Al-Mulk (67:30)**
+> 📖 *WHOEVER does what is just and right, does so for his own good; and whoever does evil, does so to his own hurt: and never does God do the least wrong to His creatures.* — **Fussilat (41:46)**
 <!-- quran-verse-end -->
 
 ---
