@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Such are they that have attained to righteousness;* — **Al-Balad (90:18)**
+> 📖 *and verily, It is for Us to call them to account.* — **Al-Ghaashiya (88:26)**
 <!-- quran-verse-end -->
 
 ---
