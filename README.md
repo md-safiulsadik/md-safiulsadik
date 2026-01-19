@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HE IT IS who displays before you the lightning, to give rise to [both] fear and hope, and calls heavy clouds into being;* — **Ar-Ra'd (13:12)**
+> 📖 *THE PARABLE of the paradise promised to those who are conscious of God [is that of a garden] through which running waters flow: [but, unlike an earthly garden,] its fruits will be everlasting, and [so will be] its shade. Such will be the destiny of those who remain conscious of God-just as the destiny of those who deny the truth will be the fire.* — **Ar-Ra'd (13:35)**
 <!-- quran-verse-end -->
 
 ---
