@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, if it should happen that a prompting from Satan stirs thee up [to blind anger], seek refuge with God: behold, He alone is all-hearing, all-knowing!* — **Fussilat (41:36)**
+> 📖 *for that [resurrection which they deride] will be [upon them of a sudden, as if it were] but a single accusing cry - and then, lo! they will begin to see [the truth]* — **As-Saaffaat (37:19)**
 <!-- quran-verse-end -->
 
 ---
