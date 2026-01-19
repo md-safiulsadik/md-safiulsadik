@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for none [of them] had any fear of what might befall them.* — **Ash-Shams (91:15)**
+> 📖 *for when he does become aware of any of Our messages, he makes them a target of his mockery! For all such there is shameful suffering in store.* — **Al-Jaathiya (45:9)**
 <!-- quran-verse-end -->
 
 ---
