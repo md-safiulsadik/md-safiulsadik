@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but We have placed on record every single thing [of what they did].* — **An-Naba (78:29)**
+> 📖 *BUT IF they turn away, say: “I warn you of [the coming of] a thunderbolt of punishment like the thunderbolt [that fell upon the tribes] of Ad and Thamud!”* — **Fussilat (41:13)**
 <!-- quran-verse-end -->
 
 ---
