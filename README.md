@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Answered [Iblis]: “I am better than he: Thou hast created me out of fire, whereas him Thou hast created out of clay.”* — **Saad (38:76)**
+> 📖 *HE IT IS who displays before you the lightning, to give rise to [both] fear and hope, and calls heavy clouds into being;* — **Ar-Ra'd (13:12)**
 <!-- quran-verse-end -->
 
 ---
