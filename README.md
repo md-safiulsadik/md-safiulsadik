@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But] know that God gives life to the earth after it has been lifeless! We have indeed made Our messages clear unto you, so that you might use your reason.* — **Al-Hadid (57:17)**
+> 📖 *For, unto Him belongs every being that is in the heavens and on earth; all things devoutly obey His will.* — **Ar-Room (30:26)**
 <!-- quran-verse-end -->
 
 ---
