@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *this, because they cut themselves off from God and His Apostle: and as for him who cuts himself off from God and His Apostle - verily, God is severe in retribution!* — **Al-Hashr (59:4)**
+> 📖 *But when they continued to challenge Us, We inflicted Our retribution on them, and drowned them all:* — **Az-Zukhruf (43:55)**
 <!-- quran-verse-end -->
 
 ---
