@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THE PARABLE of the paradise promised to those who are conscious of God [is that of a garden] through which running waters flow: [but, unlike an earthly garden,] its fruits will be everlasting, and [so will be] its shade. Such will be the destiny of those who remain conscious of God-just as the destiny of those who deny the truth will be the fire.* — **Ar-Ra'd (13:35)**
+> 📖 *For, [many are] they [who] say, “We believe in God and in the Apostle, and we pay heed!” - but then, some of them turn away after this [assertion]: and these are by no means [true] believers.* — **An-Noor (24:47)**
 <!-- quran-verse-end -->
 
 ---
