@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, [many are] they [who] say, “We believe in God and in the Apostle, and we pay heed!” - but then, some of them turn away after this [assertion]: and these are by no means [true] believers.* — **An-Noor (24:47)**
+> 📖 *but We have placed on record every single thing [of what they did].* — **An-Naba (78:29)**
 <!-- quran-verse-end -->
 
 ---
