@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "I invoke my Sustainer alone, for I do not ascribe divinity to anyone beside Him."* — **Al-Jinn (72:20)**
+> 📖 *Consider the human self, and how it is formed in accordance with what it is meant to be,* — **Ash-Shams (91:7)**
 <!-- quran-verse-end -->
 
 ---
