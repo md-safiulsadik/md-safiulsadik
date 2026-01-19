@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, unto Him belongs every being that is in the heavens and on earth; all things devoutly obey His will.* — **Ar-Room (30:26)**
+> 📖 *for none [of them] had any fear of what might befall them.* — **Ash-Shams (91:15)**
 <!-- quran-verse-end -->
 
 ---
