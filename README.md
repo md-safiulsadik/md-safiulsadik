@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But when they continued to challenge Us, We inflicted Our retribution on them, and drowned them all:* — **Az-Zukhruf (43:55)**
+> 📖 *Answered [Iblis]: “I am better than he: Thou hast created me out of fire, whereas him Thou hast created out of clay.”* — **Saad (38:76)**
 <!-- quran-verse-end -->
 
 ---
