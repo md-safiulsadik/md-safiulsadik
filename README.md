@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now as for such of your women as are beyond, the age of monthly courses, as well as for such as do not have any courses, their waiting-period - if you have any doubt [about it] - shall be three [calendar] months; and as for those who are with child, the end of their waiting-term shall come when they deliver their burden. And for everyone who is conscious of God, He makes it easy to obey His commandment:* — **At-Talaaq (65:4)**
+> 📖 *Hence, if it should happen that a prompting from Satan stirs thee up [to blind anger], seek refuge with God: behold, He alone is all-hearing, all-knowing!* — **Fussilat (41:36)**
 <!-- quran-verse-end -->
 
 ---
