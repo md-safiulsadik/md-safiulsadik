@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for that [resurrection which they deride] will be [upon them of a sudden, as if it were] but a single accusing cry - and then, lo! they will begin to see [the truth]* — **As-Saaffaat (37:19)**
+> 📖 *that [Last Hour] which is so near draws ever nearer,* — **An-Najm (53:57)**
 <!-- quran-verse-end -->
 
 ---
