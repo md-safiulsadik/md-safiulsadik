@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for when he does become aware of any of Our messages, he makes them a target of his mockery! For all such there is shameful suffering in store.* — **Al-Jaathiya (45:9)**
+> 📖 *And, before Him, intercession can be of no avail [to any] save one in whose case He may have granted leave [there for]: so much so that when the terror [of the Last Hour] is lifted from their hearts, they [who have been resurrected] will ask [one an­other], “What has your Sustainer decreed [for you]?” - [to which] the others will answer, “Whatever is true and deserved - for He alone is exalted, great!”* — **Saba (34:23)**
 <!-- quran-verse-end -->
 
 ---
