@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And there is, too, among men many a one who worships God on the border-line [of faith]: thus, if good befalls him, he is satisfied with Him; but if a trial assails him, he turns away utterly, losing [thereby both] this world and the life to come: [and] this, indeed, is a loss beyond compare!* — **Al-Hajj (22:11)**
+> 📖 *But he who brings the truth, and he who wholeheartedly accepts it as true - it is they, they, who are [truly] conscious of Him!* — **Az-Zumar (39:33)**
 <!-- quran-verse-end -->
 
 ---
