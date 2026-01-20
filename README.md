@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[inflicted on them] by Pharaoh, seeing that he was truly outstand­ing among those who waste their own selves;* — **Ad-Dukhaan (44:31)**
+> 📖 *and feels no urge to feed the needy.* — **Al-Maa'un (107:3)**
 <!-- quran-verse-end -->
 
 ---
