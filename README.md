@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And you did not try to hide [your sins] lest your hearing or your sight or your skins bear witness against you: nay, but you thought that God did not know much of what you were doing –* — **Fussilat (41:22)**
+> 📖 *and to whose life I gave so wide a scope:* — **Al-Muddaththir (74:14)**
 <!-- quran-verse-end -->
 
 ---
