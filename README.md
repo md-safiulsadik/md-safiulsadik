@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and from the evil of the black darkness whenever it descends,* — **Al-Falaq (113:3)**
+> 📖 *AND GOD sends down water from the skies, giving life thereby to the earth after it had been lifeless: in this, behold, there is a message indeed for people who [are willing to] listen.* — **An-Nahl (16:65)**
 <!-- quran-verse-end -->
 
 ---
