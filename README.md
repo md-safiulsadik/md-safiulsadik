@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND GOD sends down water from the skies, giving life thereby to the earth after it had been lifeless: in this, behold, there is a message indeed for people who [are willing to] listen.* — **An-Nahl (16:65)**
+> 📖 *And there is, too, among men many a one who worships God on the border-line [of faith]: thus, if good befalls him, he is satisfied with Him; but if a trial assails him, he turns away utterly, losing [thereby both] this world and the life to come: [and] this, indeed, is a loss beyond compare!* — **Al-Hajj (22:11)**
 <!-- quran-verse-end -->
 
 ---
