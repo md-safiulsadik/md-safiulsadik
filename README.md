@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and to whose life I gave so wide a scope:* — **Al-Muddaththir (74:14)**
+> 📖 *[inflicted on them] by Pharaoh, seeing that he was truly outstand­ing among those who waste their own selves;* — **Ad-Dukhaan (44:31)**
 <!-- quran-verse-end -->
 
 ---
