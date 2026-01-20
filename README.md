@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now as for those who indulge in sinful doings - do they think that We place them, both in their life and their death, on an equal footing with those who have attained to faith and do righteous deeds? Bad, indeed, is their judgment:* — **Al-Jaathiya (45:21)**
+> 📖 *Say: "Come, let me convey unto you what God has [really] forbidden to you: "Do not ascribe divinity, in any way, to aught beside Him; and [do not offend against but, rather,] do good unto your parents; and do not kill your children for fear of poverty - [for] it is We who shall provide sustenance for you as well as for them; and do not commit any shameful deeds, be they open or secret; and do not take any human being's life-[the life] which God has declared to be sacred -otherwise than in [the pursuit of] justice: this has He enjoined upon you so that you might use your reason;* — **Al-An'aam (6:151)**
 <!-- quran-verse-end -->
 
 ---
