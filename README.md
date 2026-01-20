@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [as soon as Joseph's interpretation. was conveyed to him,] the King said: "Bring him before me!" But when the [King's] messenger came unto him, [Joseph] said: "Go back to thy lord and ask him [first to find out the truth] about those women who cut their hands-for, behold, [until now it is] my Sustainer [alone who] has full knowledge of their guile!"* — **Yusuf (12:50)**
+> 📖 *Behold, it is this [kind of man] that thrusts the orphan away,* — **Al-Maa'un (107:2)**
 <!-- quran-verse-end -->
 
 ---
