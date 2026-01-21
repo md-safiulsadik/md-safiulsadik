@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and make it your daily bread [as it were] to call the truth a lie?* — **Al-Waaqia (56:82)**
+> 📖 *And thou canst see many of them vie with one another in sinning and tyrannical conduct and in their swallowing of all that is evil.* — **Al-Maaida (5:62)**
 <!-- quran-verse-end -->
 
 ---
