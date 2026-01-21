@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, God’s are all the forces of the heavens and the earth; and God is indeed almighty, truly wise!* — **Al-Fath (48:7)**
+> 📖 *no headiness will be in it, and they will not get drunk thereon.* — **As-Saaffaat (37:47)**
 <!-- quran-verse-end -->
 
 ---
