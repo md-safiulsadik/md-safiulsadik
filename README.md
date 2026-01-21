@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Did He not utterly confound their artful planning?* — **Al-Fil (105:2)**
+> 📖 *this, because they hate [the very thought of] what God has bestowed from on high and thus He causes all their deeds to come to nought!* — **Muhammad (47:9)**
 <!-- quran-verse-end -->
 
 ---
