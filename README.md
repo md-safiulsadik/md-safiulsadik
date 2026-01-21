@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *wherein he will neither die nor remain alive.* — **Al-A'laa (87:13)**
+> 📖 *and whenever good fortune comes to him, he selfishly withholds it [from others].* — **Al-Ma'aarij (70:21)**
 <!-- quran-verse-end -->
 
 ---
