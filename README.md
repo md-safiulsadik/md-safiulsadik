@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, man is born with a restless disposition.* — **Al-Ma'aarij (70:19)**
+> 📖 *AND OUT OF whatever He has created of the fruits of the field and the cattle, they assign unto God a portion, saying, "This belongs to God"-or so they [falsely] claim - "and this is for those beings who, we are convinced, have a share in God's divinity." But that which is assigned to the beings associated in their minds with God does not bring [them] closer to God - whereas that which is assigned to God brings [them but] closer to those beings to whom they ascribe a share in His divinity. Bad, indeed, is their judgment!* — **Al-An'aam (6:136)**
 <!-- quran-verse-end -->
 
 ---
