@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.* — **Al-Qadr (97:1)**
+> 📖 *and make it your daily bread [as it were] to call the truth a lie?* — **Al-Waaqia (56:82)**
 <!-- quran-verse-end -->
 
 ---
