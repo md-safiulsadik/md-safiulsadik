@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *well-nigh bursting with fury; [and] every time a host [of such sinners] is flung into it, its keepers will ask them, "Has no warner ever come to you?"* — **Al-Mulk (67:8)**
+> 📖 *wherein he will neither die nor remain alive.* — **Al-A'laa (87:13)**
 <!-- quran-verse-end -->
 
 ---
