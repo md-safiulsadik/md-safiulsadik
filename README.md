@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He is the First and the Last, and the Outward as well as the Inward: and He has full knowledge of everything.* — **Al-Hadid (57:3)**
+> 📖 *But as for those who are bent on denying the truth - the fire of hell awaits them: no end shall be put to their lives so that they could die, nor shall aught of the suffering caused by that [fire] be lightened for them: thus shall We requite all who are bereft of gratitude.* — **Faatir (35:36)**
 <!-- quran-verse-end -->
 
 ---
