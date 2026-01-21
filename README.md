@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They will answer: "We were not among those who prayed;* — **Al-Muddaththir (74:43)**
+> 📖 *He is the First and the Last, and the Outward as well as the Inward: and He has full knowledge of everything.* — **Al-Hadid (57:3)**
 <!-- quran-verse-end -->
 
 ---
