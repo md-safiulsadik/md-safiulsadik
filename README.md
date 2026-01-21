@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *this, because they hate [the very thought of] what God has bestowed from on high and thus He causes all their deeds to come to nought!* — **Muhammad (47:9)**
+> 📖 *They will answer: "We were not among those who prayed;* — **Al-Muddaththir (74:43)**
 <!-- quran-verse-end -->
 
 ---
