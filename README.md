@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and whenever good fortune comes to him, he selfishly withholds it [from others].* — **Al-Ma'aarij (70:21)**
+> 📖 *For, God’s are all the forces of the heavens and the earth; and God is indeed almighty, truly wise!* — **Al-Fath (48:7)**
 <!-- quran-verse-end -->
 
 ---
