@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *When he called out to his Sustainer in the secrecy of his heart,* — **Maryam (19:3)**
+> 📖 *Did He not utterly confound their artful planning?* — **Al-Fil (105:2)**
 <!-- quran-verse-end -->
 
 ---
