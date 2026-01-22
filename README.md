@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, they who come after them pray: “O our Sustainer! Forgive us our sins, as well as those of our brethren who preceded us in faith, and let not our hearts entertain any unworthy thoughts or feelings against [any of] those who have attained to faith. O our Sustainer! Verily, Thou art compassionate, a dispenser of grace!”* — **Al-Hashr (59:10)**
+> 📖 *If one desires the rewards of this world, [let him remember that] with God are the rewards of [both] this world and the life to come: and God is indeed all-hearing, all-seeing.* — **An-Nisaa (4:134)**
 <!-- quran-verse-end -->
 
 ---
