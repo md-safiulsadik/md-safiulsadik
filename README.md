@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, it is this [kind of man] that thrusts the orphan away,* — **Al-Maa'un (107:2)**
+> 📖 *Verily, [O men,] you are deeply at variance as to what to believe:* — **Adh-Dhaariyat (51:8)**
 <!-- quran-verse-end -->
 
 ---
