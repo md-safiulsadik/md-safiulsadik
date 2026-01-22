@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, [O men,] you are deeply at variance as to what to believe:* — **Adh-Dhaariyat (51:8)**
+> 📖 *For, [many are] they [who] say, “We believe in God and in the Apostle, and we pay heed!” - but then, some of them turn away after this [assertion]: and these are by no means [true] believers.* — **An-Noor (24:47)**
 <!-- quran-verse-end -->
 
 ---
