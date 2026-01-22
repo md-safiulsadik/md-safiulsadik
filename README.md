@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"the God of men,* — **An-Naas (114:3)**
+> 📖 *the Sustainer of Moses and Aaron!”* — **Ash-Shu'araa (26:48)**
 <!-- quran-verse-end -->
 
 ---
