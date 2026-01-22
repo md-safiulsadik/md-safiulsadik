@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, they who are conscious of God bethink themselves [of Him] whenever any dark suggestion from Satan touches them - whereupon, lo! they begin to see [things] clearly,* — **Al-A'raaf (7:201)**
+> 📖 *"the God of men,* — **An-Naas (114:3)**
 <!-- quran-verse-end -->
 
 ---
