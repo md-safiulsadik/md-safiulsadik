@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.* — **Az-Zalzala (99:6)**
+> 📖 *O PROPHET! Why dost thou, out of a desire to please [one or another of] thy wives, impose [on thyself] a prohibition of something that God has made lawful to thee? But God is much-forgiving, a dispenser of grace:* — **At-Tahrim (66:1)**
 <!-- quran-verse-end -->
 
 ---
