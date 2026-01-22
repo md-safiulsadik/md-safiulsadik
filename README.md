@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Did He not utterly confound their artful planning?* — **Al-Fil (105:2)**
+> 📖 *They will say: “Oh, woe unto us! Who has roused us from our sleep [of death]?” [Whereupon they will be told:] “This is what the Most Gracious has promised! And His message-bearers spoke the truth!”* — **Yaseen (36:52)**
 <!-- quran-verse-end -->
 
 ---
