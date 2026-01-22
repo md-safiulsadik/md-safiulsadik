@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, [many are] they [who] say, “We believe in God and in the Apostle, and we pay heed!” - but then, some of them turn away after this [assertion]: and these are by no means [true] believers.* — **An-Noor (24:47)**
+> 📖 *Verily, they who are conscious of God bethink themselves [of Him] whenever any dark suggestion from Satan touches them - whereupon, lo! they begin to see [things] clearly,* — **Al-A'raaf (7:201)**
 <!-- quran-verse-end -->
 
 ---
