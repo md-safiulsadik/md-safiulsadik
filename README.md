@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, behold, among the followers of earlier revelation there are indeed such as [truly] believe in God, and in that which has been bestowed from on high upon you as well as in that which has been bestowed upon them. Standing in awe of God, they do not barter away God's messages for a trifling gain. They shall have their reward with their Sustainer - for, behold, God is swift in reckoning!* — **Aal-i-Imraan (3:199)**
+> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
 <!-- quran-verse-end -->
 
 ---
