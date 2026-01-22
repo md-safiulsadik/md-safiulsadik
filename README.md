@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the Sustainer of Moses and Aaron!”* — **Ash-Shu'araa (26:48)**
+> 📖 *On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.* — **Az-Zalzala (99:6)**
 <!-- quran-verse-end -->
 
 ---
