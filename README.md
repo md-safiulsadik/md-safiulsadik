@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND HAS the story of Abraham’s honoured guests ever come within thy ken?* — **Adh-Dhaariyat (51:24)**
+> 📖 *Behold, it is this [kind of man] that thrusts the orphan away,* — **Al-Maa'un (107:2)**
 <!-- quran-verse-end -->
 
 ---
