@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They will say: “Oh, woe unto us! Who has roused us from our sleep [of death]?” [Whereupon they will be told:] “This is what the Most Gracious has promised! And His message-bearers spoke the truth!”* — **Yaseen (36:52)**
+> 📖 *The great ones among Pharaoh's people said: "Verily, this is indeed a sorcerer of great knowledge,* — **Al-A'raaf (7:109)**
 <!-- quran-verse-end -->
 
 ---
