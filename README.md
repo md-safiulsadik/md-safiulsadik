@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *If one desires the rewards of this world, [let him remember that] with God are the rewards of [both] this world and the life to come: and God is indeed all-hearing, all-seeing.* — **An-Nisaa (4:134)**
+> 📖 *And, behold, among the followers of earlier revelation there are indeed such as [truly] believe in God, and in that which has been bestowed from on high upon you as well as in that which has been bestowed upon them. Standing in awe of God, they do not barter away God's messages for a trifling gain. They shall have their reward with their Sustainer - for, behold, God is swift in reckoning!* — **Aal-i-Imraan (3:199)**
 <!-- quran-verse-end -->
 
 ---
