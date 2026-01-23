@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "O you who deny the truth!* — **Al-Kaafiroon (109:1)**
+> 📖 *till, when they came upon a valley [full] of ants, an ant exclaimed: “O you ants! Get into your dwellings, lest Solomon and his hosts crush you without [even] being aware [of you]!”* — **An-Naml (27:18)**
 <!-- quran-verse-end -->
 
 ---
