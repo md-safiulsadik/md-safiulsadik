@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DO, THEN, they [who deny resurrection] never gaze at the clouds pregnant with water, [and observe] how they are created?* — **Al-Ghaashiya (88:17)**
+> 📖 *then pour over his head the anguish of burning despair!* — **Ad-Dukhaan (44:48)**
 <!-- quran-verse-end -->
 
 ---
