@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for him who is bent on denying the truth - let not his denial grieve thee: unto Us they must return, and then We shall make them [truly] understand all that they were doing [in life]: for, verily, God has full knowledge of what is in the hearts [of men].* — **Luqman (31:23)**
+> 📖 *[Joseph] replied: "Place in my charge the store-houses of the land; behold, I shall be a good and knowing keeper.* — **Yusuf (12:55)**
 <!-- quran-verse-end -->
 
 ---
