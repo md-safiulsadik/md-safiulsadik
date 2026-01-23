@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And no true understanding of God have they [who worship aught beside Him], inasmuch as the whole of the earth will be as a [mere] handful to Him on Resurrection Day, and the heavens will be rolled up in His right hand: limitless is He in His glory, and sublimely exalted above anything to which they may ascribe a share in His divinity!* — **Az-Zumar (39:67)**
+> 📖 *Then he turned quietly to his household, and brought forth a fat [roasted] calf,* — **Adh-Dhaariyat (51:26)**
 <!-- quran-verse-end -->
 
 ---
