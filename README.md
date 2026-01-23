@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Ask them:] “Would you, perchance, after having turned away [from God’s commandment, pre­fer to revert to your old ways, and] spread corruption on earth, and [once again] cut asunder your ties of kinship?”* — **Muhammad (47:22)**
+> 📖 *And no true understanding of God have they [who worship aught beside Him], inasmuch as the whole of the earth will be as a [mere] handful to Him on Resurrection Day, and the heavens will be rolled up in His right hand: limitless is He in His glory, and sublimely exalted above anything to which they may ascribe a share in His divinity!* — **Az-Zumar (39:67)**
 <!-- quran-verse-end -->
 
 ---
