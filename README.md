@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, verily, to the love of wealth is he most ardently devoted.* — **Al-Aadiyaat (100:8)**
+> 📖 *all the angels and all the inspiration [ever granted to man] ascend unto Him [daily,] in a day the length whereof is [like] fifty thousand years…* — **Al-Ma'aarij (70:4)**
 <!-- quran-verse-end -->
 
 ---
