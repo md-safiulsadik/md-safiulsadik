@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[It is] the freeing of one's neck [from the burden of sin],* — **Al-Balad (90:13)**
+> 📖 *[For,] were it Our will, We could indeed turn it into chaff, and you would be left to wonder [and to lament],* — **Al-Waaqia (56:65)**
 <!-- quran-verse-end -->
 
 ---
