@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *then pour over his head the anguish of burning despair!* — **Ad-Dukhaan (44:48)**
+> 📖 *At that, a man came running from the farthest end of the city, [and] exclaimed: “O my people! Follow these message-bearers!* — **Yaseen (36:20)**
 <!-- quran-verse-end -->
 
 ---
