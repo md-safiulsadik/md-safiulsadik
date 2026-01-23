@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that Day, [erstwhile] friends will be foes unto one another - [all] save the God-conscious.* — **Az-Zukhruf (43:67)**
+> 📖 *and drive those who were lost in sin unto hell as a thirsty herd is driven to a well –* — **Maryam (19:86)**
 <!-- quran-verse-end -->
 
 ---
