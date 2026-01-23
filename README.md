@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thus God let them taste ignominy [even] in the life of this world. Yet [how] much greater will be the [sinners’] suffering in the life to come - if they [who now deny the truth] but knew it!* — **Az-Zumar (39:26)**
+> 📖 *On that Day, [erstwhile] friends will be foes unto one another - [all] save the God-conscious.* — **Az-Zukhruf (43:67)**
 <!-- quran-verse-end -->
 
 ---
