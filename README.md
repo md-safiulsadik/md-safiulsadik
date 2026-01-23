@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *till, when they came upon a valley [full] of ants, an ant exclaimed: “O you ants! Get into your dwellings, lest Solomon and his hosts crush you without [even] being aware [of you]!”* — **An-Naml (27:18)**
+> 📖 *shall find himself in a happy' state of life;* — **Al-Qaari'a (101:7)**
 <!-- quran-verse-end -->
 
 ---
