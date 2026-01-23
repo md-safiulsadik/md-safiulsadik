@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Then he turned quietly to his household, and brought forth a fat [roasted] calf,* — **Adh-Dhaariyat (51:26)**
+> 📖 *most certainly shall I cut off your hands and your feet in great numbers, because of [your] perverseness, and then I shall most certainly crucify you, in great numbers, all together! "* — **Al-A'raaf (7:124)**
 <!-- quran-verse-end -->
 
 ---
