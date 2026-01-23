@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *that had weighed so heavily on thy back?* — **Ash-Sharh (94:3)**
+> 📖 *DO, THEN, they [who deny resurrection] never gaze at the clouds pregnant with water, [and observe] how they are created?* — **Al-Ghaashiya (88:17)**
 <!-- quran-verse-end -->
 
 ---
