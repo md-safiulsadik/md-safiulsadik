@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[For,] were it Our will, We could indeed turn it into chaff, and you would be left to wonder [and to lament],* — **Al-Waaqia (56:65)**
+> 📖 *for, verily, to the love of wealth is he most ardently devoted.* — **Al-Aadiyaat (100:8)**
 <!-- quran-verse-end -->
 
 ---
