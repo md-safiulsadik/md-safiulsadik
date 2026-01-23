@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and drive those who were lost in sin unto hell as a thirsty herd is driven to a well –* — **Maryam (19:86)**
+> 📖 *How awesome the sudden calamity!* — **Al-Qaari'a (101:2)**
 <!-- quran-verse-end -->
 
 ---
