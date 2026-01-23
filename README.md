@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *all the angels and all the inspiration [ever granted to man] ascend unto Him [daily,] in a day the length whereof is [like] fifty thousand years…* — **Al-Ma'aarij (70:4)**
+> 📖 *[Ask them:] “Would you, perchance, after having turned away [from God’s commandment, pre­fer to revert to your old ways, and] spread corruption on earth, and [once again] cut asunder your ties of kinship?”* — **Muhammad (47:22)**
 <!-- quran-verse-end -->
 
 ---
