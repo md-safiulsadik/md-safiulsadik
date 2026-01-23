@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *most certainly shall I cut off your hands and your feet in great numbers, because of [your] perverseness, and then I shall most certainly crucify you, in great numbers, all together! "* — **Al-A'raaf (7:124)**
+> 📖 *and thus God let them taste ignominy [even] in the life of this world. Yet [how] much greater will be the [sinners’] suffering in the life to come - if they [who now deny the truth] but knew it!* — **Az-Zumar (39:26)**
 <!-- quran-verse-end -->
 
 ---
