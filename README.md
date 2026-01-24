@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But Satan caused them both to stumble therein, and thus brought about the loss of their erstwhile state. And so We said: "Down with you, [and be henceforth] enemies unto one another; and on earth you shall have your abode and your livelihood for a while!"* — **Al-Baqara (2:36)**
+> 📖 *and the angels [will appear] at its ends, and, above them, eight will bear aloft on that Day the throne of thy Sustainer’s almightiness…* — **Al-Haaqqa (69:17)**
 <!-- quran-verse-end -->
 
 ---
