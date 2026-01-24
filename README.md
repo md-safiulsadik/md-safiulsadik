@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
+> 📖 *A fire hotly burning!* — **Al-Qaari'a (101:11)**
 <!-- quran-verse-end -->
 
 ---
