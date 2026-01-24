@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"I do not worship that which you worship,* — **Al-Kaafiroon (109:2)**
+> 📖 *when a woman of [the House of] `Imran prayed: "O my Sustainer! Behold, unto Thee do I vow [the child] that is in, my womb, to be devoted to Thy service. Accept it, then, from me: verily, Thou alone art all-hearing, all-knowing!"* — **Aal-i-Imraan (3:35)**
 <!-- quran-verse-end -->
 
 ---
