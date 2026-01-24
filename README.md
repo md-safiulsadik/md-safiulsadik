@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:34)**
+> 📖 *He admits unto His grace everyone who wills [to be admitted]; but as for the evildoers - for them has He readied grievous suffering [in the life to come].* — **Al-Insaan (76:31)**
 <!-- quran-verse-end -->
 
 ---
