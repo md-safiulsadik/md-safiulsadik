@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the angels [will appear] at its ends, and, above them, eight will bear aloft on that Day the throne of thy Sustainer’s almightiness…* — **Al-Haaqqa (69:17)**
+> 📖 *and when the seas boil over,* — **At-Takwir (81:6)**
 <!-- quran-verse-end -->
 
 ---
