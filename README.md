@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Joseph] replied: "Place in my charge the store-houses of the land; behold, I shall be a good and knowing keeper.* — **Yusuf (12:55)**
+> 📖 *wherein he will neither die nor remain alive.* — **Al-A'laa (87:13)**
 <!-- quran-verse-end -->
 
 ---
