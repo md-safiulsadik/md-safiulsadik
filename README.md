@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But in the end, when he [who has thus sinned] appears before us [on Judgment Day], he will say [to his other self], “Would that between me and thee there had been the distance of east and west!” for, evil indeed [has proved] that other self!* — **Az-Zukhruf (43:38)**
+> 📖 *on the Day when the trumpet is blown: for on that Day We will assemble all such as had been lost in sin, their eyes dimmed [by terror],* — **Taa-Haa (20:102)**
 <!-- quran-verse-end -->
 
 ---
