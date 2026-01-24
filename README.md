@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *wherein he will neither die nor remain alive.* — **Al-A'laa (87:13)**
+> 📖 *"I do not worship that which you worship,* — **Al-Kaafiroon (109:2)**
 <!-- quran-verse-end -->
 
 ---
