@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the seas boil over,* — **At-Takwir (81:6)**
+> 📖 *He answered: “Do you worship something that you [yourselves] have carved,* — **As-Saaffaat (37:95)**
 <!-- quran-verse-end -->
 
 ---
