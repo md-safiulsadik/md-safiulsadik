@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yea indeed! His Sustainer did see all that was in him!* — **Al-Inshiqaaq (84:15)**
+> 📖 *will you, then, contend with him as to what he saw?* — **An-Najm (53:12)**
 <!-- quran-verse-end -->
 
 ---
