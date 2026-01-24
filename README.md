@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He answered: “Do you worship something that you [yourselves] have carved,* — **As-Saaffaat (37:95)**
+> 📖 *Yea indeed! His Sustainer did see all that was in him!* — **Al-Inshiqaaq (84:15)**
 <!-- quran-verse-end -->
 
 ---
