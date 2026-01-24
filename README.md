@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *will you, then, contend with him as to what he saw?* — **An-Najm (53:12)**
+> 📖 *But in the end, when he [who has thus sinned] appears before us [on Judgment Day], he will say [to his other self], “Would that between me and thee there had been the distance of east and west!” for, evil indeed [has proved] that other self!* — **Az-Zukhruf (43:38)**
 <!-- quran-verse-end -->
 
 ---
