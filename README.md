@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *when a woman of [the House of] `Imran prayed: "O my Sustainer! Behold, unto Thee do I vow [the child] that is in, my womb, to be devoted to Thy service. Accept it, then, from me: verily, Thou alone art all-hearing, all-knowing!"* — **Aal-i-Imraan (3:35)**
+> 📖 *For, it is neither your riches nor your children that can bring you nearer to Us: only he who attains to faith and does what is right and just [comes near unto Us]; and it is [such as] these whom multiple recompense awaits for all that they have done; and it is they who shall dwell secure in the mansions [of paradise] –* — **Saba (34:37)**
 <!-- quran-verse-end -->
 
 ---
