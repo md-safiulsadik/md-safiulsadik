@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But when they continued to challenge Us, We inflicted Our retribution on them, and drowned them all:* — **Az-Zukhruf (43:55)**
+> 📖 *Enter paradise, you and your spouses, with happiness blest!”* — **Az-Zukhruf (43:70)**
 <!-- quran-verse-end -->
 
 ---
