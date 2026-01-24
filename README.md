@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[coming upon thee] from the right and from the left, in crowds?* — **Al-Ma'aarij (70:37)**
+> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:34)**
 <!-- quran-verse-end -->
 
 ---
