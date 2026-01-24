@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Enter paradise, you and your spouses, with happiness blest!”* — **Az-Zukhruf (43:70)**
+> 📖 *He answered: “O my Sustainer! Behold, I fear that they will give me the lie,* — **Ash-Shu'araa (26:12)**
 <!-- quran-verse-end -->
 
 ---
