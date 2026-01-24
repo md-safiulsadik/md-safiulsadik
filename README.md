@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *A fire hotly burning!* — **Al-Qaari'a (101:11)**
+> 📖 *[coming upon thee] from the right and from the left, in crowds?* — **Al-Ma'aarij (70:37)**
 <!-- quran-verse-end -->
 
 ---
