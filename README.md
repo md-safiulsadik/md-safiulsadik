@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He admits unto His grace everyone who wills [to be admitted]; but as for the evildoers - for them has He readied grievous suffering [in the life to come].* — **Al-Insaan (76:31)**
+> 📖 *But Satan caused them both to stumble therein, and thus brought about the loss of their erstwhile state. And so We said: "Down with you, [and be henceforth] enemies unto one another; and on earth you shall have your abode and your livelihood for a while!"* — **Al-Baqara (2:36)**
 <!-- quran-verse-end -->
 
 ---
