@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"God the Eternal, the Uncaused Cause of All Being.* — **Al-Ikhlaas (112:2)**
+> 📖 *to let loose upon them stone-hard blows of chastisement,* — **Adh-Dhaariyat (51:33)**
 <!-- quran-verse-end -->
 
 ---
