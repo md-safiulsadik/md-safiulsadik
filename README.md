@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"the God of men,* — **An-Naas (114:3)**
+> 📖 *None the less man chooses to deny what lies ahead of him,* — **Al-Qiyaama (75:5)**
 <!-- quran-verse-end -->
 
 ---
