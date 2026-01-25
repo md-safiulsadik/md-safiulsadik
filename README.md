@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or [dost thou deem thyself equal to] one who devoutly worships [God] throughout the night, prostrating himself or standing [in prayer], ever- mindful of the life to come, and hoping for his Sustainer’s grace?” Say: “Can they who know and they who do not know be deemed equal?” [But] only they who are endowed with insight keep this in mind!* — **Az-Zumar (39:9)**
+> 📖 *AND SO, [O man,] if thou art in doubt about [the truth of] what We have [now] bestowed upon thee from on high, ask those who read the divine writ [revealed] before thy time: [and thou wilt find that,] surely, the truth has now come unto thee from thy Sustainer. Be not, then, among the doubters -* — **Yunus (10:94)**
 <!-- quran-verse-end -->
 
 ---
