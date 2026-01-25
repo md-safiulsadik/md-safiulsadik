@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *None the less man chooses to deny what lies ahead of him,* — **Al-Qiyaama (75:5)**
+> 📖 *All praise is due to God alone, the Sustainer of all the worlds,* — **Al-Faatiha (1:2)**
 <!-- quran-verse-end -->
 
 ---
