@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet, they [who are bent on denying the truth] assert, "[Muhammad] has invented it!" Say [unto them]: "Produce, then, a surah of similar merit; and [to this end] call to your aid whomever you can, other than God, if what you say is true!* — **Yunus (10:38)**
+> 📖 *[Hence,] O you who have attained to faith, pay heed unto God and His Apostle, and do not turn away from Him now that you hear [His message];* — **Al-Anfaal (8:20)**
 <!-- quran-verse-end -->
 
 ---
