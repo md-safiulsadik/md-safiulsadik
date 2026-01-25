@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, [in the life to come] the truly virtuous: will indeed be in bliss,* — **Al-Infitaar (82:13)**
+> 📖 *by the lote-tree of the farthest limit,* — **An-Najm (53:14)**
 <!-- quran-verse-end -->
 
 ---
