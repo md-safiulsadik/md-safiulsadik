@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND SO, [O man,] if thou art in doubt about [the truth of] what We have [now] bestowed upon thee from on high, ask those who read the divine writ [revealed] before thy time: [and thou wilt find that,] surely, the truth has now come unto thee from thy Sustainer. Be not, then, among the doubters -* — **Yunus (10:94)**
+> 📖 *And yet, they [who are bent on denying the truth] assert, "[Muhammad] has invented it!" Say [unto them]: "Produce, then, a surah of similar merit; and [to this end] call to your aid whomever you can, other than God, if what you say is true!* — **Yunus (10:38)**
 <!-- quran-verse-end -->
 
 ---
