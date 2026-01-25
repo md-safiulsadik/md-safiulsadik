@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *to let loose upon them stone-hard blows of chastisement,* — **Adh-Dhaariyat (51:33)**
+> 📖 *Or [dost thou deem thyself equal to] one who devoutly worships [God] throughout the night, prostrating himself or standing [in prayer], ever- mindful of the life to come, and hoping for his Sustainer’s grace?” Say: “Can they who know and they who do not know be deemed equal?” [But] only they who are endowed with insight keep this in mind!* — **Az-Zumar (39:9)**
 <!-- quran-verse-end -->
 
 ---
