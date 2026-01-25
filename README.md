@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[To those sinners shall happen] the like of what happened to Pharaoh's people and those who lived before them: they gave the lie to their Sustainer's messages - and so We destroyed them in return for their sins, and caused Pharaoh's people to drown: for they were evildoers all.* — **Al-Anfaal (8:54)**
+> 📖 *and [so,] whenever they commit a shameful deed, they are wont to say, "We found our forefathers doing it," and, "God has enjoined it upon us." Say: "Behold, never does God enjoin deeds of abomination. Would you attribute unto God something of which you have no knowledge?"* — **Al-A'raaf (7:28)**
 <!-- quran-verse-end -->
 
 ---
