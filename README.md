@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [so,] whenever they commit a shameful deed, they are wont to say, "We found our forefathers doing it," and, "God has enjoined it upon us." Say: "Behold, never does God enjoin deeds of abomination. Would you attribute unto God something of which you have no knowledge?"* — **Al-A'raaf (7:28)**
+> 📖 *and this land secure!* — **At-Tin (95:3)**
 <!-- quran-verse-end -->
 
 ---
