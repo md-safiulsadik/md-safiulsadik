@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *All praise is due to God alone, the Sustainer of all the worlds,* — **Al-Faatiha (1:2)**
+> 📖 *THE LAST HOUR draws near, and the moon is split asunder!* — **Al-Qamar (54:1)**
 <!-- quran-verse-end -->
 
 ---
