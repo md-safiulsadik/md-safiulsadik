@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [man] will have neither strength nor helper!* — **At-Taariq (86:10)**
+> 📖 *AND, BEHOLD, this [divine writ] is indeed a means to know [that] the Last Hour [is bound to come]; hence, have no doubt whatever about it, but follow Me: this [alone] is a straight way.* — **Az-Zukhruf (43:61)**
 <!-- quran-verse-end -->
 
 ---
