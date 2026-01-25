@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and this land secure!* — **At-Tin (95:3)**
+> 📖 *and [man] will have neither strength nor helper!* — **At-Taariq (86:10)**
 <!-- quran-verse-end -->
 
 ---
