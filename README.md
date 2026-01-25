@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *by the lote-tree of the farthest limit,* — **An-Najm (53:14)**
+> 📖 *"God the Eternal, the Uncaused Cause of All Being.* — **Al-Ikhlaas (112:2)**
 <!-- quran-verse-end -->
 
 ---
