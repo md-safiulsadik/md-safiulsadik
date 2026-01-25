@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Hence,] O you who have attained to faith, pay heed unto God and His Apostle, and do not turn away from Him now that you hear [His message];* — **Al-Anfaal (8:20)**
+> 📖 *[If you do so,] He will forgive you your sins, and [in the life to come] will admit you into gardens through which running waters flow, and into goodly mansions in [those] gardens of perpetual bliss: that [will be] the triumph supreme!* — **As-Saff (61:12)**
 <!-- quran-verse-end -->
 
 ---
