@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Lord of the Day of Judgment!* — **Al-Faatiha (1:4)**
+> 📖 *Answered He: “Verily, so [be it:] thou shalt be among those who are granted respite* — **Saad (38:80)**
 <!-- quran-verse-end -->
 
 ---
