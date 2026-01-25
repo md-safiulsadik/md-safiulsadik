@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THE LAST HOUR draws near, and the moon is split asunder!* — **Al-Qamar (54:1)**
+> 📖 *Lord of the Day of Judgment!* — **Al-Faatiha (1:4)**
 <!-- quran-verse-end -->
 
 ---
