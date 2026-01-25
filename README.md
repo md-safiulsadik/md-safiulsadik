@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and from the evil of the black darkness whenever it descends,* — **Al-Falaq (113:3)**
+> 📖 *[To those sinners shall happen] the like of what happened to Pharaoh's people and those who lived before them: they gave the lie to their Sustainer's messages - and so We destroyed them in return for their sins, and caused Pharaoh's people to drown: for they were evildoers all.* — **Al-Anfaal (8:54)**
 <!-- quran-verse-end -->
 
 ---
