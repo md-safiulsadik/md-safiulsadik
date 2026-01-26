@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *then He causes him to be begotten out of the essence of a humble fluid;* — **As-Sajda (32:8)**
+> 📖 *Now as for him whose record shall be placed in his right hand, he will exclaim: "Come you all!" Read this my record!* — **Al-Haaqqa (69:19)**
 <!-- quran-verse-end -->
 
 ---
