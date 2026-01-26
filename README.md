@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY [unto all men]: “I but warn you on the strength of divine revelation!” But the deaf [of heart] will not hearken to this call, however often they are warned.* — **Al-Anbiyaa (21:45)**
+> 📖 *[For] God has thus ordained: “I shall most certainly prevail, I and My apostles!” Verily, God is powerful, almighty!* — **Al-Mujaadila (58:21)**
 <!-- quran-verse-end -->
 
 ---
