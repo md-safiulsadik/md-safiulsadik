@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[For] God has thus ordained: “I shall most certainly prevail, I and My apostles!” Verily, God is powerful, almighty!* — **Al-Mujaadila (58:21)**
+> 📖 *[yet] it is they who, in the life to come, shall have nothing but the fire -for in vain shall be all that they wrought in this [world], and worthless all that they ever did!* — **Hud (11:16)**
 <!-- quran-verse-end -->
 
 ---
