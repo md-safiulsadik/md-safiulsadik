@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the vault [of heaven] raised high!* — **At-Tur (52:5)**
+> 📖 *secure in their winter and summer journeys,* — **Quraish (106:2)**
 <!-- quran-verse-end -->
 
 ---
