@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *bound to destroy everything at its Sustainer’s behest!” And then they were so utterly wiped out that nothing could be seen save their [empty] dwellings: thus do We requite people lost in sin.* — **Al-Ahqaf (46:25)**
+> 📖 *SAY [unto all men]: “I but warn you on the strength of divine revelation!” But the deaf [of heart] will not hearken to this call, however often they are warned.* — **Al-Anbiyaa (21:45)**
 <!-- quran-verse-end -->
 
 ---
