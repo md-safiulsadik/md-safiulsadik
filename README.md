@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and on that Day you will most surely be called to account for [what you did with] the boon of life!* — **At-Takaathur (102:8)**
+> 📖 *But now they would say, “Long has our Sus­tainer made the distance between our journey- stages!” - for they had sinned against themselves. And in the end We caused them to become [one of those] tales [of things long past], and scattered them in countless fragments. Herein, behold, there are messages indeed for all who are wholly patient in adversity and deeply grate­ful [to God].* — **Saba (34:19)**
 <!-- quran-verse-end -->
 
 ---
