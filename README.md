@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *secure in their winter and summer journeys,* — **Quraish (106:2)**
+> 📖 *and the mountains will be like tufts of wool,* — **Al-Ma'aarij (70:9)**
 <!-- quran-verse-end -->
 
 ---
