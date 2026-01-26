@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[yet] it is they who, in the life to come, shall have nothing but the fire -for in vain shall be all that they wrought in this [world], and worthless all that they ever did!* — **Hud (11:16)**
+> 📖 *And so We vouchsafed him good in this world; and, verily, in the life to come [too] he shall find himself among the righteous.* — **An-Nahl (16:122)**
 <!-- quran-verse-end -->
 
 ---
