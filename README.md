@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Answered He: “Verily, so [be it:] thou shalt be among those who are granted respite* — **Saad (38:80)**
+> 📖 *bound to destroy everything at its Sustainer’s behest!” And then they were so utterly wiped out that nothing could be seen save their [empty] dwellings: thus do We requite people lost in sin.* — **Al-Ahqaf (46:25)**
 <!-- quran-verse-end -->
 
 ---
