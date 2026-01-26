@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so We vouchsafed him good in this world; and, verily, in the life to come [too] he shall find himself among the righteous.* — **An-Nahl (16:122)**
+> 📖 *How awesome the sudden calamity!* — **Al-Qaari'a (101:2)**
 <!-- quran-verse-end -->
 
 ---
