@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now as for him whose record shall be placed in his right hand, he will exclaim: "Come you all!" Read this my record!* — **Al-Haaqqa (69:19)**
+> 📖 *Consider the vault [of heaven] raised high!* — **At-Tur (52:5)**
 <!-- quran-verse-end -->
 
 ---
