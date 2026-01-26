@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is [such as] these upon whom the sentence [of doom] will fall due, together with the [other sinful] communities of invisible beings and humans that have passed away before their time. Verily, they will be lost:* — **Al-Ahqaf (46:18)**
+> 📖 *"from all [temptation to evil by] invisible forces as well as men,"* — **An-Naas (114:6)**
 <!-- quran-verse-end -->
 
 ---
