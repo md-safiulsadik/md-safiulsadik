@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the heavens and that which comes in the night!* — **At-Taariq (86:1)**
+> 📖 *and [one day] thou shalt see, and they [who now deride thee] shall see,* — **Al-Qalam (68:5)**
 <!-- quran-verse-end -->
 
 ---
