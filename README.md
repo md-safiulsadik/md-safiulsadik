@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said he: "Do you give me this glad tiding despite the fact that old age has overtaken me? Of what [strange thing], then, are you giving me a tiding!"* — **Al-Hijr (15:54)**
+> 📖 *For [even] before thy time, [O Muhammad,] We never sent [as Our apostles] any but [mortal] men, whom We inspired - hence, [tell the deniers of the truth,] “If you do not know this, ask the followers of earlier revelation”* — **Al-Anbiyaa (21:7)**
 <!-- quran-verse-end -->
 
 ---
