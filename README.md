@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But,] verily, the God-conscious will find themselves [on that Day] in gardens and in bliss,* — **At-Tur (52:17)**
+> 📖 *enjoying all that their Sustainer will have granted them [because], verily, they were doers of good in the past:* — **Adh-Dhaariyat (51:16)**
 <!-- quran-verse-end -->
 
 ---
