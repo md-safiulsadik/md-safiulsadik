@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which of you was bereft of reason.* — **Al-Qalam (68:6)**
+> 📖 *Behold, in the heavens as well as on earth there are indeed messages for all who [are willing to] believe.* — **Al-Jaathiya (45:3)**
 <!-- quran-verse-end -->
 
 ---
