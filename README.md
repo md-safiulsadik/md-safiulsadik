@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, if they had the patience [to wait] until thou come forth to them [of thine own accord], it would be for their own good. Still, God is much forgiving, a dispenser of grace.* — **Al-Hujuraat (49:5)**
+> 📖 *[But,] verily, the God-conscious will find themselves [on that Day] in gardens and in bliss,* — **At-Tur (52:17)**
 <!-- quran-verse-end -->
 
 ---
