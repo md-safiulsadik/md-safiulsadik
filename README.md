@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, it is [only] such as do not [really] believe in the life to come that regard the angels as female beings;* — **An-Najm (53:27)**
+> 📖 *VERILY, all this is an admonition: whoever, then, so wills, may unto his Sustainer find a way.* — **Al-Insaan (76:29)**
 <!-- quran-verse-end -->
 
 ---
