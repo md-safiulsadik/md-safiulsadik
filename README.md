@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But never will they long for it, because [they are aware] of what their hands have sent ahead in this world: and God has full knowledge of evildoers.* — **Al-Baqara (2:95)**
+> 📖 *Behold, it is [only] such as do not [really] believe in the life to come that regard the angels as female beings;* — **An-Najm (53:27)**
 <!-- quran-verse-end -->
 
 ---
