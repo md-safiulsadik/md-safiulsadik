@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereupon We shall most certainly reveal unto them Our knowledge [of their doings]: for never have We been absent [from them].* — **Al-A'raaf (7:7)**
+> 📖 *[And] Noah continued: "O my Sustainer! Behold, they have opposed me [throughout], for they follow people whose wealth and children lead them increasingly into ruin,* — **Nooh (71:21)**
 <!-- quran-verse-end -->
 
 ---
