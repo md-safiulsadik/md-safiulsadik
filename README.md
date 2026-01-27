@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the heavens, ever-revolving,* — **At-Taariq (86:11)**
+> 📖 *But never will they long for it, because [they are aware] of what their hands have sent ahead in this world: and God has full knowledge of evildoers.* — **Al-Baqara (2:95)**
 <!-- quran-verse-end -->
 
 ---
