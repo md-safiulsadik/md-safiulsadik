@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus arrogantly, without the least good sense, did he and his hosts behave on earth - just as if they thought that they would never have to appear before Us [for judgment]!* — **Al-Qasas (28:39)**
+> 📖 *They answered: “Behold, we have been sent unto a people lost in sin,* — **Adh-Dhaariyat (51:32)**
 <!-- quran-verse-end -->
 
 ---
