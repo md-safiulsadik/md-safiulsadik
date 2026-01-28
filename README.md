@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And remember:] had not grace from his Sustainer reached him, he would indeed have been cast forth upon that barren shore in a state of disgrace:* — **Al-Qalam (68:49)**
+> 📖 *Tell those who are bent on denying the truth that if they desist, all that is past shall be forgiven them; but if they revert [to their wrongdoing], let them remember what happened to the like of them in times gone by.* — **Al-Anfaal (8:38)**
 <!-- quran-verse-end -->
 
 ---
