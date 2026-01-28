@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Therefore, the orphan shalt thou never wrong,* — **Ad-Dhuhaa (93:9)**
+> 📖 *and [fail to see that] it is He who has created the night and the day and the sun and the moon - all of them floating through space!* — **Al-Anbiyaa (21:33)**
 <!-- quran-verse-end -->
 
 ---
