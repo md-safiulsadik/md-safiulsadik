@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Tell those who are bent on denying the truth that if they desist, all that is past shall be forgiven them; but if they revert [to their wrongdoing], let them remember what happened to the like of them in times gone by.* — **Al-Anfaal (8:38)**
+> 📖 *issuing from between the loins [of man] and the pelvic arch [of woman].* — **At-Taariq (86:7)**
 <!-- quran-verse-end -->
 
 ---
