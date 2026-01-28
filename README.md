@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let them, therefore, worship the Sustainer of this Temple;* — **Quraish (106:3)**
+> 📖 *Therefore, the orphan shalt thou never wrong,* — **Ad-Dhuhaa (93:9)**
 <!-- quran-verse-end -->
 
 ---
