@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, it is [only] such as do not [really] believe in the life to come that regard the angels as female beings;* — **An-Najm (53:27)**
+> 📖 *NAY, but consider the moon!* — **Al-Muddaththir (74:32)**
 <!-- quran-verse-end -->
 
 ---
