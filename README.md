@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NAY, but consider the moon!* — **Al-Muddaththir (74:32)**
+> 📖 *And We send down from the skies water rich in blessings, and cause thereby gardens to grow, and fields of grain,* — **Qaaf (50:9)**
 <!-- quran-verse-end -->
 
 ---
