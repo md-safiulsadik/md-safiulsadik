@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *those who, having attained to patience in adversity, in their Sustainer place their trust!* — **An-Nahl (16:42)**
+> 📖 *[And remember:] had not grace from his Sustainer reached him, he would indeed have been cast forth upon that barren shore in a state of disgrace:* — **Al-Qalam (68:49)**
 <!-- quran-verse-end -->
 
 ---
