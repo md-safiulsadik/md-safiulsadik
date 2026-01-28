@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whose hearts from their prayer are remote* — **Al-Maa'un (107:5)**
+> 📖 *And be patient in adversity: for, verily,. God does not fail to requite the doers of good!* — **Hud (11:115)**
 <!-- quran-verse-end -->
 
 ---
