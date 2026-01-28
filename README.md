@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [fail to see that] it is He who has created the night and the day and the sun and the moon - all of them floating through space!* — **Al-Anbiyaa (21:33)**
+> 📖 *and then let him summon [to his aid] the counsels of his own [spurious] wisdom,* — **Al-Alaq (96:17)**
 <!-- quran-verse-end -->
 
 ---
