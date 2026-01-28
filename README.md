@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *issuing from between the loins [of man] and the pelvic arch [of woman].* — **At-Taariq (86:7)**
+> 📖 *On the Day when God will raise them all from the dead, they will swear before Him as they [now] swear before you, thinking that they are on firm ground [in their assumptions]. Oh, verily, it is they, they who are the [greatest] liars!* — **Al-Mujaadila (58:18)**
 <!-- quran-verse-end -->
 
 ---
