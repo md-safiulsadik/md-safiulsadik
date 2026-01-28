@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They will reply: "Yea, a warner did indeed come unto us, but we gave him the lie and said, 'Never has God sent down anything [by way of revelation]! You [self-styled warners] are but lost in a great delusion!"'* — **Al-Mulk (67:9)**
+> 📖 *those who, having attained to patience in adversity, in their Sustainer place their trust!* — **An-Nahl (16:42)**
 <!-- quran-verse-end -->
 
 ---
