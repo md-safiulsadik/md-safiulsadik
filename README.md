@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O PROPHET! Strive hard against the deniers of the truth and the hypocrites, and be adamant with them. And [if they do not repent,] their goal shall be hell - and how vile a journey’s end!* — **At-Tahrim (66:9)**
+> 📖 *They will reply: "Yea, a warner did indeed come unto us, but we gave him the lie and said, 'Never has God sent down anything [by way of revelation]! You [self-styled warners] are but lost in a great delusion!"'* — **Al-Mulk (67:9)**
 <!-- quran-verse-end -->
 
 ---
