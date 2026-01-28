@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then let him summon [to his aid] the counsels of his own [spurious] wisdom,* — **Al-Alaq (96:17)**
+> 📖 *He it is who has created the heavens and the earth in accordance with [an inner] truth. He causes the night to flow into the day, and causes the day to flow into the night; and He has made the sun and the moon subservient [to His laws], each running its course for a term set [by Him]. Is not He the Almighty, the All-Forgiving?* — **Az-Zumar (39:5)**
 <!-- quran-verse-end -->
 
 ---
