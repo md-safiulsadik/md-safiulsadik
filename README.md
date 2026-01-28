@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAVE WE NOT opened up thy heart,* — **Ash-Sharh (94:1)**
+> 📖 *Behold, it is [only] such as do not [really] believe in the life to come that regard the angels as female beings;* — **An-Najm (53:27)**
 <!-- quran-verse-end -->
 
 ---
