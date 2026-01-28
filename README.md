@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And We send down from the skies water rich in blessings, and cause thereby gardens to grow, and fields of grain,* — **Qaaf (50:9)**
+> 📖 *Thus arrogantly, without the least good sense, did he and his hosts behave on earth - just as if they thought that they would never have to appear before Us [for judgment]!* — **Al-Qasas (28:39)**
 <!-- quran-verse-end -->
 
 ---
