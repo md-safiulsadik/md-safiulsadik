@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, verily, We purified them by means of a thought most pure: the remembrance of the life to come.* — **Saad (38:46)**
+> 📖 *CONSIDER the sun and its radiant brightness,* — **Ash-Shams (91:1)**
 <!-- quran-verse-end -->
 
 ---
