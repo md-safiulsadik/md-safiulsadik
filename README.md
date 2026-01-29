@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas he whose weight is light in the balance* — **Al-Qaari'a (101:8)**
+> 📖 *and [every time] We sent unto them an apostle from among themselves, [he told them:] “Worship God [alone]: you have no deity other than Him. Will you not, then, become conscious of Him?”* — **Al-Muminoon (23:32)**
 <!-- quran-verse-end -->
 
 ---
