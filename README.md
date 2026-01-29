@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and be not like those who are oblivious of God, and whom He therefore causes to be oblivious of [what is good for] their own selves: [for] it is they, they who are truly depraved!* — **Al-Hashr (59:19)**
+> 📖 *which We then let remain in [the womb's] firm keeping* — **Al-Mursalaat (77:21)**
 <!-- quran-verse-end -->
 
 ---
