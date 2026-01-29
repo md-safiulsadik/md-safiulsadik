@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereupon God bestowed from on high His [gift of] inner peace upon His Apostle and upon the believers, and bestowed [upon you] from on high forces which you could not see, and chastised those who were bent on denying the truth: for such is the recompense of all who deny the truth!* — **At-Tawba (9:26)**
+> 📖 *He it is who has sent forth His Apostle with the [task of spreading] guidance and the religion of truth, to the end that He make it prevail over every [false] religion; and none can bear witness [to the truth] as God does.* — **Al-Fath (48:28)**
 <!-- quran-verse-end -->
 
 ---
