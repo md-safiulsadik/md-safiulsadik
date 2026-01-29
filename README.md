@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But he who brings the truth, and he who wholeheartedly accepts it as true - it is they, they, who are [truly] conscious of Him!* — **Az-Zumar (39:33)**
+> 📖 *HAST THOU ever considered [the kind of man] who gives the lie to all moral law?* — **Al-Maa'un (107:1)**
 <!-- quran-verse-end -->
 
 ---
