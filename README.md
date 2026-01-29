@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O Mary! Remain thou truly devout unto thy Sustainer, and prostrate thyself in worship, and bow down with those who bow down [before Him]."* — **Aal-i-Imraan (3:43)**
+> 📖 *But he who brings the truth, and he who wholeheartedly accepts it as true - it is they, they, who are [truly] conscious of Him!* — **Az-Zumar (39:33)**
 <!-- quran-verse-end -->
 
 ---
