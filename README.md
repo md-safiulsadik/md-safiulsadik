@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
+> 📖 *AND THEY WILL ask thee about [what will happen to] the mountains [when this world comes to an end]. Say, then: "My Sustainer will scatter them far and wide,* — **Taa-Haa (20:105)**
 <!-- quran-verse-end -->
 
 ---
