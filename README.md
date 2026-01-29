@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, with God alone rests the knowledge of when the Last Hour will come: and He [it is who] sends down rain; and He [alone] knows what is in the wombs: whereas no one knows what he will reap tomorrow, and no one knows in what land he will die, Verily. God [alone] is all-knowing, all-aware.* — **Luqman (31:34)**
+> 📖 *whereas he whose weight is light in the balance* — **Al-Qaari'a (101:8)**
 <!-- quran-verse-end -->
 
 ---
