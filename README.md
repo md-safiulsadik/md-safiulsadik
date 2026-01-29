@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and be told: "This is the [very thing] to which you were wont to give the lie!"* — **Al-Mutaffifin (83:17)**
+> 📖 *and be not like those who are oblivious of God, and whom He therefore causes to be oblivious of [what is good for] their own selves: [for] it is they, they who are truly depraved!* — **Al-Hashr (59:19)**
 <!-- quran-verse-end -->
 
 ---
