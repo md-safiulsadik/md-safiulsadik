@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which We then let remain in [the womb's] firm keeping* — **Al-Mursalaat (77:21)**
+> 📖 *This is the very thing which you [deniers of the truth] were wont to call in question!”* — **Ad-Dukhaan (44:50)**
 <!-- quran-verse-end -->
 
 ---
