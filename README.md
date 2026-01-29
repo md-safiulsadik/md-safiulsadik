@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *they who [mockingly] ask, “When is that Day of Judgment to be?”* — **Adh-Dhaariyat (51:12)**
+> 📖 *and be told: "This is the [very thing] to which you were wont to give the lie!"* — **Al-Mutaffifin (83:17)**
 <!-- quran-verse-end -->
 
 ---
