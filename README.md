@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He it is who has sent forth His Apostle with the [task of spreading] guidance and the religion of truth, to the end that He make it prevail over every [false] religion; and none can bear witness [to the truth] as God does.* — **Al-Fath (48:28)**
+> 📖 *“Behold, I found there a woman ruling over them; and she has been given [abundance] of all [good] things, and hers is a mighty throne,* — **An-Naml (27:23)**
 <!-- quran-verse-end -->
 
 ---
