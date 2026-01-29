@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *This is the very thing which you [deniers of the truth] were wont to call in question!”* — **Ad-Dukhaan (44:50)**
+> 📖 *whereupon God bestowed from on high His [gift of] inner peace upon His Apostle and upon the believers, and bestowed [upon you] from on high forces which you could not see, and chastised those who were bent on denying the truth: for such is the recompense of all who deny the truth!* — **At-Tawba (9:26)**
 <!-- quran-verse-end -->
 
 ---
