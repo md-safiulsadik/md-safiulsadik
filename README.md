@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND THEY WILL ask thee about [what will happen to] the mountains [when this world comes to an end]. Say, then: "My Sustainer will scatter them far and wide,* — **Taa-Haa (20:105)**
+> 📖 *wherein he will neither die nor remain alive.* — **Al-A'laa (87:13)**
 <!-- quran-verse-end -->
 
 ---
