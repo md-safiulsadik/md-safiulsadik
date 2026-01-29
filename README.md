@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [every time] We sent unto them an apostle from among themselves, [he told them:] “Worship God [alone]: you have no deity other than Him. Will you not, then, become conscious of Him?”* — **Al-Muminoon (23:32)**
+> 📖 *O Mary! Remain thou truly devout unto thy Sustainer, and prostrate thyself in worship, and bow down with those who bow down [before Him]."* — **Aal-i-Imraan (3:43)**
 <!-- quran-verse-end -->
 
 ---
