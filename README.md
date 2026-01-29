@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *wherein he will neither die nor remain alive.* — **Al-A'laa (87:13)**
+> 📖 *for, verily, We purified them by means of a thought most pure: the remembrance of the life to come.* — **Saad (38:46)**
 <!-- quran-verse-end -->
 
 ---
