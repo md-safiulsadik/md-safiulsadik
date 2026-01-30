@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But,] verily, as for those who have attained to faith and do righteous deeds - their Sustainer guides them aright by means of their faith. [In the life to come,] running waters will flow at their feet in gardens of bliss;* — **Yunus (10:9)**
+> 📖 *As for those who attain to faith and do right­eous deeds - gardens of rest await them, as a wel­come [from God], in result of what they did;* — **As-Sajda (32:19)**
 <!-- quran-verse-end -->
 
 ---
