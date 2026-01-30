@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And in your own nature, and in [that of] all the animals which He scatters [over the earth] there are messages for people who are endowed with inner certainty.* — **Al-Jaathiya (45:4)**
+> 📖 *and have We not set on it proud, firm mountains, and given you sweet water to drink?* — **Al-Mursalaat (77:27)**
 <!-- quran-verse-end -->
 
 ---
