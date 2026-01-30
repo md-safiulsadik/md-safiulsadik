@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[O MEN! Pay heed to God’s messages,] for it is He who has endowed you with hearing, and sight, and minds: [yet] how seldom are you grateful!* — **Al-Muminoon (23:78)**
+> 📖 *and most certainly shall We cause you to dwell on earth [long] after they have passed away: this is [My promise] unto all who stand in awe of My presence, and stand in awe of My warning!"* — **Ibrahim (14:14)**
 <!-- quran-verse-end -->
 
 ---
