@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and have We not set on it proud, firm mountains, and given you sweet water to drink?* — **Al-Mursalaat (77:27)**
+> 📖 *HALLOWED be He in whose hand all dominion rests, since He has the power to will anything:* — **Al-Mulk (67:1)**
 <!-- quran-verse-end -->
 
 ---
