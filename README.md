@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thereafter, [however,) his Sustainer elected him [for His grace], and accepted his repentance, and bestowed His guidance upon him,* — **Taa-Haa (20:122)**
+> 📖 *And so, when you met in battle, He made them appear as few in your eyes -just as He made you appear as of little account in their eyes - so that God might accomplish a thing [which He willed] to be done: for all things go back to God [as their source].* — **Al-Anfaal (8:44)**
 <!-- quran-verse-end -->
 
 ---
