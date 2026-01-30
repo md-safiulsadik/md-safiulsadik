@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Why dost thou not bring before us angels, if thou art a man of truth?* — **Al-Hijr (15:7)**
+> 📖 *We have caused a curse to follow them in this world as well; and on Resurrection Day they will find themselves among those who are bereft of all good.* — **Al-Qasas (28:42)**
 <!-- quran-verse-end -->
 
 ---
