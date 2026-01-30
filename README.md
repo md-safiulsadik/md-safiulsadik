@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *We have caused a curse to follow them in this world as well; and on Resurrection Day they will find themselves among those who are bereft of all good.* — **Al-Qasas (28:42)**
+> 📖 *[And so, tell those who are bent on denying the truth that] they who shall be gathered unto hell upon their faces – it is they who [in the life to come] will be worst in station and still farther astray from the path [of truth]!* — **Al-Furqaan (25:34)**
 <!-- quran-verse-end -->
 
 ---
