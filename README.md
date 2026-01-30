@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
+> 📖 *for, behold, those who are lost in sin [will at that time come to know that it is they who] were sunk in error and folly!* — **Al-Qamar (54:47)**
 <!-- quran-verse-end -->
 
 ---
