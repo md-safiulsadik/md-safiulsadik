@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and grain growing tall on its stalks, and sweet-smelling plants.* — **Ar-Rahmaan (55:12)**
+> 📖 *[But,] verily, as for those who have attained to faith and do righteous deeds - their Sustainer guides them aright by means of their faith. [In the life to come,] running waters will flow at their feet in gardens of bliss;* — **Yunus (10:9)**
 <!-- quran-verse-end -->
 
 ---
