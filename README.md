@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and of whoever [else] lives on earth, all of them - so that he could but save himself.* — **Al-Ma'aarij (70:14)**
+> 📖 *Thereafter, [however,) his Sustainer elected him [for His grace], and accepted his repentance, and bestowed His guidance upon him,* — **Taa-Haa (20:122)**
 <!-- quran-verse-end -->
 
 ---
