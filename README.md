@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, those who are lost in sin [will at that time come to know that it is they who] were sunk in error and folly!* — **Al-Qamar (54:47)**
+> 📖 *Does he claim that all the deities are [but] one God? Verily, a most strange thing is this!”* — **Saad (38:5)**
 <!-- quran-verse-end -->
 
 ---
