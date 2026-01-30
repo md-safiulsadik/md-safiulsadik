@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Does he claim that all the deities are [but] one God? Verily, a most strange thing is this!”* — **Saad (38:5)**
+> 📖 *and of whoever [else] lives on earth, all of them - so that he could but save himself.* — **Al-Ma'aarij (70:14)**
 <!-- quran-verse-end -->
 
 ---
