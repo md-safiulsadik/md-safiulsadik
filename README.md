@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
+> 📖 *And in your own nature, and in [that of] all the animals which He scatters [over the earth] there are messages for people who are endowed with inner certainty.* — **Al-Jaathiya (45:4)**
 <!-- quran-verse-end -->
 
 ---
