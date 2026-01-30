@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HALLOWED be He in whose hand all dominion rests, since He has the power to will anything:* — **Al-Mulk (67:1)**
+> 📖 *Why dost thou not bring before us angels, if thou art a man of truth?* — **Al-Hijr (15:7)**
 <!-- quran-verse-end -->
 
 ---
