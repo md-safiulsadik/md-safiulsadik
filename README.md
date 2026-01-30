@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *although each sign that We showed them was weigh­tier than the preceding one: and [each time] We took them to task through suffering, so that they might return [to Us].* — **Az-Zukhruf (43:48)**
+> 📖 *AND [thus it is:] he whom God lets go astray has henceforth no protector whatever: and so thou wilt see such evildoers [on Judgment Day, and wilt hear how] they exclaim as soon as they behold the suffering [that awaits them], “Is there any way of return?”* — **Ash-Shura (42:44)**
 <!-- quran-verse-end -->
 
 ---
