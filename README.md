@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [thus it is:] he whom God lets go astray has henceforth no protector whatever: and so thou wilt see such evildoers [on Judgment Day, and wilt hear how] they exclaim as soon as they behold the suffering [that awaits them], “Is there any way of return?”* — **Ash-Shura (42:44)**
+> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
 <!-- quran-verse-end -->
 
 ---
