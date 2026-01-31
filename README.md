@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Upon those [blest] will be garments of green silk and brocade; and they will be adorned with bracelets of silver. And their Sustainer will them to drink of a drink most pure.* — **Al-Insaan (76:21)**
+> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
 <!-- quran-verse-end -->
 
 ---
