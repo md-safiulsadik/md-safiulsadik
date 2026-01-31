@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *As for those who attain to faith and do right­eous deeds - gardens of rest await them, as a wel­come [from God], in result of what they did;* — **As-Sajda (32:19)**
+> 📖 *Thy Sustainer has not forsaken thee, nor does He scorn thee:* — **Ad-Dhuhaa (93:3)**
 <!-- quran-verse-end -->
 
 ---
