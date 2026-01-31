@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but when they have to measure or weigh whatever they owe to others, give less than what is due!* — **Al-Mutaffifin (83:3)**
+> 📖 *Upon those [blest] will be garments of green silk and brocade; and they will be adorned with bracelets of silver. And their Sustainer will them to drink of a drink most pure.* — **Al-Insaan (76:21)**
 <!-- quran-verse-end -->
 
 ---
