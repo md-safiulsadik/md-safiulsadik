@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He who has created the heavens and the earth and all that is between them in six aeons, and is established on the throne of His almightiness: the Most Gracious! Ask, then, about Him, [the] One who is [truly] aware.* — **Al-Furqaan (25:59)**
+> 📖 *and that nought shall be accounted unto man but what he is striving for;* — **An-Najm (53:39)**
 <!-- quran-verse-end -->
 
 ---
