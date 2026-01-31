@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and caused them to become like a field of grain that has been eaten down to stubble* — **Al-Fil (105:5)**
+> 📖 *But they turned away [from Us], and so We let loose upon them a flood that overwhelmed the dams, and changed their two [expanses of luxuriant] gardens into a couple of gardens yielding bitter fruit, and tamarisks, and some few [wild] lote-trees:* — **Saba (34:16)**
 <!-- quran-verse-end -->
 
 ---
