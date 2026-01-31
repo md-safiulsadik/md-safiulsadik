@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the mountains will be like tufts of wool,* — **Al-Ma'aarij (70:9)**
+> 📖 *He who has created the heavens and the earth and all that is between them in six aeons, and is established on the throne of His almightiness: the Most Gracious! Ask, then, about Him, [the] One who is [truly] aware.* — **Al-Furqaan (25:59)**
 <!-- quran-verse-end -->
 
 ---
