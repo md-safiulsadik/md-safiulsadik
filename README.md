@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *if thou find them at war [with you], make of them a fearsome example for those who follow them, so that they might take it to heart;* — **Al-Anfaal (8:57)**
+> 📖 *HAST THOU ever considered him who tries to prevent* — **Al-Alaq (96:9)**
 <!-- quran-verse-end -->
 
 ---
