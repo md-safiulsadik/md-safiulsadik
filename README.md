@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAST THOU ever considered him who tries to prevent* — **Al-Alaq (96:9)**
+> 📖 *Is it because he is possessed of worldly goods and children* — **Al-Qalam (68:14)**
 <!-- quran-verse-end -->
 
 ---
