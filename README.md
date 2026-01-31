@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Is it because he is possessed of worldly goods and children* — **Al-Qalam (68:14)**
+> 📖 *and the mountains will be like tufts of wool,* — **Al-Ma'aarij (70:9)**
 <!-- quran-verse-end -->
 
 ---
