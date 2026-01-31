@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who has given them food against hunger, and made them safe from danger.* — **Quraish (106:4)**
+> 📖 *but when they have to measure or weigh whatever they owe to others, give less than what is due!* — **Al-Mutaffifin (83:3)**
 <!-- quran-verse-end -->
 
 ---
