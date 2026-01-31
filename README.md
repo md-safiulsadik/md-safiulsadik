@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But they turned away [from Us], and so We let loose upon them a flood that overwhelmed the dams, and changed their two [expanses of luxuriant] gardens into a couple of gardens yielding bitter fruit, and tamarisks, and some few [wild] lote-trees:* — **Saba (34:16)**
+> 📖 *who has given them food against hunger, and made them safe from danger.* — **Quraish (106:4)**
 <!-- quran-verse-end -->
 
 ---
