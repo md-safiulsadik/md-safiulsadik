@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and is not – however little you may [be prepared to] believe it - the word of a poet;* — **Al-Haaqqa (69:41)**
+> 📖 *And [the word] will be spoken: “Today We shall be oblivious of you as you were oblivious of the coming of this your Day [of Judgment]; and so your goal is the fire, and you shall have none to succour you:* — **Al-Jaathiya (45:34)**
 <!-- quran-verse-end -->
 
 ---
