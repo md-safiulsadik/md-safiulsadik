@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
+> 📖 *And [as for those who now deny the truth,] one Day He will gather them all together, and will ask the angels, “Was it you that they were wont to worship?”* — **Saba (34:40)**
 <!-- quran-verse-end -->
 
 ---
