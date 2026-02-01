@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *yea, enter thou My paradise!"* — **Al-Fajr (89:30)**
+> 📖 *Thereafter, [however,) his Sustainer elected him [for His grace], and accepted his repentance, and bestowed His guidance upon him,* — **Taa-Haa (20:122)**
 <!-- quran-verse-end -->
 
 ---
