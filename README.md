@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *PERMISSION [to fight] is given to those against whom war is being wrongfully waged and, verily, God has indeed the power to succour them -:* — **Al-Hajj (22:39)**
+> 📖 *A fire kindled by God,* — **Al-Humaza (104:6)**
 <!-- quran-verse-end -->
 
 ---
