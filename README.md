@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
+> 📖 *and when the scrolls [of men's deeds] are unfolded,* — **At-Takwir (81:10)**
 <!-- quran-verse-end -->
 
 ---
