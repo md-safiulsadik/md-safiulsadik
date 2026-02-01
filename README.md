@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *or, if thou hast reason to fear treachery from people [with whom thou hast made a covenant], cast it back at them in an equitable manner: for, verily, God does not love the treacherous!* — **Al-Anfaal (8:58)**
+> 📖 *THE PARABLE of those who were graced with the burden of the Torah, and thereafter failed to bear this burden, is that of an ass that carries a load of books [but cannot benefit from them]. Calamitous is the parable of people who are bent on giving the lie to God's messages - for God does not bestow His guidance upon such evildoing folk!* — **Al-Jumu'a (62:5)**
 <!-- quran-verse-end -->
 
 ---
