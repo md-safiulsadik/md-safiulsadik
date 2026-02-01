@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] he prayed: “O my Sustainer! Succour Thou me against these people who spread corrup­tion!”* — **Al-Ankaboot (29:30)**
+> 📖 *Say thou, [O Prophet:] “I am but a mortal like you. It has been revealed to me that your God is the One God: go, then, straight towards Him and seek His forgiveness!” And woe unto those who ascribe divinity to aught beside Him,* — **Fussilat (41:6)**
 <!-- quran-verse-end -->
 
 ---
