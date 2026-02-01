@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thy Sustainer has not forsaken thee, nor does He scorn thee:* — **Ad-Dhuhaa (93:3)**
+> 📖 *[And] he prayed: “O my Sustainer! Succour Thou me against these people who spread corrup­tion!”* — **Al-Ankaboot (29:30)**
 <!-- quran-verse-end -->
 
 ---
