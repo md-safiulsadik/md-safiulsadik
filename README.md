@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet [above all else,] ask any of Our apostles whom We sent forth before thy time whether We have ever allowed that deities other than the Most Gracious be worshipped!* — **Az-Zukhruf (43:45)**
+> 📖 *And should they but seek to play false with thee -well, they were false to God [Himself] ere this: but He gave [the believers] mastery over them. And God is all-knowing, wise.* — **Al-Anfaal (8:71)**
 <!-- quran-verse-end -->
 
 ---
