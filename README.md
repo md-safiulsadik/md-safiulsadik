@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and from the evil of all human beings bent on occult endeavours,* — **Al-Falaq (113:4)**
+> 📖 *But excepted shall be the truly helpless - be they men or women or children - who cannot bring forth any strength and have not been shown the right way:* — **An-Nisaa (4:98)**
 <!-- quran-verse-end -->
 
 ---
