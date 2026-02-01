@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thereafter, [however,) his Sustainer elected him [for His grace], and accepted his repentance, and bestowed His guidance upon him,* — **Taa-Haa (20:122)**
+> 📖 *"and from the evil of all human beings bent on occult endeavours,* — **Al-Falaq (113:4)**
 <!-- quran-verse-end -->
 
 ---
