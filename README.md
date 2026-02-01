@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the scrolls [of men's deeds] are unfolded,* — **At-Takwir (81:10)**
+> 📖 *O YOU who have attained to faith! Do not put yourselves forward in the presence of [what] God and His Apostle [may have ordained], but remain conscious of God: for, verily, God is all-hearing, all-knowing!* — **Al-Hujuraat (49:1)**
 <!-- quran-verse-end -->
 
 ---
