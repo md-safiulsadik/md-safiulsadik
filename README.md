@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And should they but seek to play false with thee -well, they were false to God [Himself] ere this: but He gave [the believers] mastery over them. And God is all-knowing, wise.* — **Al-Anfaal (8:71)**
+> 📖 *yea, enter thou My paradise!"* — **Al-Fajr (89:30)**
 <!-- quran-verse-end -->
 
 ---
