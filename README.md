@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND KNOW that whatever booty you acquire [in war], one-fifth thereof belongs to God and the Apostle, and the near of kin, and the orphans, and the needy, and the wayfarer. [This you must observe] if you believe in God and in what We bestowed from on high upon Our servant on the day when the true was distinguished from the false - the day when the two hosts met in battle. And God has the power to will anything.* — **Al-Anfaal (8:41)**
+> 📖 *or, if thou hast reason to fear treachery from people [with whom thou hast made a covenant], cast it back at them in an equitable manner: for, verily, God does not love the treacherous!* — **Al-Anfaal (8:58)**
 <!-- quran-verse-end -->
 
 ---
