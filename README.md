@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say thou, [O Prophet:] “I am but a mortal like you. It has been revealed to me that your God is the One God: go, then, straight towards Him and seek His forgiveness!” And woe unto those who ascribe divinity to aught beside Him,* — **Fussilat (41:6)**
+> 📖 *and on that Day you will most surely be called to account for [what you did with] the boon of life!* — **At-Takaathur (102:8)**
 <!-- quran-verse-end -->
 
 ---
