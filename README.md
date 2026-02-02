@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WE SHALL teach thee, and thou wilt not forget [aught of what thou art taught],* — **Al-A'laa (87:6)**
+> 📖 *Hence, it has been unfailingly true of any community whom We have ever destroyed that they [were people who] would never turn back [from their sinful ways]* — **Al-Anbiyaa (21:95)**
 <!-- quran-verse-end -->
 
 ---
