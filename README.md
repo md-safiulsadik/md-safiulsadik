@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, as for those who persecute believing men and believing women, and thereafter do not repent, hell's suffering awaits them: yea, suffering through fire awaits them!* — **Al-Burooj (85:10)**
+> 📖 *Nay, verily, man becomes grossly overweening* — **Al-Alaq (96:6)**
 <!-- quran-verse-end -->
 
 ---
