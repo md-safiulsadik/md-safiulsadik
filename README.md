@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Lord of the Day of Judgment!* — **Al-Faatiha (1:4)**
+> 📖 *Yea, turn thy vision [upon it] again and yet again: [and every time] thy vision will fall back upon thee, dazzled and truly defeated….* — **Al-Mulk (67:4)**
 <!-- quran-verse-end -->
 
 ---
