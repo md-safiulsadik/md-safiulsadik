@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, verily, man becomes grossly overweening* — **Al-Alaq (96:6)**
+> 📖 *And say: "The truth has now come [to light], and falsehood has withered away: for, behold, all falsehood is bound to wither away!"* — **Al-Israa (17:81)**
 <!-- quran-verse-end -->
 
 ---
