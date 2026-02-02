@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yea, turn thy vision [upon it] again and yet again: [and every time] thy vision will fall back upon thee, dazzled and truly defeated….* — **Al-Mulk (67:4)**
+> 📖 *Unto Him belongs all that is in the heavens and all that is on earth; and, verily, God - He alone - is self-sufficient, the One to whom all praise is due.* — **Al-Hajj (22:64)**
 <!-- quran-verse-end -->
 
 ---
