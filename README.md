@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, it has been unfailingly true of any community whom We have ever destroyed that they [were people who] would never turn back [from their sinful ways]* — **Al-Anbiyaa (21:95)**
+> 📖 *Lord of the Day of Judgment!* — **Al-Faatiha (1:4)**
 <!-- quran-verse-end -->
 
 ---
