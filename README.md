@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And say: "The truth has now come [to light], and falsehood has withered away: for, behold, all falsehood is bound to wither away!"* — **Al-Israa (17:81)**
+> 📖 *And whenever. a [divine] message comes to them, they say, "We shall not believe unless we are given the like of what God's apostles were given!" [But] God knows best upon whom to bestow His message. Abasement in the sight of God will befall those who have become guilty of evildoing, and suffering severe for all the schemes which they were wont to weave.* — **Al-An'aam (6:124)**
 <!-- quran-verse-end -->
 
 ---
