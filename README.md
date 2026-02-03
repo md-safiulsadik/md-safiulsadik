@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and We have made your sleep [a symbol of] death* — **An-Naba (78:9)**
+> 📖 *Lo! You were praying unto your Sustainer for aid, whereupon He thus responded to you: "I shall, verily, aid you with a thousand angels following one upon' another!"* — **Al-Anfaal (8:9)**
 <!-- quran-verse-end -->
 
 ---
