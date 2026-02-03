@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the mountains will move with [an awesome] movement.* — **At-Tur (52:10)**
+> 📖 *and We have made your sleep [a symbol of] death* — **An-Naba (78:9)**
 <!-- quran-verse-end -->
 
 ---
