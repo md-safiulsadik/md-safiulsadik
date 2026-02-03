@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But,] behold, as for those who say, “Our Sustainer is God,” and then steadfastly pursue the right way - upon them do angels often descend, [say­ing:] “Fear not and grieve not, but receive the glad tiding of that paradise which has been promised to you!* — **Fussilat (41:30)**
+> 📖 *He it is who has sent forth His Apostle with [the task of] spreading guidance and the religion of truth, to the end that He make it prevail over all [false] religion, however hateful this may be to those who ascribe divinity to aught but God.* — **As-Saff (61:9)**
 <!-- quran-verse-end -->
 
 ---
