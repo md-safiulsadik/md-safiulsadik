@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And whenever. a [divine] message comes to them, they say, "We shall not believe unless we are given the like of what God's apostles were given!" [But] God knows best upon whom to bestow His message. Abasement in the sight of God will befall those who have become guilty of evildoing, and suffering severe for all the schemes which they were wont to weave.* — **Al-An'aam (6:124)**
+> 📖 *[But,] behold, as for those who say, “Our Sustainer is God,” and then steadfastly pursue the right way - upon them do angels often descend, [say­ing:] “Fear not and grieve not, but receive the glad tiding of that paradise which has been promised to you!* — **Fussilat (41:30)**
 <!-- quran-verse-end -->
 
 ---
