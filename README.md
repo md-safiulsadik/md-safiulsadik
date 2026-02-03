@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Lo! You were praying unto your Sustainer for aid, whereupon He thus responded to you: "I shall, verily, aid you with a thousand angels following one upon' another!"* — **Al-Anfaal (8:9)**
+> 📖 *ART THOU NOT aware of those who have preferred a denial of the truth to God's blessings, and [thereby] invited their people to alight in that abode of utter desolation* — **Ibrahim (14:28)**
 <!-- quran-verse-end -->
 
 ---
