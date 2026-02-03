@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware of those who have preferred a denial of the truth to God's blessings, and [thereby] invited their people to alight in that abode of utter desolation* — **Ibrahim (14:28)**
+> 📖 *whereupon God bestowed from on high His [gift of] inner peace upon His Apostle and upon the believers, and bestowed [upon you] from on high forces which you could not see, and chastised those who were bent on denying the truth: for such is the recompense of all who deny the truth!* — **At-Tawba (9:26)**
 <!-- quran-verse-end -->
 
 ---
