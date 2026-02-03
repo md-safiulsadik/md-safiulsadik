@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and therefore thy Sustainer let loose upon them a scourge of suffering:* — **Al-Fajr (89:13)**
+> 📖 *OH, THE REGRETS that [most] human beings will have to bear! Never has an apostle come to them without their deriding him!* — **Yaseen (36:30)**
 <!-- quran-verse-end -->
 
 ---
