@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Fight thou, then, in God's cause - since thou art but responsible for thine own self - and inspire the believers to overcome all fear of death. God may well curb the might of those who are bent on denying the truth: for God is stronger in might, and stronger in ability to deter.* — **An-Nisaa (4:84)**
+> 📖 *Hence, place thy trust in God [alone] - for, behold, that in which thou believest is truth self-evident.* — **An-Naml (27:79)**
 <!-- quran-verse-end -->
 
 ---
