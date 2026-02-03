@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Lo! God showed them to thee in a dream as few: for, had He shown them to you as many, you would surely have lost heart, and would surely have disagreed with one another about what to do. But God saved [you from this]: verily, He has full knowledge of what is the hearts [of men].* — **Al-Anfaal (8:43)**
+> 📖 *and therefore thy Sustainer let loose upon them a scourge of suffering:* — **Al-Fajr (89:13)**
 <!-- quran-verse-end -->
 
 ---
