@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *as thy Sustainer will have inspired her to do!* — **Az-Zalzala (99:5)**
+> 📖 *"Thou makest the night grow longer by shortening the day, and Thou makest the day grow longer by shortening the night. And Thou bringest forth the living out of that which is dead, and Thou bringest forth the dead out of that which is alive. And Thou grantest sustenance unto whom `Thou willest, beyond all reckoning."* — **Aal-i-Imraan (3:27)**
 <!-- quran-verse-end -->
 
 ---
