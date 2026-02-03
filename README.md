@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *those who want only to be seen and praised,* — **Al-Maa'un (107:6)**
+> 📖 *Fight thou, then, in God's cause - since thou art but responsible for thine own self - and inspire the believers to overcome all fear of death. God may well curb the might of those who are bent on denying the truth: for God is stronger in might, and stronger in ability to deter.* — **An-Nisaa (4:84)**
 <!-- quran-verse-end -->
 
 ---
