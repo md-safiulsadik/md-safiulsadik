@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *OH, THE REGRETS that [most] human beings will have to bear! Never has an apostle come to them without their deriding him!* — **Yaseen (36:30)**
+> 📖 *about to enter a glowing fire,* — **Al-Ghaashiya (88:4)**
 <!-- quran-verse-end -->
 
 ---
