@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said he: "No reproach shall be uttered today against you. May God forgive you your sins: for He is the most merciful of the merciful!* — **Yusuf (12:92)**
+> 📖 *and the mountains will move with [an awesome] movement.* — **At-Tur (52:10)**
 <!-- quran-verse-end -->
 
 ---
