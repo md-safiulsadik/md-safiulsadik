@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But nay! It is [the very coming of] the Last Hour to which they give the lie! However, for such as give the lie to [the announce­ment of] the Last Hour We have readied a blazing flame:* — **Al-Furqaan (25:11)**
+> 📖 *O YOU who have attained to faith! Do not take My enemies - who are your enemies as well - for your friends, showing them affection even though they are bent on denying whatever truth has come unto you, [and even though] they have driven the Apostle and yourselves away, [only] because you believe in God, your Sustainer! If [it be true that] you have gone forth [from your homes] to strive in My cause, and out of a longing for My goodly acceptance, [do not take them for your friends,] inclining towards them in secret affection: for I am fully aware of all that you may conceal as well as of all that you do openly. And any of you who does this has already strayed from the right path.* — **Al-Mumtahana (60:1)**
 <!-- quran-verse-end -->
 
 ---
