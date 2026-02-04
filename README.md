@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said [Noah]: "O my people! What do you think? If [it be true that I am taking my stand on a clear evidence from my~ Sustainer, who has vouchsafed unto me grace from Himself - [a revelation] to which you have remained blind-: [if this be true,] can we force it on you even though it be hateful to you?* — **Hud (11:28)**
+> 📖 *and [so,] whenever they commit a shameful deed, they are wont to say, "We found our forefathers doing it," and, "God has enjoined it upon us." Say: "Behold, never does God enjoin deeds of abomination. Would you attribute unto God something of which you have no knowledge?"* — **Al-A'raaf (7:28)**
 <!-- quran-verse-end -->
 
 ---
