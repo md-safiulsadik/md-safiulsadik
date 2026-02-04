@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"And behold I called unto them openly;* — **Nooh (71:8)**
+> 📖 *But nay! It is [the very coming of] the Last Hour to which they give the lie! However, for such as give the lie to [the announce­ment of] the Last Hour We have readied a blazing flame:* — **Al-Furqaan (25:11)**
 <!-- quran-verse-end -->
 
 ---
