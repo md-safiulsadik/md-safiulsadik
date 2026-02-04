@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Have they, perchance, handed down this [way of thinking] as a legacy unto one another? Nay, they are people filled with overweening ar­rogance!* — **Adh-Dhaariyat (51:53)**
+> 📖 *when he said unto his father and his people, “What are these images to which you are so intensely devoted?”* — **Al-Anbiyaa (21:52)**
 <!-- quran-verse-end -->
 
 ---
