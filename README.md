@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Answered he: “Yea - and, verily, in that case you shall be among those who are near unto me.* — **Ash-Shu'araa (26:42)**
+> 📖 *VERILY, God will admit those who have attained to faith and have done righteous deeds into gardens through which running waters flow: for, behold, God does whatever He wills.* — **Al-Hajj (22:14)**
 <!-- quran-verse-end -->
 
 ---
