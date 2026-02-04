@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Woe unto every sinful self-deceiver* — **Al-Jaathiya (45:7)**
+> 📖 *"And behold I called unto them openly;* — **Nooh (71:8)**
 <!-- quran-verse-end -->
 
 ---
