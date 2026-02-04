@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *when he said unto his father and his people, “What are these images to which you are so intensely devoted?”* — **Al-Anbiyaa (21:52)**
+> 📖 *Said [Abraham]: “And what [else] may you have in view, O you [heavenly] messengers?”* — **Adh-Dhaariyat (51:31)**
 <!-- quran-verse-end -->
 
 ---
