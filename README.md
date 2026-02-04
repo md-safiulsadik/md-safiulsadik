@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THEY WILL ASK thee to enlighten them. Say: "God enlightens you [thus] about the laws concerning [inheritance from] those who leave no heir in the direct line: If a man dies childless and has a sister, she shall inherit one-half of what he has left, just as he shall inherit from her if she dies childless. But if there are two sisters, both [together] shall have two-thirds of what he has left; and if there are brothers and sisters, then the male shall have the equal of two females' share." God makes [all this] clear unto you, lest you go astray; and God knows everything.* — **An-Nisaa (4:176)**
+> 📖 *AND, INDEED, We have created man out of sounding clay, out of dark-slime transmuted* — **Al-Hijr (15:26)**
 <!-- quran-verse-end -->
 
 ---
