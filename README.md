@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereupon God bestowed from on high His [gift of] inner peace upon His Apostle and upon the believers, and bestowed [upon you] from on high forces which you could not see, and chastised those who were bent on denying the truth: for such is the recompense of all who deny the truth!* — **At-Tawba (9:26)**
+> 📖 *"and from the evil of the envious when he envies."* — **Al-Falaq (113:5)**
 <!-- quran-verse-end -->
 
 ---
