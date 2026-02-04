@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said [Abraham]: “And what [else] may you have in view, O you [heavenly] messengers?”* — **Adh-Dhaariyat (51:31)**
+> 📖 *Said [Noah]: "O my people! What do you think? If [it be true that I am taking my stand on a clear evidence from my~ Sustainer, who has vouchsafed unto me grace from Himself - [a revelation] to which you have remained blind-: [if this be true,] can we force it on you even though it be hateful to you?* — **Hud (11:28)**
 <!-- quran-verse-end -->
 
 ---
