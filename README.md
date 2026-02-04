@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and lifted from thee the burden* — **Ash-Sharh (94:2)**
+> 📖 *Answered he: “Yea - and, verily, in that case you shall be among those who are near unto me.* — **Ash-Shu'araa (26:42)**
 <!-- quran-verse-end -->
 
 ---
