@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and from the evil of the envious when he envies."* — **Al-Falaq (113:5)**
+> 📖 *Woe unto every sinful self-deceiver* — **Al-Jaathiya (45:7)**
 <!-- quran-verse-end -->
 
 ---
