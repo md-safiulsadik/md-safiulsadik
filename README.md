@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *until you go down to your graves.* — **At-Takaathur (102:2)**
+> 📖 *running in con­fusion towards the Summoning Voice; [and] those who [now] deny the truth will exclaim, “Calamitous is this Day!”* — **Al-Qamar (54:8)**
 <!-- quran-verse-end -->
 
 ---
