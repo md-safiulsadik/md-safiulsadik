@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Behold, some of your spouses and your children are enemies unto you: so beware of them! But if you pardon [their faults] and forbear, and forgive-then, behold, God will be much-forgiving, a dispenser of grace.* — **At-Taghaabun (64:14)**
+> 📖 *and therefore thy Sustainer let loose upon them a scourge of suffering:* — **Al-Fajr (89:13)**
 <!-- quran-verse-end -->
 
 ---
