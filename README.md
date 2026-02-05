@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [how], out of Our grace, We granted unto him his brother Aaron, to be a prophet [by his side].* — **Maryam (19:53)**
+> 📖 *And all praise is due to God alone, the Sus­tainer of all the worlds!* — **As-Saaffaat (37:182)**
 <!-- quran-verse-end -->
 
 ---
