@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on the Day when the trumpet is blown: for on that Day We will assemble all such as had been lost in sin, their eyes dimmed [by terror],* — **Taa-Haa (20:102)**
+> 📖 *in [the light of His] revelations blest with dignity,* — **Abasa (80:13)**
 <!-- quran-verse-end -->
 
 ---
