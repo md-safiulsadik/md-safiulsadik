@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and therefore thy Sustainer let loose upon them a scourge of suffering:* — **Al-Fajr (89:13)**
+> 📖 *until you go down to your graves.* — **At-Takaathur (102:2)**
 <!-- quran-verse-end -->
 
 ---
