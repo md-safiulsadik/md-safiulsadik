@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so as to test them by this means: for he who shall turn away from the remembrance of his Sustainer, him will He cause to undergo suffering most grievous.* — **Al-Jinn (72:17)**
+> 📖 *Verily, he that hates thee has indeed been cut off [from all that is good]!* — **Al-Kawthar (108:3)**
 <!-- quran-verse-end -->
 
 ---
