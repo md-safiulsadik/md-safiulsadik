@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, [all] this has indeed been [said] in the earlier revelations –* — **Al-A'laa (87:18)**
+> 📖 *on the Day when the trumpet is blown: for on that Day We will assemble all such as had been lost in sin, their eyes dimmed [by terror],* — **Taa-Haa (20:102)**
 <!-- quran-verse-end -->
 
 ---
