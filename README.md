@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *until you go down to your graves.* — **At-Takaathur (102:2)**
+> 📖 *and [how], out of Our grace, We granted unto him his brother Aaron, to be a prophet [by his side].* — **Maryam (19:53)**
 <!-- quran-verse-end -->
 
 ---
