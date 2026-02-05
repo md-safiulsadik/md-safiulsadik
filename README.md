@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and never yet came an apostle to them without their deriding him.* — **Al-Hijr (15:11)**
+> 📖 *Verily, [all] this has indeed been [said] in the earlier revelations –* — **Al-A'laa (87:18)**
 <!-- quran-verse-end -->
 
 ---
