@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[MANY] WAYS of life have passed away before your time. Go, then, about the earth and behold what happened in the end to those who gave the lie to the truth:* — **Aal-i-Imraan (3:137)**
+> 📖 *and never yet came an apostle to them without their deriding him.* — **Al-Hijr (15:11)**
 <!-- quran-verse-end -->
 
 ---
