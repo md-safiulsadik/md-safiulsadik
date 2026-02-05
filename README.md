@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And all praise is due to God alone, the Sus­tainer of all the worlds!* — **As-Saaffaat (37:182)**
+> 📖 *so as to test them by this means: for he who shall turn away from the remembrance of his Sustainer, him will He cause to undergo suffering most grievous.* — **Al-Jinn (72:17)**
 <!-- quran-verse-end -->
 
 ---
