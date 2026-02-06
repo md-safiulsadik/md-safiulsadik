@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, behold, well do We know that among you are such as will give the lie to it:* — **Al-Haaqqa (69:49)**
+> 📖 *and whenever they return to people of their own kind, they return full of jests;* — **Al-Mutaffifin (83:31)**
 <!-- quran-verse-end -->
 
 ---
