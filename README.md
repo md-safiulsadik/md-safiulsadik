@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thou seest people enter God's religion in hosts,* — **An-Nasr (110:2)**
+> 📖 *Said [Pharaoh]: "And what of all the past generations?"* — **Taa-Haa (20:51)**
 <!-- quran-verse-end -->
 
 ---
