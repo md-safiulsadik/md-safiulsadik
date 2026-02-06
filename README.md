@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what that [abyss] will be?* — **Al-Qaari'a (101:10)**
+> 📖 *IT DOES NOT behove a prophet to keep captives unless he has battled strenuously on earth. You may desire the fleeting gains of this world-but God desires [for you the good of] the life to come: and God is almighty, wise.* — **Al-Anfaal (8:67)**
 <!-- quran-verse-end -->
 
 ---
