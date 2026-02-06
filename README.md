@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And He it is who grants life and deals death; and to Him is due the alternation of night and day. Will you not, then, use your reason?* — **Al-Muminoon (23:80)**
+> 📖 *O YOU who have attained to faith! If any iniquitous person comes to you with a [slanderous] tale, use your discernment, lest you hurt people unwittingly and afterwards be filled with remorse for what you have done.* — **Al-Hujuraat (49:6)**
 <!-- quran-verse-end -->
 
 ---
