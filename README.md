@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But Moses] went on: “[He of whom I speak is] the Sustainer of the east and the west and of all that is between the two”- as you would know] if you would but use your reason!”* — **Ash-Shu'araa (26:28)**
+> 📖 *and thou seest people enter God's religion in hosts,* — **An-Nasr (110:2)**
 <!-- quran-verse-end -->
 
 ---
