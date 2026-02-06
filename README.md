@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is the star that pierces through [life's] darkness:* — **At-Taariq (86:3)**
+> 📖 *Lord of the Day of Judgment!* — **Al-Faatiha (1:4)**
 <!-- quran-verse-end -->
 
 ---
