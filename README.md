@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, the Last Hour is sure to come: of this there is no doubt; yet most men will not believe it.* — **Ghafir (40:59)**
+> 📖 *[But Moses] went on: “[He of whom I speak is] the Sustainer of the east and the west and of all that is between the two”- as you would know] if you would but use your reason!”* — **Ash-Shu'araa (26:28)**
 <!-- quran-verse-end -->
 
 ---
