@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and whenever they return to people of their own kind, they return full of jests;* — **Al-Mutaffifin (83:31)**
+> 📖 *It is the star that pierces through [life's] darkness:* — **At-Taariq (86:3)**
 <!-- quran-verse-end -->
 
 ---
