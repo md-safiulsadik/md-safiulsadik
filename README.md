@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, indeed, the life to come will be better for thee than this earlier part [of thy life]!* — **Ad-Dhuhaa (93:4)**
+> 📖 *And when the prayer is ended, disperse freely on earth and seek to obtain [something] of God's bounty; but remember God often, so that you might attain to a happy state!* — **Al-Jumu'a (62:10)**
 <!-- quran-verse-end -->
 
 ---
