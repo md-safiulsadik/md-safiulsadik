@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *IT DOES NOT behove a prophet to keep captives unless he has battled strenuously on earth. You may desire the fleeting gains of this world-but God desires [for you the good of] the life to come: and God is almighty, wise.* — **Al-Anfaal (8:67)**
+> 📖 *for, indeed, the life to come will be better for thee than this earlier part [of thy life]!* — **Ad-Dhuhaa (93:4)**
 <!-- quran-verse-end -->
 
 ---
