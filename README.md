@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, he that hates thee has indeed been cut off [from all that is good]!* — **Al-Kawthar (108:3)**
+> 📖 *and he is not one to begrudge others the knowledge [of whatever has been revealed to him] out of that which is beyond the reach of human Perception.* — **At-Takwir (81:24)**
 <!-- quran-verse-end -->
 
 ---
