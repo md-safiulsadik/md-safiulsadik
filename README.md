@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and he is not one to begrudge others the knowledge [of whatever has been revealed to him] out of that which is beyond the reach of human Perception.* — **At-Takwir (81:24)**
+> 📖 *And, behold, well do We know that among you are such as will give the lie to it:* — **Al-Haaqqa (69:49)**
 <!-- quran-verse-end -->
 
 ---
