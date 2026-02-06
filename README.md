@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the graves are overturned –* — **Al-Infitaar (82:4)**
+> 📖 *And He it is who grants life and deals death; and to Him is due the alternation of night and day. Will you not, then, use your reason?* — **Al-Muminoon (23:80)**
 <!-- quran-verse-end -->
 
 ---
