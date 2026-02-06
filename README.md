@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And when the prayer is ended, disperse freely on earth and seek to obtain [something] of God's bounty; but remember God often, so that you might attain to a happy state!* — **Al-Jumu'a (62:10)**
+> 📖 *And say [unto them, O Prophet]: "Act! And God will behold your deeds, and [so will] His Apostle, and the believers: and [in the end] you will be brought before Him who knows all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind -and then He will make you understand what you have been doing."* — **At-Tawba (9:105)**
 <!-- quran-verse-end -->
 
 ---
