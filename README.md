@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Lord of the Day of Judgment!* — **Al-Faatiha (1:4)**
+> 📖 *Nay - who is it that creates [all life] in the first instance, and then brings it forth anew? And who is it that provides you with sustenance out of heaven and earth? Could there be any divine power besides God? Say: “[If you think so,] produce your evidence - if you truly believe in your claim!”* — **An-Naml (27:64)**
 <!-- quran-verse-end -->
 
 ---
