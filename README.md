@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, verily, from [the grace of] their Sustainer shall they on that Day be debarred;* — **Al-Mutaffifin (83:15)**
+> 📖 *Say: "If there were-as some people assert [other] deities side by side with Him, surely [even] they would have to strive to find a way unto Him who is enthroned on His almightiness?"* — **Al-Israa (17:42)**
 <!-- quran-verse-end -->
 
 ---
