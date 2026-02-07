@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAVE THE STORIES of those who, in earlier times, refused to acknowledge the truth never yet come within your ken? [They denied it -] and so they had to taste the evil outcome of their own doings, with [more] grievous suffering awaiting them [in the life to come]:* — **At-Taghaabun (64:5)**
+> 📖 *AND [know that] women advanced in years, who no longer feel any sexual desire, incur no sin if they discard their [outer] garments, provided they do not aim at a showy display of [their] charms. But [even so,] it is better for them to abstain [from this]: and God is all-hearing, all-knowing.* — **An-Noor (24:60)**
 <!-- quran-verse-end -->
 
 ---
