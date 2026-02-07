@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and be not like those who are oblivious of God, and whom He therefore causes to be oblivious of [what is good for] their own selves: [for] it is they, they who are truly depraved!* — **Al-Hashr (59:19)**
+> 📖 *so that they might experience much that shall be of benefit to them, and that they might extol the name of God on the days appointed [for sacrifice], over whatever heads of cattle He may have provided for them [to this end]: eat, then, thereof, and feed the unfortunate poor.* — **Al-Hajj (22:28)**
 <!-- quran-verse-end -->
 
 ---
