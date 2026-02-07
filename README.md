@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thus We restored him to his mother, so that her eye might he gladdened, and that she might grieve no longer, and that she might know that God’s promise always comes true - even though most of them know it not!* — **Al-Qasas (28:13)**
+> 📖 *[not giving way to their desires] with any but their spouses - that is, those whom they rightfully possess [through wedlock] -: for then, behold, they are free of all blame,* — **Al-Ma'aarij (70:30)**
 <!-- quran-verse-end -->
 
 ---
