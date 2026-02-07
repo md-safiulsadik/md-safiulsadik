@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And in time she returned to her people, carrying the child with her. They said: "O Mary! Thou hast indeed done an amazing thing!* — **Maryam (19:27)**
+> 📖 *HAVE THE STORIES of those who, in earlier times, refused to acknowledge the truth never yet come within your ken? [They denied it -] and so they had to taste the evil outcome of their own doings, with [more] grievous suffering awaiting them [in the life to come]:* — **At-Taghaabun (64:5)**
 <!-- quran-verse-end -->
 
 ---
