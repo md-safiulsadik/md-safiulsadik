@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But] know that God gives life to the earth after it has been lifeless! We have indeed made Our messages clear unto you, so that you might use your reason.* — **Al-Hadid (57:17)**
+> 📖 *But then, [when they beset him with their enmity,] he called out to his Sustainer, “These are [indeed] people lost in sin!”* — **Ad-Dukhaan (44:22)**
 <!-- quran-verse-end -->
 
 ---
