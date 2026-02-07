@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that they might experience much that shall be of benefit to them, and that they might extol the name of God on the days appointed [for sacrifice], over whatever heads of cattle He may have provided for them [to this end]: eat, then, thereof, and feed the unfortunate poor.* — **Al-Hajj (22:28)**
+> 📖 *O you who have attained to faith! Be conscious of God with all the consciousness that is due to Him, and do not allow death to overtake you ere you have surrendered yourselves unto Him.* — **Aal-i-Imraan (3:102)**
 <!-- quran-verse-end -->
 
 ---
