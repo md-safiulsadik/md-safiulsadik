@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the sky and its wondrous make,* — **Ash-Shams (91:5)**
+> 📖 *thus, it is all one to them whether thou warnest them or dost not warn them: they will not believe.* — **Yaseen (36:10)**
 <!-- quran-verse-end -->
 
 ---
