@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But among men there is many a one that prefers a mere play with words [to divine guidance], so as to lead [those] without knowledge astray from the path of God, and to turn it to ridicule: for such there is shameful suffering in store.* — **Luqman (31:6)**
+> 📖 *it is they who vie with one another in doing good works, and it is they who outrun [all others] in attaining to them!* — **Al-Muminoon (23:61)**
 <!-- quran-verse-end -->
 
 ---
