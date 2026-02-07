@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *that Day on which they will not [be able to] utter a word,* — **Al-Mursalaat (77:35)**
+> 📖 *But among men there is many a one that prefers a mere play with words [to divine guidance], so as to lead [those] without knowledge astray from the path of God, and to turn it to ridicule: for such there is shameful suffering in store.* — **Luqman (31:6)**
 <!-- quran-verse-end -->
 
 ---
