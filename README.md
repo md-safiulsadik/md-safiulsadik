@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[As against this,] behold, for those who stand in awe of God although He is beyond the reach of their perception, there is forgiveness in store and a great reward.* — **Al-Mulk (67:12)**
+> 📖 *[But] know that God gives life to the earth after it has been lifeless! We have indeed made Our messages clear unto you, so that you might use your reason.* — **Al-Hadid (57:17)**
 <!-- quran-verse-end -->
 
 ---
