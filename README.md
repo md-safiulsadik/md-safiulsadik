@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thus, it is all one to them whether thou warnest them or dost not warn them: they will not believe.* — **Yaseen (36:10)**
+> 📖 *and be not like those who are oblivious of God, and whom He therefore causes to be oblivious of [what is good for] their own selves: [for] it is they, they who are truly depraved!* — **Al-Hashr (59:19)**
 <!-- quran-verse-end -->
 
 ---
