@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *it is they who vie with one another in doing good works, and it is they who outrun [all others] in attaining to them!* — **Al-Muminoon (23:61)**
+> 📖 *Consider the sky and its wondrous make,* — **Ash-Shams (91:5)**
 <!-- quran-verse-end -->
 
 ---
