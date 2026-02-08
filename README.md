@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[dwelling] In gardens [of paradise], they will inquire* — **Al-Muddaththir (74:40)**
+> 📖 *He boasts, "I have spent wealth abundant!"* — **Al-Balad (90:6)**
 <!-- quran-verse-end -->
 
 ---
