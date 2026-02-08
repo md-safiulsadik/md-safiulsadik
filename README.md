@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "If there were-as some people assert [other] deities side by side with Him, surely [even] they would have to strive to find a way unto Him who is enthroned on His almightiness?"* — **Al-Israa (17:42)**
+> 📖 *and truly lost is he who buries it [in darkness].* — **Ash-Shams (91:10)**
 <!-- quran-verse-end -->
 
 ---
