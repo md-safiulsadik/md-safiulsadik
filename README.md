@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Woe on that Day unto those who give the lie to the truth!* — **Al-Mursalaat (77:40)**
+> 📖 *just as [there are signs thereof] within your own selves: can you not, then, see?* — **Adh-Dhaariyat (51:21)**
 <!-- quran-verse-end -->
 
 ---
