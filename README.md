@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *just as [there are signs thereof] within your own selves: can you not, then, see?* — **Adh-Dhaariyat (51:21)**
+> 📖 *[dwelling] In gardens [of paradise], they will inquire* — **Al-Muddaththir (74:40)**
 <!-- quran-verse-end -->
 
 ---
