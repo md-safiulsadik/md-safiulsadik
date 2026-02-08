@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now if We had willed this [divine writ] to be a discourse in a non-Arabic tongue, they [who now reject it] would surely have said, “Why is it that its messages have not been spelled out clearly? Why - [a message in] a non-Arabic tongue, and [its bearer] an Arab?” Say: “Unto all who have attained to faith, this [divine writ] is a guidance and a source of health; but as for those who will not believe - in their ears is deafness, and so it remains obscure to them: they are [like people who are] being called from too far away.* — **Fussilat (41:44)**
+> 📖 *[And they will be told:] “Eat and drink with good cheer as an outcome of what you were wont to do,* — **At-Tur (52:19)**
 <!-- quran-verse-end -->
 
 ---
