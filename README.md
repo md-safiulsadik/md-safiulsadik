@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither sky nor earth shed tears over them, nor were they allowed a respite.* — **Ad-Dukhaan (44:29)**
+> 📖 *Ha. Mim.* — **Al-Ahqaf (46:1)**
 <!-- quran-verse-end -->
 
 ---
