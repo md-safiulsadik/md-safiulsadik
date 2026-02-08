@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He boasts, "I have spent wealth abundant!"* — **Al-Balad (90:6)**
+> 📖 *with downcast eyes, with ignominy overwhelming them: that Day which they were promised again and…* — **Al-Ma'aarij (70:44)**
 <!-- quran-verse-end -->
 
 ---
