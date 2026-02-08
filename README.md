@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Alif. Lam. Mim. Ra. THESE ARE MESSAGES of revelation: and what has been bestowed upon thee from on high by thy Sustainer is the truth-yet most people will not believe [in it]?* — **Ar-Ra'd (13:1)**
+> 📖 *and neither sky nor earth shed tears over them, nor were they allowed a respite.* — **Ad-Dukhaan (44:29)**
 <!-- quran-verse-end -->
 
 ---
