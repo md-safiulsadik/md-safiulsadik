@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WE SHALL teach thee, and thou wilt not forget [aught of what thou art taught],* — **Al-A'laa (87:6)**
+> 📖 *Alif. Lam. Mim. Ra. THESE ARE MESSAGES of revelation: and what has been bestowed upon thee from on high by thy Sustainer is the truth-yet most people will not believe [in it]?* — **Ar-Ra'd (13:1)**
 <!-- quran-verse-end -->
 
 ---
