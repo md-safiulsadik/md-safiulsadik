@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God-there is no deity save Him; His [alone] are the attributes of perfection!* — **Taa-Haa (20:8)**
+> 📖 *Woe on that Day unto those who give the lie to the truth!* — **Al-Mursalaat (77:40)**
 <!-- quran-verse-end -->
 
 ---
