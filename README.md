@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and truly lost is he who buries it [in darkness].* — **Ash-Shams (91:10)**
+> 📖 *Thy Sustainer has not forsaken thee, nor does He scorn thee:* — **Ad-Dhuhaa (93:3)**
 <!-- quran-verse-end -->
 
 ---
