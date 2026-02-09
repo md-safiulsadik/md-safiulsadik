@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and him that seeks [thy] help shalt thou never chide,* — **Ad-Dhuhaa (93:10)**
+> 📖 *[who bears] around her neck a rope of twisted strands!* — **Al-Masad (111:5)**
 <!-- quran-verse-end -->
 
 ---
