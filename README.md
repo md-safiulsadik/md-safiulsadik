@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Did We not destroy [so many of] those [sinners] of olden days?* — **Al-Mursalaat (77:16)**
+> 📖 *[the while] God has readied for them [yet more] suffering severe [in the life to come] Hence, remain conscious of God, O you who are endowed with insight - [you] who have attained to faith! God has indeed bestowed on you a reminder from on high:* — **At-Talaaq (65:10)**
 <!-- quran-verse-end -->
 
 ---
