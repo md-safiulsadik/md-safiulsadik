@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHAT, THEN, is amiss with them that they turn away from all admonition* — **Al-Muddaththir (74:49)**
+> 📖 *and him that seeks [thy] help shalt thou never chide,* — **Ad-Dhuhaa (93:10)**
 <!-- quran-verse-end -->
 
 ---
