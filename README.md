@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Ha. Mim.* — **Al-Ahqaf (46:1)**
+> 📖 *WHAT, THEN, is amiss with them that they turn away from all admonition* — **Al-Muddaththir (74:49)**
 <!-- quran-verse-end -->
 
 ---
