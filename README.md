@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[the while] God has readied for them [yet more] suffering severe [in the life to come] Hence, remain conscious of God, O you who are endowed with insight - [you] who have attained to faith! God has indeed bestowed on you a reminder from on high:* — **At-Talaaq (65:10)**
+> 📖 *And pay heed unto God and His Apostle, and do not [allow yourselves to] be at variance with one another, lest you lose heart and your moral strength desert you. And be patient in adversity: for, verily, God is with those who are patient in adversity.* — **Al-Anfaal (8:46)**
 <!-- quran-verse-end -->
 
 ---
