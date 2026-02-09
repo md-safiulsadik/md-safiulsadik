@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"from the evil of aught that He has created,* — **Al-Falaq (113:2)**
+> 📖 *and say, "Limitless in His glory is our Sustainer! Verily, our Sustainer's promise has been fulfilled!"* — **Al-Israa (17:108)**
 <!-- quran-verse-end -->
 
 ---
