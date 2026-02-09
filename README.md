@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHEN THE EARTH quakes with her [last] mighty quaking,* — **Az-Zalzala (99:1)**
+> 📖 *"from the evil of aught that He has created,* — **Al-Falaq (113:2)**
 <!-- quran-verse-end -->
 
 ---
