@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but [as it was,] his Sustainer had elected him and placed him among the righteous.* — **Al-Qalam (68:50)**
+> 📖 *Or have you received a solemn promise, binding on Us till Resurrection Day, that yours will assuredly be whatever you judge [to be your rightful due]?* — **Al-Qalam (68:39)**
 <!-- quran-verse-end -->
 
 ---
