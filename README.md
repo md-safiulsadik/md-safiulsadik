@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and this land secure!* — **At-Tin (95:3)**
+> 📖 *KNOW [O men] that the life of this world is but a play and a passing delight, and a beautiful show, and [the cause of] your boastful vying with one another, and [of your] greed for more and more riches and children. Its parable is that of [life-giving] rain: the herbage which it causes to grow delights the tillers of the soil; but then it withers, and thou canst see it turn yellow; and in the end it crumbles into dust. But [the abiding truth of man’s condition will become fully apparent] in the life to come: [either] suffering severe, or God’s forgiveness and His goodly acceptance: for the life of this world is nothing but an enjoyment of self-delusion.* — **Al-Hadid (57:20)**
 <!-- quran-verse-end -->
 
 ---
