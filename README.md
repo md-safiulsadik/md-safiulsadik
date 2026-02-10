@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, [in the life to come] the truly virtuous will indeed be in bliss:* — **Al-Mutaffifin (83:22)**
+> 📖 *on the Day when all secrets will be laid bare,* — **At-Taariq (86:9)**
 <!-- quran-verse-end -->
 
 ---
