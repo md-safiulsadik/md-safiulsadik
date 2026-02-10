@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CAN, THEN, he who takes his stand on a clear evidence from his Sustainer be likened Unto one to whom the evil of his own doings [always] seems goodly, and unto such as would follow but their own lusts?* — **Muhammad (47:14)**
+> 📖 *"I do not worship that which you worship,* — **Al-Kaafiroon (109:2)**
 <!-- quran-verse-end -->
 
 ---
