@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And He it is who, in the valley of Mecca, stayed their hands from you, and your hands from them, after He had enabled you to vanquish them; and God saw indeed what you were doing.* — **Al-Fath (48:24)**
+> 📖 *Behold, [in the life to come] the truly virtuous will indeed be in bliss:* — **Al-Mutaffifin (83:22)**
 <!-- quran-verse-end -->
 
 ---
