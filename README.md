@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Know that true] believers are only those who have attained to faith in God and His Apostle and have left all doubt behind, and who strive hard in God’s cause with their possessions and their lives: it is they, they who are true to their word!* — **Al-Hujuraat (49:15)**
+> 📖 *[And] think not that those who are bent on denying the truth can elude [their final reckoning even if they remain unscathed] on earth: the fire is their goal [in the life to come] - and vile indeed is such a journey’s end!* — **An-Noor (24:57)**
 <!-- quran-verse-end -->
 
 ---
