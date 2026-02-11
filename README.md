@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And let them know that the water [of their wells] is to be divided between them, with each share of water equitably apportioned.”* — **Al-Qamar (54:28)**
+> 📖 *[the word] of one to be heeded, and worthy of trust!* — **At-Takwir (81:21)**
 <!-- quran-verse-end -->
 
 ---
