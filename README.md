@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *through God’s bounty and favour; and God is all-knowing, truly wise.* — **Al-Hujuraat (49:8)**
+> 📖 *Yet [withal, O Prophet,] We have sent thee only as a herald of glad tidings and a warner.* — **Al-Furqaan (25:56)**
 <!-- quran-verse-end -->
 
 ---
