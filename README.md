@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O mankind! The Apostle has now come unto you with the truth from your Sustainer: believe, then, for your own good! And if you deny the truth - behold, unto God belongs all that is in the heavens and all that is on earth, and God is indeed all-knowing, wise!* — **An-Nisaa (4:170)**
+> 📖 *And, O my people, who would shield me from God were I to repulse them? Will you not, then, keep this in mind?* — **Hud (11:30)**
 <!-- quran-verse-end -->
 
 ---
