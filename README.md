@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet [withal, O Prophet,] We have sent thee only as a herald of glad tidings and a warner.* — **Al-Furqaan (25:56)**
+> 📖 *And let them know that the water [of their wells] is to be divided between them, with each share of water equitably apportioned.”* — **Al-Qamar (54:28)**
 <!-- quran-verse-end -->
 
 ---
