@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *he said: "Behold, you are people unknown [here]!"* — **Al-Hijr (15:62)**
+> 📖 *O mankind! The Apostle has now come unto you with the truth from your Sustainer: believe, then, for your own good! And if you deny the truth - behold, unto God belongs all that is in the heavens and all that is on earth, and God is indeed all-knowing, wise!* — **An-Nisaa (4:170)**
 <!-- quran-verse-end -->
 
 ---
