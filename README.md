@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, O my people, who would shield me from God were I to repulse them? Will you not, then, keep this in mind?* — **Hud (11:30)**
+> 📖 *through God’s bounty and favour; and God is all-knowing, truly wise.* — **Al-Hujuraat (49:8)**
 <!-- quran-verse-end -->
 
 ---
