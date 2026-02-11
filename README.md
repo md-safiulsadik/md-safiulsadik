@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “No reward have I ever asked of you [out of anything] that is yours: my reward rests with none but God, and He is witness unto everything!”* — **Saba (34:47)**
+> 📖 *he said: "Behold, you are people unknown [here]!"* — **Al-Hijr (15:62)**
 <!-- quran-verse-end -->
 
 ---
