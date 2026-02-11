@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And I found her and her people adoring the sun instead of God; and Satan has made these doings of theirs seem goodly to them, and [thus] has barred them from the path [of God], so that they cannot find the right way:* — **An-Naml (27:24)**
+> 📖 *GOD has indeed heard the words of her who pleads with thee concerning her husband, and complains Unto God. And God does hear what you both have to say: verily, God is all-hearing, all-seeing.* — **Al-Mujaadila (58:1)**
 <!-- quran-verse-end -->
 
 ---
