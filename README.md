@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that [together] we might abundantly extol Thy limitless glory* — **Taa-Haa (20:33)**
+> 📖 *No empty talk will they hear in that [paradise], nor any lie.* — **An-Naba (78:35)**
 <!-- quran-verse-end -->
 
 ---
