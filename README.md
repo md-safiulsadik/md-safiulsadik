@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"He begets not, and neither is He begotten;* — **Al-Ikhlaas (112:3)**
+> 📖 *sparks of fire striking,* — **Al-Aadiyaat (100:2)**
 <!-- quran-verse-end -->
 
 ---
