@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *No empty talk will they hear in that [paradise], nor any lie.* — **An-Naba (78:35)**
+> 📖 *"He begets not, and neither is He begotten;* — **Al-Ikhlaas (112:3)**
 <!-- quran-verse-end -->
 
 ---
