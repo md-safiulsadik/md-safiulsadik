@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and unto thy Sustainer turn with love.* — **Ash-Sharh (94:8)**
+> 📖 *WOE unto every slanderer, fault-finder!* — **Al-Humaza (104:1)**
 <!-- quran-verse-end -->
 
 ---
