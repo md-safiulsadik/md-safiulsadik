@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].* — **Al-Kawthar (108:2)**
+> 📖 *so that [together] we might abundantly extol Thy limitless glory* — **Taa-Haa (20:33)**
 <!-- quran-verse-end -->
 
 ---
