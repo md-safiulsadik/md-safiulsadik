@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, God knows the hidden reality of the heavens and the earth: [and,] behold, He has full knowledge of what is in the hearts [of men].* — **Faatir (35:38)**
+> 📖 *for thy Sustainer has ordained that you shall worship none but Him. And do good unto [thy] parents. Should one of them, or both, attain to old age in thy care, never say "Ugh" to them or scold them, but [always] speak unto them with reverent speech,* — **Al-Israa (17:23)**
 <!-- quran-verse-end -->
 
 ---
