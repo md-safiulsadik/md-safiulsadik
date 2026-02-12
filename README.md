@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And He allows doubts to arise] so that He might cause whatever aspersion Satan may cast [against His prophets] to become a trial for all in whose hearts is disease and all whose hearts are hardened: for, verily, all who are [thus] sinning [against themselves] are most deeply in the wrong.* — **Al-Hajj (22:53)**
+> 📖 *Verily, as for those who persecute believing men and believing women, and thereafter do not repent, hell's suffering awaits them: yea, suffering through fire awaits them!* — **Al-Burooj (85:10)**
 <!-- quran-verse-end -->
 
 ---
