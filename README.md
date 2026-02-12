@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WOE unto every slanderer, fault-finder!* — **Al-Humaza (104:1)**
+> 📖 *They will reply: "Yea, a warner did indeed come unto us, but we gave him the lie and said, 'Never has God sent down anything [by way of revelation]! You [self-styled warners] are but lost in a great delusion!"'* — **Al-Mulk (67:9)**
 <!-- quran-verse-end -->
 
 ---
