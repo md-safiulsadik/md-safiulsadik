@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *sparks of fire striking,* — **Al-Aadiyaat (100:2)**
+> 📖 *crystal-like, [but] of silver - the measure whereof they alone will determine.* — **Al-Insaan (76:16)**
 <!-- quran-verse-end -->
 
 ---
