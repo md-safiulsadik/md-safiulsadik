@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and will have to fill your bellies therewith,* — **Al-Waaqia (56:53)**
+> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:25)**
 <!-- quran-verse-end -->
 
 ---
