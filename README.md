@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thinking that his wealth will make him live forever!* — **Al-Humaza (104:3)**
+> 📖 *In this, behold, there is a lesson indeed for all who stand in awe [of God].* — **An-Naazi'aat (79:26)**
 <!-- quran-verse-end -->
 
 ---
