@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *those who give the lie to the [coming of] Judgment Day:* — **Al-Mutaffifin (83:11)**
+> 📖 *the planets that run their course and set,* — **At-Takwir (81:16)**
 <!-- quran-verse-end -->
 
 ---
