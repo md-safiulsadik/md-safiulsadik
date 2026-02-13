@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] He will say: “Contend not before Me, [O you sinners,] for I gave you a forewarning [of this Day of Reckoning].* — **Qaaf (50:28)**
+> 📖 *And, lo, Abraham prayed: "O my Sustainer! Make this a land secure, and grant its people fruitful sustenance - such of them as believe in God and the Last Day." [God] answered: "And whoever shall deny the truth, him will I let enjoy himself for a short while -but in the end I shall drive him to suffering through fire: and how vile a journey's end!"* — **Al-Baqara (2:126)**
 <!-- quran-verse-end -->
 
 ---
