@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereupon We should indeed grant them, out of Our grace, a mighty reward,* — **An-Nisaa (4:67)**
+> 📖 *[And] He will say: “Contend not before Me, [O you sinners,] for I gave you a forewarning [of this Day of Reckoning].* — **Qaaf (50:28)**
 <!-- quran-verse-end -->
 
 ---
