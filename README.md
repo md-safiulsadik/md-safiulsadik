@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the planets that run their course and set,* — **At-Takwir (81:16)**
+> 📖 *but he will enter the blazing flame.* — **Al-Inshiqaaq (84:12)**
 <!-- quran-verse-end -->
 
 ---
