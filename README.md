@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but he will enter the blazing flame.* — **Al-Inshiqaaq (84:12)**
+> 📖 *and will have to fill your bellies therewith,* — **Al-Waaqia (56:53)**
 <!-- quran-verse-end -->
 
 ---
