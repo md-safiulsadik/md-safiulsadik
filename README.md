@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THE BESTOWAL from on high of this divine writ issues from God, the Almighty, the Wise:* — **Az-Zumar (39:1)**
+> 📖 *All praise is due to God alone, the Sustainer of all the worlds,* — **Al-Faatiha (1:2)**
 <!-- quran-verse-end -->
 
 ---
