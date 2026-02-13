@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, they unto whom We have vouchsafed this revelation rejoice at all that has been bestowed upon thee [O Prophet] from on high; but among the followers of other creeds there are such as deny the validity of some of it. Say [unto them, O Prophet]: "I have only been bidden to worship God, and not to ascribe divine. powers to aught beside Him: unto Him do I call [all mankind], and He is my goal!"* — **Ar-Ra'd (13:36)**
+> 📖 *those who give the lie to the [coming of] Judgment Day:* — **Al-Mutaffifin (83:11)**
 <!-- quran-verse-end -->
 
 ---
