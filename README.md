@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In this, behold, there is a lesson indeed for all who stand in awe [of God].* — **An-Naazi'aat (79:26)**
+> 📖 *whereupon We should indeed grant them, out of Our grace, a mighty reward,* — **An-Nisaa (4:67)**
 <!-- quran-verse-end -->
 
 ---
