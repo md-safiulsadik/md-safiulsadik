@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O Mary! Remain thou truly devout unto thy Sustainer, and prostrate thyself in worship, and bow down with those who bow down [before Him]."* — **Aal-i-Imraan (3:43)**
+> 📖 *[And] they will [still] be offering excuses to you when you return to them, [from the campaign]! Say: "Do not offer [empty] excuses, [for] we shall not believe you: God has already enlightened us about you. And God will behold your [future] deeds, and [so will] His Apostle; and in the end you will be brought before Him who knows all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind, and then He will make you truly understand what you were doing [in life]."* — **At-Tawba (9:94)**
 <!-- quran-verse-end -->
 
 ---
