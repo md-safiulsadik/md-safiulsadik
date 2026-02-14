@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Such is God, your Sustainer, the Creator of all that exists: there is no deity save Him. How perverted, then, are your minds!* — **Ghafir (40:62)**
+> 📖 *SAY: "I seek refuge with the Sustainer of the rising dawn,* — **Al-Falaq (113:1)**
 <!-- quran-verse-end -->
 
 ---
