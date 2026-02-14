@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *with strength endowed, secure with Him who in almightiness is enthroned* — **At-Takwir (81:20)**
+> 📖 *Say: “My Sustainer knows whatever is spoken in heaven and on earth; and He alone is all-hearing, all-knowing.”* — **Al-Anbiyaa (21:4)**
 <!-- quran-verse-end -->
 
 ---
