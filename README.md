@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NAY! I call to witness this land –* — **Al-Balad (90:1)**
+> 📖 *But whenever he prevails, he goes about the earth spreading corruption and destroying [man's] tilth and progeny: and God does not love corruption.* — **Al-Baqara (2:205)**
 <!-- quran-verse-end -->
 
 ---
