@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The way of those upon whom Thou hast bestowed Thy blessings, not of those who have been condemned [by Thee], nor of those who go astray!* — **Al-Faatiha (1:7)**
+> 📖 *HAST THOU ever considered [the kind of man] who gives the lie to all moral law?* — **Al-Maa'un (107:1)**
 <!-- quran-verse-end -->
 
 ---
