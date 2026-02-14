@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “My Sustainer knows whatever is spoken in heaven and on earth; and He alone is all-hearing, all-knowing.”* — **Al-Anbiyaa (21:4)**
+> 📖 *NAY! I call to witness this land –* — **Al-Balad (90:1)**
 <!-- quran-verse-end -->
 
 ---
