@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And so We shall say:] "Taste, then, [the fruit of your evil doings,] for now We shall bestow on you nothing but more and more suffering!"* — **An-Naba (78:30)**
+> 📖 *Did He not utterly confound their artful planning?* — **Al-Fil (105:2)**
 <!-- quran-verse-end -->
 
 ---
