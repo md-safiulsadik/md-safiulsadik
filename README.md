@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and he who shall have done an atom's weight of evil, shall behold it.* — **Az-Zalzala (99:8)**
+> 📖 *[And so We shall say:] "Taste, then, [the fruit of your evil doings,] for now We shall bestow on you nothing but more and more suffering!"* — **An-Naba (78:30)**
 <!-- quran-verse-end -->
 
 ---
