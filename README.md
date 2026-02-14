@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And they will be waited upon by [immortal] youths, [as if they were children] of their own, [as pure] as if they were pearls hidden in their shells.* — **At-Tur (52:24)**
+> 📖 *[But,] verily, those who [falsely, and without repentance,] accuse chaste women who may have been unthinkingly careless but have remained true to their faith, shall be rejected [from God’s grace] in this world as well as in the life to come: and awesome suffering awaits them* — **An-Noor (24:23)**
 <!-- quran-verse-end -->
 
 ---
