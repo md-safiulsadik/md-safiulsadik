@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, [all] this has indeed been [said] in the earlier revelations –* — **Al-A'laa (87:18)**
+> 📖 *with strength endowed, secure with Him who in almightiness is enthroned* — **At-Takwir (81:20)**
 <!-- quran-verse-end -->
 
 ---
