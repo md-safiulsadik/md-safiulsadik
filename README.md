@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said some [of them]: “We heard a youth speak of these [gods with scorn]: he is called Abraham.”* — **Al-Anbiyaa (21:60)**
+> 📖 *[for he was always] grateful for the blessings granted by Him who had elected him and guided him onto a straight way.* — **An-Nahl (16:121)**
 <!-- quran-verse-end -->
 
 ---
