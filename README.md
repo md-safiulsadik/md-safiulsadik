@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But] know that God gives life to the earth after it has been lifeless! We have indeed made Our messages clear unto you, so that you might use your reason.* — **Al-Hadid (57:17)**
+> 📖 *And God has brought you forth from your mothers' wombs knowing nothing-but He has endowed you with hearing, and sight, and minds, so that you might have cause to be grateful.* — **An-Nahl (16:78)**
 <!-- quran-verse-end -->
 
 ---
