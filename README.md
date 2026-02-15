@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and so the blast [of Our punishment] overtook them at early morn,* — **Al-Hijr (15:83)**
+> 📖 *and shown him the two highways [of good and evil]?* — **Al-Balad (90:10)**
 <!-- quran-verse-end -->
 
 ---
