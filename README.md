@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, [O men,] you aim at most divergent ends!* — **Al-Lail (92:4)**
+> 📖 *Hence, give them the tiding of grievous suffering [in the life to come] –* — **Al-Inshiqaaq (84:24)**
 <!-- quran-verse-end -->
 
 ---
