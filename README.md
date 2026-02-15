@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, We have bestowed upon thee good in abundance:* — **Al-Kawthar (108:1)**
+> 📖 *Did I not enjoin on you, O you children of Adam, that you should not worship Satan – since, verily, he is your open foe* — **Yaseen (36:60)**
 <!-- quran-verse-end -->
 
 ---
