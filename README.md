@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet, he had no power at all over them: [for if We allow him to tempt man,] it is only to the end that We might make a clear distinction between those who [truly] believe in the life to come and those who are in doubt thereof: for thy Sustainer watches over all things.* — **Saba (34:21)**
+> 📖 *and so the blast [of Our punishment] overtook them at early morn,* — **Al-Hijr (15:83)**
 <!-- quran-verse-end -->
 
 ---
