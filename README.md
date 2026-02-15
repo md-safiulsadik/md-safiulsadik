@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *or else He may cause them to perish because of what they have wrought; and [withal,] He pardons much.* — **Ash-Shura (42:34)**
+> 📖 *until you go down to your graves.* — **At-Takaathur (102:2)**
 <!-- quran-verse-end -->
 
 ---
