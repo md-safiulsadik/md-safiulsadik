@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Did I not enjoin on you, O you children of Adam, that you should not worship Satan – since, verily, he is your open foe* — **Yaseen (36:60)**
+> 📖 *Verily, [O men,] you aim at most divergent ends!* — **Al-Lail (92:4)**
 <!-- quran-verse-end -->
 
 ---
