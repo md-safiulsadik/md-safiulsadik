@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONCERNING [the inheritance of] your children, God enjoins [this] upon you: The male shall have the equal of two females’ share; but if there are more than two females, they shall have two-thirds of what [their parents] leave behind; and if there is only one daughter, she shall have one-half thereof. And as for the parents [of the deceased], each of them shall have one-sixth of what he leaves behind, in the event of his having [left] a child; but if he has left no child and his parents are his [only] heirs, then his mother shall have one-third; and if he has brothers and sisters, then his mother shall have one-sixth after [the deduction of] any bequest he may have made, or any debt [he may have incurred]. As for your parents and your children - you know not which of them is more deserving of benefit from you: [therefore this] ordinance from God. Verily, God is all-knowing, wise.* — **An-Nisaa (4:11)**
+> 📖 *That will be the Day of Ultimate Truth: whoever wills, then, let him take the path that leads towards his Sustainer!* — **An-Naba (78:39)**
 <!-- quran-verse-end -->
 
 ---
