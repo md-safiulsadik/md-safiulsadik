@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what it is, that Night of Destiny?* — **Al-Qadr (97:2)**
+> 📖 *[But] know that God gives life to the earth after it has been lifeless! We have indeed made Our messages clear unto you, so that you might use your reason.* — **Al-Hadid (57:17)**
 <!-- quran-verse-end -->
 
 ---
