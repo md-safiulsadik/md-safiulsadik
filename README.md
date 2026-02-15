@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, give them the tiding of grievous suffering [in the life to come] –* — **Al-Inshiqaaq (84:24)**
+> 📖 *or else He may cause them to perish because of what they have wrought; and [withal,] He pardons much.* — **Ash-Shura (42:34)**
 <!-- quran-verse-end -->
 
 ---
