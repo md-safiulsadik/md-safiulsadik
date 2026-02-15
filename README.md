@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And God has brought you forth from your mothers' wombs knowing nothing-but He has endowed you with hearing, and sight, and minds, so that you might have cause to be grateful.* — **An-Nahl (16:78)**
+> 📖 *In both of them will be [all kinds of] fruit, and date-palms and pomegranates.* — **Ar-Rahmaan (55:68)**
 <!-- quran-verse-end -->
 
 ---
