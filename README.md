@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *That will be the Day of Ultimate Truth: whoever wills, then, let him take the path that leads towards his Sustainer!* — **An-Naba (78:39)**
+> 📖 *"who whispers in the hearts of men* — **An-Naas (114:5)**
 <!-- quran-verse-end -->
 
 ---
