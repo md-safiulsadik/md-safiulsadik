@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In both of them will be [all kinds of] fruit, and date-palms and pomegranates.* — **Ar-Rahmaan (55:68)**
+> 📖 *Say: "Am I to take for my master anyone but God, the Originator of the heavens and the earth, when it is He who gives nourishment and Himself needs none?” Say: "I am bidden to be foremost among those who surrender themselves unto God, and not to be among those who ascribe divinity to aught beside Him."* — **Al-An'aam (6:14)**
 <!-- quran-verse-end -->
 
 ---
