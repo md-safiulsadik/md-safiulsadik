@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *they who give the lie to this divine writ and [thus] to all [the messages] with which We sent forth Our apostles [of old]? But in time they will come to know [how blind they have been: they will know it on Judgment Day],* — **Ghafir (40:70)**
+> 📖 *This [for you, O enemies of God]! Taste it, then, [and know] that suffering through fire awaits those who deny the truth!* — **Al-Anfaal (8:14)**
 <!-- quran-verse-end -->
 
 ---
