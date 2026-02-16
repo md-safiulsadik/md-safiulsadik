@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and he is not one to begrudge others the knowledge [of whatever has been revealed to him] out of that which is beyond the reach of human Perception.* — **At-Takwir (81:24)**
+> 📖 *and the night, and what it [step by step] unfolds,* — **Al-Inshiqaaq (84:17)**
 <!-- quran-verse-end -->
 
 ---
