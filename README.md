@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Think of] the time when He shall gather you all together unto the Day of the [Last] Gathering - that Day of Loss and Gain! For, as for him who shall have believed in God and done what is just and right, He will [on that Day] efface his bad deeds, and will admit him into gardens through which running waters flow, therein to abide beyond the count of time: that will be a triumph supreme!* — **At-Taghaabun (64:9)**
+> 📖 *And to how many a community that was im­mersed in evildoing have I given rein for a while! But then I took it to task: for with Me is all journeys’ end!* — **Al-Hajj (22:48)**
 <!-- quran-verse-end -->
 
 ---
