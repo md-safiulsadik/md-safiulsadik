@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And leave Me alone [to deal] with those who give the lie to the truth - those who enjoy the blessings of life [without any thought of God] - and bear thou with them for a little while:* — **Al-Muzzammil (73:11)**
+> 📖 *And give full measure whenever you measure, and weigh with a balance that is true: this will be [for your own] good, and best in the end.* — **Al-Israa (17:35)**
 <!-- quran-verse-end -->
 
 ---
