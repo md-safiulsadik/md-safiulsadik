@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And then they cruelly slaughtered the she-camel and turned with disdain from their Sustainer's commandment, and said: "O Salih! Bring about that [punishment] with which thou hast threatened us, if thou art truly one of God's message bearers!"* — **Al-A'raaf (7:77)**
+> 📖 *and he is not one to begrudge others the knowledge [of whatever has been revealed to him] out of that which is beyond the reach of human Perception.* — **At-Takwir (81:24)**
 <!-- quran-verse-end -->
 
 ---
