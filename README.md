@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the night, and what it [step by step] unfolds,* — **Al-Inshiqaaq (84:17)**
+> 📖 *they who are true to their bond with God and never break their covenant;* — **Ar-Ra'd (13:20)**
 <!-- quran-verse-end -->
 
 ---
