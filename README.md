@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and shown him the two highways [of good and evil]?* — **Al-Balad (90:10)**
+> 📖 *for they were unable even to rise, and could not defend themselves.* — **Adh-Dhaariyat (51:45)**
 <!-- quran-verse-end -->
 
 ---
