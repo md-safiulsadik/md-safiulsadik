@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And to how many a community that was im­mersed in evildoing have I given rein for a while! But then I took it to task: for with Me is all journeys’ end!* — **Al-Hajj (22:48)**
+> 📖 *And yet, some [people] have come to attribute to all manner of invisible beings a place side by side with God - although it is He who has created them [all]; and in their ignorance they have invented for Him sons and daughters! Limitless is He is His glory, and sublimely exalted above anything that men may devise by way of definition:* — **Al-An'aam (6:100)**
 <!-- quran-verse-end -->
 
 ---
