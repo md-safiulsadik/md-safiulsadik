@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *or is concerned with God-consciousness?* — **Al-Alaq (96:12)**
+> 📖 *And leave Me alone [to deal] with those who give the lie to the truth - those who enjoy the blessings of life [without any thought of God] - and bear thou with them for a little while:* — **Al-Muzzammil (73:11)**
 <!-- quran-verse-end -->
 
 ---
