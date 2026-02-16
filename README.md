@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *This [for you, O enemies of God]! Taste it, then, [and know] that suffering through fire awaits those who deny the truth!* — **Al-Anfaal (8:14)**
+> 📖 *And then they cruelly slaughtered the she-camel and turned with disdain from their Sustainer's commandment, and said: "O Salih! Bring about that [punishment] with which thou hast threatened us, if thou art truly one of God's message bearers!"* — **Al-A'raaf (7:77)**
 <!-- quran-verse-end -->
 
 ---
