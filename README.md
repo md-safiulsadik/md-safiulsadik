@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Night of Destiny is better than a thousand months:* — **Al-Qadr (97:3)**
+> 📖 *But those who attain to faith and do righteous deeds We shall bring into gardens through which running waters flow, therein to abide beyond the count of time; there shall they have spouses pure: and [thus] We shall bring them unto happiness abounding.* — **An-Nisaa (4:57)**
 <!-- quran-verse-end -->
 
 ---
