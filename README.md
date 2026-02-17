@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Indeed, the word [of God’s condemnation] is bound to come true against most of them: for they will not believe.* — **Yaseen (36:7)**
+> 📖 *and thereafter We reduce him to the lowest of low* — **At-Tin (95:5)**
 <!-- quran-verse-end -->
 
 ---
