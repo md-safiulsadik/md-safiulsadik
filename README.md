@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, the Last Hour is sure to come: of this there is no doubt; yet most men will not believe it.* — **Ghafir (40:59)**
+> 📖 *"O my father! Behold, there has indeed come to me [a ray] of knowledge such as has never yet come unto thee: follow me, then; I shall guide thee onto a perfect way.* — **Maryam (19:43)**
 <!-- quran-verse-end -->
 
 ---
