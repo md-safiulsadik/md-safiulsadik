@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *excepting only such as attain to faith and do good works: and theirs shall be a reward unending!* — **At-Tin (95:6)**
+> 📖 *and have placed [therein the sun,] a lamp full of blazing splendour.* — **An-Naba (78:13)**
 <!-- quran-verse-end -->
 
 ---
