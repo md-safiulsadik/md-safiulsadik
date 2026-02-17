@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as soon as He has given them [aught] out of His bounty. they cling to it niggardly, and turn away in their obstinacy [from all that they have vowed]:* — **At-Tawba (9:76)**
+> 📖 *And who could be more wicked than one who invents [such] a lie about [a message from] God, seeing that he is [but] being called to self-surrender unto Him? But God does not bestow His guidance upon evil-doing folk.* — **As-Saff (61:7)**
 <!-- quran-verse-end -->
 
 ---
