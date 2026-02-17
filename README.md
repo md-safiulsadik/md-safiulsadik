@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And who could be more wicked than one who invents [such] a lie about [a message from] God, seeing that he is [but] being called to self-surrender unto Him? But God does not bestow His guidance upon evil-doing folk.* — **As-Saff (61:7)**
+> 📖 *IT IS NOT for those who ascribe divinity to aught beside God to visit or tend God's houses of worship, the while [by their beliefs] they bear witness against themselves that they are denying the truth. It is they whose works shall come to nought, and they who in the fire shall abide* — **At-Tawba (9:17)**
 <!-- quran-verse-end -->
 
 ---
