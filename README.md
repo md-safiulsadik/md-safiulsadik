@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] those who were wont to glory in their arrogance will say unto those who had been weak: “Why - did we keep you [forcibly] from following the right path after it had become obvious to you? Nay, it was but you [yourselves] who were guilty!”* — **Saba (34:32)**
+> 📖 *[However,] it is no sin for them [to appear freely] before their fathers, or their sons, or their brothers, or their brothers’ sons, or their sisters’ sons, or their womenfolk, or such [male slaves] as their right hands may possess. But [always, O wives of the Prophet,] remain con­scious of God - for, behold, God is witness unto everything.* — **Al-Ahzaab (33:55)**
 <!-- quran-verse-end -->
 
 ---
