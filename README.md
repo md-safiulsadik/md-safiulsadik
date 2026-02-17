@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"O my father! Behold, there has indeed come to me [a ray] of knowledge such as has never yet come unto thee: follow me, then; I shall guide thee onto a perfect way.* — **Maryam (19:43)**
+> 📖 *Oh, would that this [death of mine] had been the end of me!* — **Al-Haaqqa (69:27)**
 <!-- quran-verse-end -->
 
 ---
