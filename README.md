@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Oh, would that this [death of mine] had been the end of me!* — **Al-Haaqqa (69:27)**
+> 📖 *The Night of Destiny is better than a thousand months:* — **Al-Qadr (97:3)**
 <!-- quran-verse-end -->
 
 ---
