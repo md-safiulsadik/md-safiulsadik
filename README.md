@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and feels no urge to feed the needy.* — **Al-Maa'un (107:3)**
+> 📖 *But as soon as He has given them [aught] out of His bounty. they cling to it niggardly, and turn away in their obstinacy [from all that they have vowed]:* — **At-Tawba (9:76)**
 <!-- quran-verse-end -->
 
 ---
