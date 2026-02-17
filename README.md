@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But those who attain to faith and do righteous deeds We shall bring into gardens through which running waters flow, therein to abide beyond the count of time; there shall they have spouses pure: and [thus] We shall bring them unto happiness abounding.* — **An-Nisaa (4:57)**
+> 📖 *Indeed, the word [of God’s condemnation] is bound to come true against most of them: for they will not believe.* — **Yaseen (36:7)**
 <!-- quran-verse-end -->
 
 ---
