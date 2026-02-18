@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And those who were lost in sin will behold the fire, and will know that they are bound to fall into it, and will find no way of escape therefrom.* — **Al-Kahf (18:53)**
+> 📖 *whereas him We admitted unto Our grace: for, behold, he was among the righteous.* — **Al-Anbiyaa (21:75)**
 <!-- quran-verse-end -->
 
 ---
