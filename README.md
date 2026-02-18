@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Such is He who knows all that is beyond the reach of a created being’s perception, as well as all that can be witnessed by a creature’s senses or mind: the Almighty, the Dispenser of Grace,* — **As-Sajda (32:6)**
+> 📖 *[and] that He might admit the believers, both men and women, into gardens through which running waters flow, therein to abide, and that He might efface their [past bad] deeds: and that is, in the sight of God, indeed a triumph supreme!* — **Al-Fath (48:5)**
 <!-- quran-verse-end -->
 
 ---
