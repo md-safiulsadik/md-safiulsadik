@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and even] when, towards the close of day, nobly-bred, swift-footed steeds were brought before him,* — **Saad (38:31)**
+> 📖 *for, behold, he never thought that he would have to return [to God].* — **Al-Inshiqaaq (84:14)**
 <!-- quran-verse-end -->
 
 ---
