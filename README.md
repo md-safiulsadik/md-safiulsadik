@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas him We admitted unto Our grace: for, behold, he was among the righteous.* — **Al-Anbiyaa (21:75)**
+> 📖 *O you who live in close communion with [evil] invisible beings and humans! If you [think that you] can pass beyond the regions of the heavens and the earth, pass beyond them! [But] you cannot pass beyond them, save by a sanction [from God]!* — **Ar-Rahmaan (55:33)**
 <!-- quran-verse-end -->
 
 ---
