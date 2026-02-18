@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and] that He might admit the believers, both men and women, into gardens through which running waters flow, therein to abide, and that He might efface their [past bad] deeds: and that is, in the sight of God, indeed a triumph supreme!* — **Al-Fath (48:5)**
+> 📖 *God- has promised the hypocrites, both men and women-as well as the [outright] deniers of the _ truth-the fire of hell, therein to abide: this shall be their allotted_ portion. For, God has rejected them, and long-lasting suffering awaits them.* — **At-Tawba (9:68)**
 <!-- quran-verse-end -->
 
 ---
