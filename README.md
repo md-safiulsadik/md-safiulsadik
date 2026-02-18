@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, he never thought that he would have to return [to God].* — **Al-Inshiqaaq (84:14)**
+> 📖 *ART THOU NOT aware that it is God whose limit­less glory all [creatures] that are in the heavens and on earth extol, even the birds as they spread out their wings? Each [of them] knows indeed how to pray unto Him and to glorify Him; and God has full knowledge of all that they do:* — **An-Noor (24:41)**
 <!-- quran-verse-end -->
 
 ---
