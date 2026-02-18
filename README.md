@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Whither, then, will you go?* — **At-Takwir (81:26)**
+> 📖 *[and even] when, towards the close of day, nobly-bred, swift-footed steeds were brought before him,* — **Saad (38:31)**
 <!-- quran-verse-end -->
 
 ---
