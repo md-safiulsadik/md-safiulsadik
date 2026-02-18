@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O you who live in close communion with [evil] invisible beings and humans! If you [think that you] can pass beyond the regions of the heavens and the earth, pass beyond them! [But] you cannot pass beyond them, save by a sanction [from God]!* — **Ar-Rahmaan (55:33)**
+> 📖 *NOW every community has had an apostle; and only after their apostle has appeared [and delivered his message] is judgment passed on them, in all equity; and never are they wronged.* — **Yunus (10:47)**
 <!-- quran-verse-end -->
 
 ---
