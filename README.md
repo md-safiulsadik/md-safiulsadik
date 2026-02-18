@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[However,] it is no sin for them [to appear freely] before their fathers, or their sons, or their brothers, or their brothers’ sons, or their sisters’ sons, or their womenfolk, or such [male slaves] as their right hands may possess. But [always, O wives of the Prophet,] remain con­scious of God - for, behold, God is witness unto everything.* — **Al-Ahzaab (33:55)**
+> 📖 *does it make secure, until the rise of dawn.* — **Al-Qadr (97:5)**
 <!-- quran-verse-end -->
 
 ---
