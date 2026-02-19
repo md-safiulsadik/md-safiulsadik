@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and did not feel any urge to feed the needy:* — **Al-Haaqqa (69:34)**
+> 📖 *Go on towards the threefold shadow* — **Al-Mursalaat (77:30)**
 <!-- quran-verse-end -->
 
 ---
