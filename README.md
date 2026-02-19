@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, over their hearts We have laid veils which prevent them from grasping its purport, and into their ears, deafness. And so, whenever thou dost mention, while reciting the Qur'an, thy Sustainer as the one and only Divine Being, they turn their backs [upon thee] in aversion.* — **Al-Israa (17:46)**
+> 📖 *[And] have they created the heavens and the earth? Nay, but they have no certainty of anything!* — **At-Tur (52:36)**
 <!-- quran-verse-end -->
 
 ---
