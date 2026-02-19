@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *hence, as for those who would separate themselves from their wives by saying, “Thou art as unlawful to me as my mother”, and thereafter would go back on what they have said, [their atonement] shall be the freeing of a human being from bondage before the couple may touch one another again: this you are [hereby] exhorted to do - for God is fully aware of all that you do.* — **Al-Mujaadila (58:3)**
+> 📖 *for, over their hearts We have laid veils which prevent them from grasping its purport, and into their ears, deafness. And so, whenever thou dost mention, while reciting the Qur'an, thy Sustainer as the one and only Divine Being, they turn their backs [upon thee] in aversion.* — **Al-Israa (17:46)**
 <!-- quran-verse-end -->
 
 ---
