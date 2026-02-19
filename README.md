@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Has He not found thee an orphan, and given thee shelter?* — **Ad-Dhuhaa (93:6)**
+> 📖 *and who have devised a most awesome blasphemy [against Thee],* — **Nooh (71:22)**
 <!-- quran-verse-end -->
 
 ---
