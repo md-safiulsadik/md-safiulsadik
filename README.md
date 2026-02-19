@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God has already enjoined upon you [O believers] the breaking and expiation of [such of] your oaths [as may run counter to what is right and just]: for, God is your Lord Supreme, and He alone is all-knowing, truly wise.* — **At-Tahrim (66:2)**
+> 📖 *for, indeed, if you die or are slain, it will surely be unto God that you shall be gathered.* — **Aal-i-Imraan (3:158)**
 <!-- quran-verse-end -->
 
 ---
