@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, indeed, if you die or are slain, it will surely be unto God that you shall be gathered.* — **Aal-i-Imraan (3:158)**
+> 📖 *[the while] God has readied for them [yet more] suffering severe [in the life to come] Hence, remain conscious of God, O you who are endowed with insight - [you] who have attained to faith! God has indeed bestowed on you a reminder from on high:* — **At-Talaaq (65:10)**
 <!-- quran-verse-end -->
 
 ---
