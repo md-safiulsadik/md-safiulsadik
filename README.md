@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when all beasts are gathered together,* — **At-Takwir (81:5)**
+> 📖 *And found thee lost on thy way, and guided thee?* — **Ad-Dhuhaa (93:7)**
 <!-- quran-verse-end -->
 
 ---
