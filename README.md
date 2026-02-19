@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O PROPHET! Why dost thou, out of a desire to please [one or another of] thy wives, impose [on thyself] a prohibition of something that God has made lawful to thee? But God is much-forgiving, a dispenser of grace:* — **At-Tahrim (66:1)**
+> 📖 *Or [do they think] that the hidden reality [of all that exists] is almost within their grasp, so that [in time] they can write it down?* — **At-Tur (52:41)**
 <!-- quran-verse-end -->
 
 ---
