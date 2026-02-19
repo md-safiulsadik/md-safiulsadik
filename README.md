@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Go on towards the threefold shadow* — **Al-Mursalaat (77:30)**
+> 📖 *Has He not found thee an orphan, and given thee shelter?* — **Ad-Dhuhaa (93:6)**
 <!-- quran-verse-end -->
 
 ---
