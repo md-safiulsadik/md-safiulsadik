@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[the while] God has readied for them [yet more] suffering severe [in the life to come] Hence, remain conscious of God, O you who are endowed with insight - [you] who have attained to faith! God has indeed bestowed on you a reminder from on high:* — **At-Talaaq (65:10)**
+> 📖 *and when all beasts are gathered together,* — **At-Takwir (81:5)**
 <!-- quran-verse-end -->
 
 ---
