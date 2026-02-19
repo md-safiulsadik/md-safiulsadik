@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAD WE bestowed this Qur’an from on high upon a mountain, thou wouldst indeed see it humbling itself, breaking asunder for awe of God. And [all] such parables We propound unto men, so that they might [learn to] think.* — **Al-Hashr (59:21)**
+> 📖 *God has already enjoined upon you [O believers] the breaking and expiation of [such of] your oaths [as may run counter to what is right and just]: for, God is your Lord Supreme, and He alone is all-knowing, truly wise.* — **At-Tahrim (66:2)**
 <!-- quran-verse-end -->
 
 ---
