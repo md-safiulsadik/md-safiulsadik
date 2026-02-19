@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He it is who has sent forth His Apostle with [the task of] spreading guidance and the religion of truth, to the end that He make it prevail over all [false] religion, however hateful this may be to those who ascribe divinity to aught but God.* — **As-Saff (61:9)**
+> 📖 *hence, as for those who would separate themselves from their wives by saying, “Thou art as unlawful to me as my mother”, and thereafter would go back on what they have said, [their atonement] shall be the freeing of a human being from bondage before the couple may touch one another again: this you are [hereby] exhorted to do - for God is fully aware of all that you do.* — **Al-Mujaadila (58:3)**
 <!-- quran-verse-end -->
 
 ---
