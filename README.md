@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] have they created the heavens and the earth? Nay, but they have no certainty of anything!* — **At-Tur (52:36)**
+> 📖 *and did not feel any urge to feed the needy:* — **Al-Haaqqa (69:34)**
 <!-- quran-verse-end -->
 
 ---
