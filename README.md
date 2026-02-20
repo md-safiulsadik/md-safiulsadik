@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NAY, VERILY, these [messages] are but a reminder:* — **Abasa (80:11)**
+> 📖 *wherein thou wilt hear no empty talk.* — **Al-Ghaashiya (88:11)**
 <!-- quran-verse-end -->
 
 ---
