@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *How awesome that laying-bare of the truth!* — **Al-Haaqqa (69:2)**
+> 📖 *and brought about great corruption therein:* — **Al-Fajr (89:12)**
 <!-- quran-verse-end -->
 
 ---
