@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, [O men,] but you [are lured away from God whenever you are tempted to] give the lie to [God’s] Judgment!* — **Al-Infitaar (82:9)**
+> 📖 *[And] tell [those of] My servants who have attained to faith that they should be constant in prayer and spend [in Our way], secretly and openly, out of what We provide for them as sustenance, ere there come a Day when there will be no bargaining, and no mutual befriending.* — **Ibrahim (14:31)**
 <!-- quran-verse-end -->
 
 ---
