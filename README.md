@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and this land secure!* — **At-Tin (95:3)**
+> 📖 *And they who give the lie to Our messages are deaf and dumb, in darkness deep. Whomever God wills, He lets go astray; and whomever He wills, He places upon a straight way.* — **Al-An'aam (6:39)**
 <!-- quran-verse-end -->
 
 ---
