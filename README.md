@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *an apostle from God, conveying [unto them] revelations blest with purity,* — **Al-Bayyina (98:2)**
+> 📖 *Nay, [O men,] but you [are lured away from God whenever you are tempted to] give the lie to [God’s] Judgment!* — **Al-Infitaar (82:9)**
 <!-- quran-verse-end -->
 
 ---
