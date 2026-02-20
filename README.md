@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And slay them wherever you may come upon them, and drive them away from wherever they drove you away - for oppression is even worse than killing. And fight not against them near the Inviolable House of Worship unless they fight against you there first; but if they fight against you, slay them: such shall be the recompense of those who deny the truth.* — **Al-Baqara (2:191)**
+> 📖 *and from his spouse and his children:* — **Abasa (80:36)**
 <!-- quran-verse-end -->
 
 ---
