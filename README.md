@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"from the evil of the whispering, elusive tempter* — **An-Naas (114:4)**
+> 📖 *And [now,] if they who are bent on denying the truth should fight against you, they will indeed turn their backs [in flight], and will find none to protect them and none to bring them succour:* — **Al-Fath (48:22)**
 <!-- quran-verse-end -->
 
 ---
