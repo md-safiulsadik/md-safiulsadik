@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas those who are bent on denying the truth will not cease to be in doubt about Him until the Last Hour comes suddenly upon them and [supreme] suffering befalls them on a Day void of all hope.* — **Al-Hajj (22:55)**
+> 📖 *How awesome that laying-bare of the truth!* — **Al-Haaqqa (69:2)**
 <!-- quran-verse-end -->
 
 ---
