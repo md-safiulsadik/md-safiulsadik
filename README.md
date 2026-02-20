@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and brought about great corruption therein:* — **Al-Fajr (89:12)**
+> 📖 *an apostle from God, conveying [unto them] revelations blest with purity,* — **Al-Bayyina (98:2)**
 <!-- quran-verse-end -->
 
 ---
