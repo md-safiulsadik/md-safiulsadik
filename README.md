@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and caused them to become like a field of grain that has been eaten down to stubble* — **Al-Fil (105:5)**
+> 📖 *yet as soon as He has removed the harm from you, lo! some of you [begin to] ascribe to other powers a share 'in their Sustainer's divinity* — **An-Nahl (16:54)**
 <!-- quran-verse-end -->
 
 ---
