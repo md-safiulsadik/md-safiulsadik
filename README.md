@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And they who give the lie to Our messages are deaf and dumb, in darkness deep. Whomever God wills, He lets go astray; and whomever He wills, He places upon a straight way.* — **Al-An'aam (6:39)**
+> 📖 *And it is He who has spread the earth wide and placed on it firm mountains and running waters, and created thereon two sexes of every [kind of] plant; [and it is He who] causes the night to cover the day. Verily, in all this there are messages indeed for people who think!* — **Ar-Ra'd (13:3)**
 <!-- quran-verse-end -->
 
 ---
