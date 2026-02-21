@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, they who distort the meaning of Our mes­sages are not hidden from Us: hence, which [of the two] will be in a better state - he that is [destined to be] cast into the fire, or he that shall come secure [before Us] on Resurrection Day? Do what you will: verily, He sees all that you do.* — **Fussilat (41:40)**
+> 📖 *Nay, in time you will come to understand!* — **At-Takaathur (102:3)**
 <!-- quran-verse-end -->
 
 ---
