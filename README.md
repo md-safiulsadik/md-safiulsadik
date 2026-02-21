@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Be not friends with people whom God has condemned! They [who would befriend them] are indeed bereft of all hope of a life to come - just as those deniers of the truth are bereft of all hope of [ever again seeing] those who are [now] in their graves.* — **Al-Mumtahana (60:13)**
+> 📖 *O YOU who have attained to faith! Do not ask about matters which, if they were to be made manifest to you [in terms of law], might cause you hardship; for, if you should ask about them while the Qur'an is being revealed, they might [indeed] be made manifest to you [as laws]. God has absolved [you from any obligation] in this respect: for God is much-forgiving, forbearing.* — **Al-Maaida (5:101)**
 <!-- quran-verse-end -->
 
 ---
