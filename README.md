@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
+> 📖 *for him shall We make easy the path towards hardship:* — **Al-Lail (92:10)**
 <!-- quran-verse-end -->
 
 ---
