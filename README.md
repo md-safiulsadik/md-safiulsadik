@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *together with his wife, that carrier of evil tales,* — **Al-Masad (111:4)**
+> 📖 *O YOU who have attained to faith! Be not friends with people whom God has condemned! They [who would befriend them] are indeed bereft of all hope of a life to come - just as those deniers of the truth are bereft of all hope of [ever again seeing] those who are [now] in their graves.* — **Al-Mumtahana (60:13)**
 <!-- quran-verse-end -->
 
 ---
