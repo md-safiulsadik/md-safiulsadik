@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They answered: " [This is one of] the most involved and confusing of dreams, and we have no deep knowledge of the real meaning of dreams."* — **Yusuf (12:44)**
+> 📖 *but as for those who refused to acknowledge the truth and gave the lie to Our messages - and (thus) to the announce­ment of a life to come - they will be given over to suffering.* — **Ar-Room (30:16)**
 <!-- quran-verse-end -->
 
 ---
