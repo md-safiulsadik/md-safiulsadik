@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, verily, man becomes grossly overweening* — **Al-Alaq (96:6)**
+> 📖 *so that God might show His forgiveness of all thy faults, past as well as future, and [thus] bestow upon thee the full measure of His blessings, and guide thee on a straight way,* — **Al-Fath (48:2)**
 <!-- quran-verse-end -->
 
 ---
