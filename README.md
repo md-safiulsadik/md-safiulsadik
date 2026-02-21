@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *to be a herald of glad tidings as well as a warning. And yet, [whenever this divine writ is offered to men,] most of them turn away, so that they cannot hear [its message];* — **Fussilat (41:4)**
+> 📖 *Nay, verily, man becomes grossly overweening* — **Al-Alaq (96:6)**
 <!-- quran-verse-end -->
 
 ---
