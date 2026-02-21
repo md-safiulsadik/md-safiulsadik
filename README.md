@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And behold, whenever I called unto them with a view to Thy granting them forgiveness, they put their fingers into their ears, and wrapped themselves up in their garments [of sin]; and grew obstinate, and became [yet more] arrogant in their false pride.* — **Nooh (71:7)**
+> 📖 *VERILY, they who distort the meaning of Our mes­sages are not hidden from Us: hence, which [of the two] will be in a better state - he that is [destined to be] cast into the fire, or he that shall come secure [before Us] on Resurrection Day? Do what you will: verily, He sees all that you do.* — **Fussilat (41:40)**
 <!-- quran-verse-end -->
 
 ---
