@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for him shall We make easy the path towards hardship:* — **Al-Lail (92:10)**
+> 📖 *A fire kindled by God,* — **Al-Humaza (104:6)**
 <!-- quran-verse-end -->
 
 ---
