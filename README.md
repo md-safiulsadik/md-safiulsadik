@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAVE WE NOT opened up thy heart,* — **Ash-Sharh (94:1)**
+> 📖 *But as soon as he came before them with Our [miraculous] signs, lo! they derided them,* — **Az-Zukhruf (43:47)**
 <!-- quran-verse-end -->
 
 ---
