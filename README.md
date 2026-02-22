@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, verily, they who are bent on doing evil shall have their share [of evil] like unto the share of their fellows [of old]: so let them not ask Me to hasten [their doom]!* — **Adh-Dhaariyat (51:59)**
+> 📖 *And [it ought to be] a sign for them that We bear their offspring [over the seas] in laden ships,* — **Yaseen (36:41)**
 <!-- quran-verse-end -->
 
 ---
