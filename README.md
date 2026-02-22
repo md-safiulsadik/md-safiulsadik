@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *or add to it [at will]; and [during that time] recite the Qur’an calmly and distinctly, with thy mind attuned to its meaning.* — **Al-Muzzammil (73:4)**
+> 📖 *WHOEVER does what is just and right, does so for his own good; and whoever does evil, does so to his own hurt: and never does God do the least wrong to His creatures.* — **Fussilat (41:46)**
 <!-- quran-verse-end -->
 
 ---
