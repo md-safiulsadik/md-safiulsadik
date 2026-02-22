@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND THUS it is [with most people]: if thou ask them, “Who is it that has created the heavens and the earth?” - they will surely answer, “God.” Say: “[Then you ought to know that] all praise is due to God!”- for most of them do not know [what this implies].* — **Luqman (31:25)**
+> 📖 *endure it today as an outcome of your persistent denial of the truth!”* — **Yaseen (36:64)**
 <!-- quran-verse-end -->
 
 ---
