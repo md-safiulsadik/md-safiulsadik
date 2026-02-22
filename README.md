@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and drive those who were lost in sin unto hell as a thirsty herd is driven to a well –* — **Maryam (19:86)**
+> 📖 *BUT, ALAS, among those generations [whom We destroyed] before your time there were no people endowed with any virtue - [people] who would speak out against the [spread of] corruption on earth -except the few of them whom We saved [because of their righteousness], whereas those who were bent on evildoing only pursued pleasures which corrupted their whole being, and so lost themselves in sinning.* — **Hud (11:116)**
 <!-- quran-verse-end -->
 
 ---
