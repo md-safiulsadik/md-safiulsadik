@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [it ought to be] a sign for them that We bear their offspring [over the seas] in laden ships,* — **Yaseen (36:41)**
+> 📖 *and drive those who were lost in sin unto hell as a thirsty herd is driven to a well –* — **Maryam (19:86)**
 <!-- quran-verse-end -->
 
 ---
