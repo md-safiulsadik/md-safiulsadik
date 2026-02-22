@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and as [We inspired other] apostles whom We have mentioned to thee ere this, as well as apostles whom We have not mentioned to thee; and as God spoke His word unto Moses:* — **An-Nisaa (4:164)**
+> 📖 *and unto each of them did We proffer lessons and each of them did We destroy with utter destruction.* — **Al-Furqaan (25:39)**
 <!-- quran-verse-end -->
 
 ---
