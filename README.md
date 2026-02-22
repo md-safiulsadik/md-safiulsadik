@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! No men shall deride [other] men: it may well be that those [whom they deride] are better than themselves; and no women [shall deride other] women: it may well be that those [whom they deride] are better than them­selves. And neither shall you defame one another, nor insult one another by [opprobrious] epithets: evil is all imputation of iniquity after [one has attained to] faith; and they who [become guilty thereof and] do not repent - it is they, they who are evildoers!* — **Al-Hujuraat (49:11)**
+> 📖 *and [how] We make gardens of date-palms and vines [grow] thereon, and cause springs to gush [forth] within it,* — **Yaseen (36:34)**
 <!-- quran-verse-end -->
 
 ---
