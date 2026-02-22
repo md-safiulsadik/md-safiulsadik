@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Those who do not believe in it [mockingly] ask for its speedy advent whereas those who have attained to faith stand in awe of it, and know it to be the truth. Oh, verily, they who call the Last Hour in question have indeed gone far astray!* — **Ash-Shura (42:18)**
+> 📖 *AND NEVER have We sent forth any apostle otherwise than [with a message] in his own people's tongue, so that he might make [the truth] clear unto them; but God lets go astray him that wills [to go astray], and guides him that wills [to be guided] -for He alone is almighty, truly wise.* — **Ibrahim (14:4)**
 <!-- quran-verse-end -->
 
 ---
