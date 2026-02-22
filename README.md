@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND NEVER have We sent forth any apostle otherwise than [with a message] in his own people's tongue, so that he might make [the truth] clear unto them; but God lets go astray him that wills [to go astray], and guides him that wills [to be guided] -for He alone is almighty, truly wise.* — **Ibrahim (14:4)**
+> 📖 *AND THUS it is [with most people]: if thou ask them, “Who is it that has created the heavens and the earth?” - they will surely answer, “God.” Say: “[Then you ought to know that] all praise is due to God!”- for most of them do not know [what this implies].* — **Luqman (31:25)**
 <!-- quran-verse-end -->
 
 ---
