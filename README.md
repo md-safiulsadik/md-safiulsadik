@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, he that hates thee has indeed been cut off [from all that is good]!* — **Al-Kawthar (108:3)**
+> 📖 *And, verily, they who are bent on doing evil shall have their share [of evil] like unto the share of their fellows [of old]: so let them not ask Me to hasten [their doom]!* — **Adh-Dhaariyat (51:59)**
 <!-- quran-verse-end -->
 
 ---
