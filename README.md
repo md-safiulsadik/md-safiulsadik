@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *endure it today as an outcome of your persistent denial of the truth!”* — **Yaseen (36:64)**
+> 📖 *and as [We inspired other] apostles whom We have mentioned to thee ere this, as well as apostles whom We have not mentioned to thee; and as God spoke His word unto Moses:* — **An-Nisaa (4:164)**
 <!-- quran-verse-end -->
 
 ---
