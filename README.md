@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHOEVER does what is just and right, does so for his own good; and whoever does evil, does so to his own hurt: and never does God do the least wrong to His creatures.* — **Fussilat (41:46)**
+> 📖 *O YOU who have attained to faith! No men shall deride [other] men: it may well be that those [whom they deride] are better than themselves; and no women [shall deride other] women: it may well be that those [whom they deride] are better than them­selves. And neither shall you defame one another, nor insult one another by [opprobrious] epithets: evil is all imputation of iniquity after [one has attained to] faith; and they who [become guilty thereof and] do not repent - it is they, they who are evildoers!* — **Al-Hujuraat (49:11)**
 <!-- quran-verse-end -->
 
 ---
