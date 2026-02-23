@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *does it make secure, until the rise of dawn.* — **Al-Qadr (97:5)**
+> 📖 *Say: "None can bear witness between me and you as God does: verily, fully aware is He of His creatures, and He sees all [that is in their hearts]."* — **Al-Israa (17:96)**
 <!-- quran-verse-end -->
 
 ---
