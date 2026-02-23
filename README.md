@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, Thou seest all that is within us!"* — **Taa-Haa (20:35)**
+> 📖 *And that was [the end of the tribe of] `Ad, [who] had rejected their Sustainer's messages, and rebelled against His apostles, and followed the bidding of every arrogant enemy of the truth.* — **Hud (11:59)**
 <!-- quran-verse-end -->
 
 ---
