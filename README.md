@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And that was [the end of the tribe of] `Ad, [who] had rejected their Sustainer's messages, and rebelled against His apostles, and followed the bidding of every arrogant enemy of the truth.* — **Hud (11:59)**
+> 📖 *[and they will be told:] "Eat and drink in good cheer in return for what you did [in life]!"* — **Al-Mursalaat (77:43)**
 <!-- quran-verse-end -->
 
 ---
