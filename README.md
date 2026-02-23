@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "None can bear witness between me and you as God does: verily, fully aware is He of His creatures, and He sees all [that is in their hearts]."* — **Al-Israa (17:96)**
+> 📖 *SAY: "O you who deny the truth!* — **Al-Kaafiroon (109:1)**
 <!-- quran-verse-end -->
 
 ---
