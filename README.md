@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *you and those ancient forebears of yours?* — **Ash-Shu'araa (26:76)**
+> 📖 *[O MEN!] Are you more difficult to create than the heaven which He has built?* — **An-Naazi'aat (79:27)**
 <!-- quran-verse-end -->
 
 ---
