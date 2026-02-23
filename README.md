@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but this [divine writ which they reject] is a discourse sublime,* — **Al-Burooj (85:21)**
+> 📖 *and Mount Sinai,* — **At-Tin (95:2)**
 <!-- quran-verse-end -->
 
 ---
