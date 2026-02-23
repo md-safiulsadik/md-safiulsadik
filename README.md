@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereupon We shall, indeed, draw forth from every group [of sinners] the ones that had been most determined in their disdainful rebellion against the Most Gracious:* — **Maryam (19:69)**
+> 📖 *Has He not found thee an orphan, and given thee shelter?* — **Ad-Dhuhaa (93:6)**
 <!-- quran-verse-end -->
 
 ---
