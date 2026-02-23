@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and they will be told:] "Eat and drink in good cheer in return for what you did [in life]!"* — **Al-Mursalaat (77:43)**
+> 📖 *And what could make thee conceive what that [abyss] will be?* — **Al-Qaari'a (101:10)**
 <!-- quran-verse-end -->
 
 ---
