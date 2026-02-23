@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *verily, it will close in upon them* — **Al-Humaza (104:8)**
+> 📖 *you and those ancient forebears of yours?* — **Ash-Shu'araa (26:76)**
 <!-- quran-verse-end -->
 
 ---
