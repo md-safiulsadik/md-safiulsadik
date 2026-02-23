@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[O MEN!] Are you more difficult to create than the heaven which He has built?* — **An-Naazi'aat (79:27)**
+> 📖 *does it make secure, until the rise of dawn.* — **Al-Qadr (97:5)**
 <!-- quran-verse-end -->
 
 ---
