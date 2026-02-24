@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [thus] He displays His wonders before you: which, then, of God’s wonders can you still deny?* — **Ghafir (40:81)**
+> 📖 *HAVE YOU given thought [to how you will fare] if this be truly [a revelation] from God, the while you deny its truth? Who could be more astray than one who places himself [so] deeply in the wrong?* — **Fussilat (41:52)**
 <!-- quran-verse-end -->
 
 ---
