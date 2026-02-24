@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *If anyone thinks that God will not succour him in this world and in the life to come, let him reach out unto heaven by any [other] means and [thus try to] make headway: and then let him see whether this scheme of his will indeed do away with the cause of his anguish.* — **Al-Hajj (22:15)**
+> 📖 *[and] to whom the dominion of the heavens and the earth belongs. But God is witness unto everything!* — **Al-Burooj (85:9)**
 <!-- quran-verse-end -->
 
 ---
