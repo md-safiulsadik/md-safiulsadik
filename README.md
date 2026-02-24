@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the Day when none of their scheming will be of the least avail to them, and they will receive no succour.* — **At-Tur (52:46)**
+> 📖 *NO CALAMITY can ever befall [man] unless it be by God's leave: hence, whoever believes in God guides his [own] heart [towards this truth]; and God has full knowledge of everything.* — **At-Taghaabun (64:11)**
 <!-- quran-verse-end -->
 
 ---
