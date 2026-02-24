@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *to God, unto whom all that is in the heavens and all that is on earth belongs. But woe unto those who deny the truth: for suffering severe* — **Ibrahim (14:2)**
+> 📖 *the Day when none of their scheming will be of the least avail to them, and they will receive no succour.* — **At-Tur (52:46)**
 <!-- quran-verse-end -->
 
 ---
