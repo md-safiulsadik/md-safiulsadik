@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "Behold, the death from which you are fleeing is bound to overtake you - and then you will be brought back unto Him who knows all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind, whereupon He will make you truly understand all that you were doing [in life].* — **Al-Jumu'a (62:8)**
+> 📖 *How, then, if you refuse to acknowledge the truth, will you protect yourselves on that Day which shall turn the hair of children grey,* — **Al-Muzzammil (73:17)**
 <!-- quran-verse-end -->
 
 ---
