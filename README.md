@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And withal, they were not enjoined aught but that they should worship God, sincere in their faith in Him alone, turning away from all that is false; and that they should be constant in prayer; and that they should spend in charity: for this is a moral law endowed with ever-true soundness and clarity.* — **Al-Bayyina (98:5)**
+> 📖 *to God, unto whom all that is in the heavens and all that is on earth belongs. But woe unto those who deny the truth: for suffering severe* — **Ibrahim (14:2)**
 <!-- quran-verse-end -->
 
 ---
