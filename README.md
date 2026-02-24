@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, withal, they have no call to watch over [the beliefs of] others...* — **Al-Mutaffifin (83:33)**
+> 📖 *And [thus, too, did We deal with] Qarun and Pharaoh, and Haman: to them had come Moses with all evidence of the truth, but they behaved arrogantly on earth [and rejected him]; and withal, they could not escape [Us].* — **Al-Ankaboot (29:39)**
 <!-- quran-verse-end -->
 
 ---
