@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let them, therefore, worship the Sustainer of this Temple;* — **Quraish (106:3)**
+> 📖 *And [thus] He displays His wonders before you: which, then, of God’s wonders can you still deny?* — **Ghafir (40:81)**
 <!-- quran-verse-end -->
 
 ---
