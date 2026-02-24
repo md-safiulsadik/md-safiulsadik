@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [thus, too, did We deal with] Qarun and Pharaoh, and Haman: to them had come Moses with all evidence of the truth, but they behaved arrogantly on earth [and rejected him]; and withal, they could not escape [Us].* — **Al-Ankaboot (29:39)**
+> 📖 *BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.* — **Al-Qadr (97:1)**
 <!-- quran-verse-end -->
 
 ---
