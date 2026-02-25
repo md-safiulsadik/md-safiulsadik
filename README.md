@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *- [and then,] "Nay, but we have been rendered destitute!"* — **Al-Qalam (68:27)**
+> 📖 *and the earth and all its expanse!* — **Ash-Shams (91:6)**
 <!-- quran-verse-end -->
 
 ---
