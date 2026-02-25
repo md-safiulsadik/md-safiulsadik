@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, they [who refuse to accept it] devise many a false argument [to disprove its truth];* — **At-Taariq (86:15)**
+> 📖 *and the morn as it softly breathes:* — **At-Takwir (81:18)**
 <!-- quran-verse-end -->
 
 ---
