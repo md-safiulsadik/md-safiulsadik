@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the earth and all its expanse!* — **Ash-Shams (91:6)**
+> 📖 *He will guide them [in the hereafter as well], and will set their hearts at rest,* — **Muhammad (47:5)**
 <!-- quran-verse-end -->
 
 ---
