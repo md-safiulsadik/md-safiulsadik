@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He will guide them [in the hereafter as well], and will set their hearts at rest,* — **Muhammad (47:5)**
+> 📖 *They answered: “We found our forefathers worshipping them.”* — **Al-Anbiyaa (21:53)**
 <!-- quran-verse-end -->
 
 ---
