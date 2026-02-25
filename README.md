@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They answered: “We found our forefathers worshipping them.”* — **Al-Anbiyaa (21:53)**
+> 📖 *for they will have no intercessors in the beings to whom they were wont to ascribe a share in God’s divinity, seeing that [by then] they themselves will have ceased to believe in their erstwhile blasphemous fancies.* — **Ar-Room (30:13)**
 <!-- quran-verse-end -->
 
 ---
