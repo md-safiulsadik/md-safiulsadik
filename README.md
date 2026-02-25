@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thereupon his wife approached [the guests] with a loud cry, and struck her face [in astonishment] and exclaimed: “A barren old woman [like me]!”* — **Adh-Dhaariyat (51:29)**
+> 📖 *Behold, they [who refuse to accept it] devise many a false argument [to disprove its truth];* — **At-Taariq (86:15)**
 <!-- quran-verse-end -->
 
 ---
