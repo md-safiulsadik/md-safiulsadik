@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAVE YOU given thought [to how you will fare] if this be truly [a revelation] from God, the while you deny its truth? Who could be more astray than one who places himself [so] deeply in the wrong?* — **Fussilat (41:52)**
+> 📖 *NAY! I call to witness the Day of Resurrection!* — **Al-Qiyaama (75:1)**
 <!-- quran-verse-end -->
 
 ---
