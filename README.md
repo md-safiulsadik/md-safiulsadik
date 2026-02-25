@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Remain, then, patient in adversity: verily, Gods promise [of resurrection] is true indeed - so let not those who are devoid of all inner certainty disquiet thy mind!* — **Ar-Room (30:60)**
+> 📖 *and the mountains will be like fluffy tufts of wool....* — **Al-Qaari'a (101:5)**
 <!-- quran-verse-end -->
 
 ---
