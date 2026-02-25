@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for they will have no intercessors in the beings to whom they were wont to ascribe a share in God’s divinity, seeing that [by then] they themselves will have ceased to believe in their erstwhile blasphemous fancies.* — **Ar-Room (30:13)**
+> 📖 *Remain, then, patient in adversity: verily, Gods promise [of resurrection] is true indeed - so let not those who are devoid of all inner certainty disquiet thy mind!* — **Ar-Room (30:60)**
 <!-- quran-verse-end -->
 
 ---
