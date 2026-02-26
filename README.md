@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
+> 📖 *and unto thy Sustainer turn with love.* — **Ash-Sharh (94:8)**
 <!-- quran-verse-end -->
 
 ---
