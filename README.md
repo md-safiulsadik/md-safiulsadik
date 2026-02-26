@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O Prophet! Whenever believing women come unto thee to pledge their allegiance to thee, [pledging] that [henceforth] they would not ascribe divinity, in any way, to aught but God, and would not steal, and would not commit adultery, and would not kill their children, and would not indulge in slander, falsely devising it out of nothingness: and would not disobey thee in anything [that thou declarest to be] right - then accept their pledge of allegiance, and pray to God to forgive them their [past] sins: for, behold, God is much-forgiving, a dispenser of grace.* — **Al-Mumtahana (60:12)**
+> 📖 *IS THEN -HE who was dead [in spirit] and whom We thereupon gave life, and for whom We set up a light whereby he might see his way among men - [is then he] like one [who is lost] in darkness deep, out of which he cannot emerge? [But] thus it is: goodly seem all their own doings to those who deny the truth.* — **Al-An'aam (6:122)**
 <!-- quran-verse-end -->
 
 ---
