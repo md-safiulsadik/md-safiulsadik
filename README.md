@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Eat, then, and drink, and let thine eye be gladdened! And if thou shouldst see any human being, convey this unto him: `Behold, abstinence from speech have I vowed unto the Most Gracious; hence, I may not speak today to any mortal.* — **Maryam (19:26)**
+> 📖 *and would indeed have cut his life-vein.* — **Al-Haaqqa (69:46)**
 <!-- quran-verse-end -->
 
 ---
