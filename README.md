@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And Moses replied: “My Sustainer knows best as to who comes with guidance from Him, and to whom the future belongs! Verily, never will evil­doers attain to a happy state!”* — **Al-Qasas (28:37)**
+> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
 <!-- quran-verse-end -->
 
 ---
