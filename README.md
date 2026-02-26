@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And Moses added: "If you should [ever] deny the truth-you and whoever else lives on earth, all of you-[know that,] verily, God is indeed self-sufficient, ever to be praised!"* — **Ibrahim (14:8)**
+> 📖 *And Moses replied: “My Sustainer knows best as to who comes with guidance from Him, and to whom the future belongs! Verily, never will evil­doers attain to a happy state!”* — **Al-Qasas (28:37)**
 <!-- quran-verse-end -->
 
 ---
