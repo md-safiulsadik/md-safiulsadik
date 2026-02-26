@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which smote them with stone-hard blows of chastisement pre-ordained,* — **Al-Fil (105:4)**
+> 📖 *And Moses added: "If you should [ever] deny the truth-you and whoever else lives on earth, all of you-[know that,] verily, God is indeed self-sufficient, ever to be praised!"* — **Ibrahim (14:8)**
 <!-- quran-verse-end -->
 
 ---
