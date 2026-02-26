@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and would indeed have cut his life-vein.* — **Al-Haaqqa (69:46)**
+> 📖 *But if one happens to be of those who are wont to call the truth a lie, and [thus] go astray,* — **Al-Waaqia (56:92)**
 <!-- quran-verse-end -->
 
 ---
