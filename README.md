@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [has endowed me with] piety towards my mother; and He has not made me haughty or bereft of grace.* — **Maryam (19:32)**
+> 📖 *[a reward from] the Sustainer of the heavens and the earth and all that is between them, the Most Gracious! [And] none shall have it in their power to raise their voices unto Him* — **An-Naba (78:37)**
 <!-- quran-verse-end -->
 
 ---
