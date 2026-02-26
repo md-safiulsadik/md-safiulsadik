@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[a reward from] the Sustainer of the heavens and the earth and all that is between them, the Most Gracious! [And] none shall have it in their power to raise their voices unto Him* — **An-Naba (78:37)**
+> 📖 *Say: "Verily, no one could ever protect me from God, nor could I ever find a place to hide from Him* — **Al-Jinn (72:22)**
 <!-- quran-verse-end -->
 
 ---
