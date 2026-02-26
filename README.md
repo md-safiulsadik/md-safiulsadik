@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and unto thy Sustainer turn with love.* — **Ash-Sharh (94:8)**
+> 📖 *and [has endowed me with] piety towards my mother; and He has not made me haughty or bereft of grace.* — **Maryam (19:32)**
 <!-- quran-verse-end -->
 
 ---
