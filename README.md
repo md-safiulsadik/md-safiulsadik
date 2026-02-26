@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "Verily, no one could ever protect me from God, nor could I ever find a place to hide from Him* — **Al-Jinn (72:22)**
+> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:45)**
 <!-- quran-verse-end -->
 
 ---
