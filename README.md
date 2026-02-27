@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *of fire fiercely burning [for all who have attained to faith]!* — **Al-Burooj (85:5)**
+> 📖 *Let them, therefore, worship the Sustainer of this Temple;* — **Quraish (106:3)**
 <!-- quran-verse-end -->
 
 ---
