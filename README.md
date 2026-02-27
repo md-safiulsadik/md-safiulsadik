@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but they who are bent on denying the truth give the lie [to this divine writ]!* — **Al-Inshiqaaq (84:22)**
+> 📖 *Now those who lived before these [sinners] did, too, devise many a blasphemy -but the most subtle devising is that of God, who knows what each human being deserves: and the deniers of the truth will [in time] come to know to whom the future belongs.* — **Ar-Ra'd (13:42)**
 <!-- quran-verse-end -->
 
 ---
