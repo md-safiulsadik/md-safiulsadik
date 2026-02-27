@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and you devour the inheritance [of others] with devouring greed,* — **Al-Fajr (89:19)**
+> 📖 *O PROPHET! Behold, We have made lawful to thee thy wives unto whom thou hast paid their dowers, as well as those whom thy right hand has come to possess from among the captives of war whom God has bestowed upon thee. And [We have made lawful to thee] the daughters of thy paternal uncles and aunts, and the daughters of thy maternal uncles and aunts, who have migrated with thee [to Yathrib]; and any believing woman who offers herself freely to the Prophet and whom the Prophet might be willing to wed: [this latter being but] a privilege for thee, and not for other believers - [seeing that] We have already made known what We have enjoined upon them with regard to their wives and those whom their right hands may possess. [And] in order that thou be not burdened with [undue] anxiety - for God is indeed much-forgiving, a dispenser of grace –* — **Al-Ahzaab (33:50)**
 <!-- quran-verse-end -->
 
 ---
