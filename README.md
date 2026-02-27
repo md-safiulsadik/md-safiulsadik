@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SUCH is the suffering [with which We try some people in this world]; but greater by far will be the suffering [which sinners shall have to bear] in the life to come - if they but knew it!* — **Al-Qalam (68:33)**
+> 📖 *Behold, I did know that [one day] I would have to face my account!* — **Al-Haaqqa (69:20)**
 <!-- quran-verse-end -->
 
 ---
