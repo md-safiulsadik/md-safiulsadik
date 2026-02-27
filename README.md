@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and lifted from thee the burden* — **Ash-Sharh (94:2)**
+> 📖 *and preferred the life of this world [to the good of his soul],* — **An-Naazi'aat (79:38)**
 <!-- quran-verse-end -->
 
 ---
