@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now those who lived before these [sinners] did, too, devise many a blasphemy -but the most subtle devising is that of God, who knows what each human being deserves: and the deniers of the truth will [in time] come to know to whom the future belongs.* — **Ar-Ra'd (13:42)**
+> 📖 *They will be given a drink of pure wine whereon the seal [of God] will have been set,* — **Al-Mutaffifin (83:25)**
 <!-- quran-verse-end -->
 
 ---
