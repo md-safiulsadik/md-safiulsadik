@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *No food for them save the bitterness of dry thorns,* — **Al-Ghaashiya (88:6)**
+> 📖 *of fire fiercely burning [for all who have attained to faith]!* — **Al-Burooj (85:5)**
 <!-- quran-verse-end -->
 
 ---
