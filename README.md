@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[for] it is God [Himself] who has bestowed revelation from on high, setting forth the truth, and [thus given man] a balance [wherewith to weigh right and wrong]. And for all thou knowest, the Last Hour may well be near!* — **Ash-Shura (42:17)**
+> 📖 *But [there is many a one] who says to his parents [whenever they try to imbue him with faith in God]: “Fie upon both of you! Do you promise me that I shall be brought forth [from the dead], although [so many] generations have passed away before me?” And [while] they both pray for God’s help [and say], “Alas for thee! For, behold, God’s promise always comes true!” - he but answers, “All this is nothing but fables of ancient times!”* — **Al-Ahqaf (46:17)**
 <!-- quran-verse-end -->
 
 ---
