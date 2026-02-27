@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and preferred the life of this world [to the good of his soul],* — **An-Naazi'aat (79:38)**
+> 📖 *He has created man out of sounding clay, like pottery,* — **Ar-Rahmaan (55:14)**
 <!-- quran-verse-end -->
 
 ---
