@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He has created man out of sounding clay, like pottery,* — **Ar-Rahmaan (55:14)**
+> 📖 *Could We, then, be [thought of as being] worn out by the first creation? Nay - but some people are [still] lost in doubt about [the possibility of] a new creation!* — **Qaaf (50:15)**
 <!-- quran-verse-end -->
 
 ---
