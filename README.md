@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say [O Muhammad]: “Behold, I am bidden to worship God, sincere in my faith in Him alone;* — **Az-Zumar (39:11)**
+> 📖 *No food for them save the bitterness of dry thorns,* — **Al-Ghaashiya (88:6)**
 <!-- quran-verse-end -->
 
 ---
