@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Could We, then, be [thought of as being] worn out by the first creation? Nay - but some people are [still] lost in doubt about [the possibility of] a new creation!* — **Qaaf (50:15)**
+> 📖 *verily, with every hardship comes ease!* — **Ash-Sharh (94:6)**
 <!-- quran-verse-end -->
 
 ---
