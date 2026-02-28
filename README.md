@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what that sudden calamity will be?* — **Al-Qaari'a (101:3)**
+> 📖 *and whenever they return to people of their own kind, they return full of jests;* — **Al-Mutaffifin (83:31)**
 <!-- quran-verse-end -->
 
 ---
