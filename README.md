@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [remember:] whatever you are given [now] is but for the [passing] enjoyment of life in this world, and for its embellishment - whereas that which is with God is [so much] better and more enduring. Will you not, then, use your reason?* — **Al-Qasas (28:60)**
+> 📖 *for, behold, he never thought that he would have to return [to God].* — **Al-Inshiqaaq (84:14)**
 <!-- quran-verse-end -->
 
 ---
