@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for you and for your animals to enjoy.* — **Abasa (80:32)**
+> 📖 *and endure with patience whatever people may say [against thee], and avoid them with a comely avoidance.* — **Al-Muzzammil (73:10)**
 <!-- quran-verse-end -->
 
 ---
