@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, he never thought that he would have to return [to God].* — **Al-Inshiqaaq (84:14)**
+> 📖 *for you and for your animals to enjoy.* — **Abasa (80:32)**
 <!-- quran-verse-end -->
 
 ---
