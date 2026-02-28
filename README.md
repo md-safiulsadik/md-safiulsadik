@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *he will in time be called to account with an easy accounting,* — **Al-Inshiqaaq (84:8)**
+> 📖 *shall be engulfed by an abyss.* — **Al-Qaari'a (101:9)**
 <!-- quran-verse-end -->
 
 ---
