@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and endure with patience whatever people may say [against thee], and avoid them with a comely avoidance.* — **Al-Muzzammil (73:10)**
+> 📖 *[And] tell [those of] My servants who have attained to faith that they should be constant in prayer and spend [in Our way], secretly and openly, out of what We provide for them as sustenance, ere there come a Day when there will be no bargaining, and no mutual befriending.* — **Ibrahim (14:31)**
 <!-- quran-verse-end -->
 
 ---
