@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *shall be engulfed by an abyss.* — **Al-Qaari'a (101:9)**
+> 📖 *And what could make thee conceive what that sudden calamity will be?* — **Al-Qaari'a (101:3)**
 <!-- quran-verse-end -->
 
 ---
