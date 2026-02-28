@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and whenever they return to people of their own kind, they return full of jests;* — **Al-Mutaffifin (83:31)**
+> 📖 *[Thus, part of such war-gains shall be given] to the poor among those who have forsaken the domain of evil: those who have been driven from their homelands and their possessions, seeking favour with God and [His] goodly acceptance, and who aid [the cause of] God and His Apostle: it is they, they who are true to their word!* — **Al-Hashr (59:8)**
 <!-- quran-verse-end -->
 
 ---
