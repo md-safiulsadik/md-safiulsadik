@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].* — **Al-Kawthar (108:2)**
+> 📖 *he will in time be called to account with an easy accounting,* — **Al-Inshiqaaq (84:8)**
 <!-- quran-verse-end -->
 
 ---
