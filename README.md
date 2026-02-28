@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *What is amiss with you? On what do you base your judgment [of right and wrong]?* — **Al-Qalam (68:36)**
+> 📖 *And [remember:] whatever you are given [now] is but for the [passing] enjoyment of life in this world, and for its embellishment - whereas that which is with God is [so much] better and more enduring. Will you not, then, use your reason?* — **Al-Qasas (28:60)**
 <!-- quran-verse-end -->
 
 ---
