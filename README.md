@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, now that you have withdrawn from them and from all that they worship instead of God, take refuge in that cave: God will spread His grace over you, and will endow you - whatever your [outward] condition - with all that your souls may need!* — **Al-Kahf (18:16)**
+> 📖 *What is amiss with you? On what do you base your judgment [of right and wrong]?* — **Al-Qalam (68:36)**
 <!-- quran-verse-end -->
 
 ---
