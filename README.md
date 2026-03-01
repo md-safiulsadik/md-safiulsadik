@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said she: "This, then, is he about whom you have been blaming me! And, indeed, I did try to make him yield himself unto me, but he remained chaste. Now, however, if he does not do what I bid him, he shall most certainly be imprisoned, and shall most certainly find himself among the despised!* — **Yusuf (12:32)**
+> 📖 *Nothing did I tell them beyond what Thou didst bid me [to say]: `Worship God, [who is] my Sustainer as well as your Sustainer.' And I bore witness to what they did as long as I dwelt in their midst; but since Thou hast caused me to die, Thou alone hast been their keeper: for Thou art witness unto everything.* — **Al-Maaida (5:117)**
 <!-- quran-verse-end -->
 
 ---
