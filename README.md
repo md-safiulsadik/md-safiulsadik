@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And,] verily, those who have attained to faith, and do righteous deeds - it is they, they who are the best of all creatures.* — **Al-Bayyina (98:7)**
+> 📖 *The Most Gracious, the Dispenser of Grace,* — **Al-Faatiha (1:3)**
 <!-- quran-verse-end -->
 
 ---
