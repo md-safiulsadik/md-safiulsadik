@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet, verily, thou art bound to die, [O Muhammad,] and, verily, they, too, are bound to die:* — **Az-Zumar (39:30)**
+> 📖 *For, woe unto those who are bent on denying the truth - [woe] on the Day which they have been promised* — **Adh-Dhaariyat (51:60)**
 <!-- quran-verse-end -->
 
 ---
