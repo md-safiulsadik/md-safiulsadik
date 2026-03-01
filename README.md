@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet, before this there was the revelation of Moses, a guide and a [sign of God’s] grace; and this [Qur’an] is a divine writ confirming the truth [of the Torah] in the Arabic tongue, to warn those who are bent on evildoing, and [to bring] a glad tiding to the doers of good:* — **Al-Ahqaf (46:12)**
+> 📖 *Have they, perchance, handed down this [way of thinking] as a legacy unto one another? Nay, they are people filled with overweening ar­rogance!* — **Adh-Dhaariyat (51:53)**
 <!-- quran-verse-end -->
 
 ---
