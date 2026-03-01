@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NAY, VERILY - the record of the truly virtuous is [set down] in a mode most lofty!* — **Al-Mutaffifin (83:18)**
+> 📖 *Yet, verily, thou art bound to die, [O Muhammad,] and, verily, they, too, are bound to die:* — **Az-Zumar (39:30)**
 <!-- quran-verse-end -->
 
 ---
