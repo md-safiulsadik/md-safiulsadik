@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, woe unto those who are bent on denying the truth - [woe] on the Day which they have been promised* — **Adh-Dhaariyat (51:60)**
+> 📖 *[In the life to come] he shall have to endure a fire fiercely glowing;* — **Al-Masad (111:3)**
 <!-- quran-verse-end -->
 
 ---
