@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[even thus, O men,] are you bound to move; onward from stage to stage.* — **Al-Inshiqaaq (84:19)**
+> 📖 *Said she: "This, then, is he about whom you have been blaming me! And, indeed, I did try to make him yield himself unto me, but he remained chaste. Now, however, if he does not do what I bid him, he shall most certainly be imprisoned, and shall most certainly find himself among the despised!* — **Yusuf (12:32)**
 <!-- quran-verse-end -->
 
 ---
