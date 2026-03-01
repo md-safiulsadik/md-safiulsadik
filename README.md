@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, indeed, We made this Qur’an easy to bear in mind: who, then, is willing to take it to heart?* — **Al-Qamar (54:17)**
+> 📖 *and will reward them for all their patience in adversity with a garden [of bliss] and with [garments of] silk.* — **Al-Insaan (76:12)**
 <!-- quran-verse-end -->
 
 ---
