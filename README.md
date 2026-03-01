@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Have they, perchance, handed down this [way of thinking] as a legacy unto one another? Nay, they are people filled with overweening ar­rogance!* — **Adh-Dhaariyat (51:53)**
+> 📖 *Hence, indeed, We made this Qur’an easy to bear in mind: who, then, is willing to take it to heart?* — **Al-Qamar (54:17)**
 <!-- quran-verse-end -->
 
 ---
