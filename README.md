@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Most Gracious, the Dispenser of Grace,* — **Al-Faatiha (1:3)**
+> 📖 *NAY, VERILY - the record of the truly virtuous is [set down] in a mode most lofty!* — **Al-Mutaffifin (83:18)**
 <!-- quran-verse-end -->
 
 ---
