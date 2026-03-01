@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and] to whom the dominion of the heavens and the earth belongs. But God is witness unto everything!* — **Al-Burooj (85:9)**
+> 📖 *But I shall withdraw from you all and from whatever you invoke instead of God, and shall invoke my Sustainer [alone]: it may well be that my prayer [for thee] will not remain unanswered by my Sustainer."* — **Maryam (19:48)**
 <!-- quran-verse-end -->
 
 ---
