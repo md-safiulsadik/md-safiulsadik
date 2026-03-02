@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *behold, we stand in awe of our Sustainer's judgment on a distressful, fateful Day!"* — **Al-Insaan (76:10)**
+> 📖 *WHOEVER does what is just and right, does so for his own good; and whoever does evil, does so to his own hurt: and never does God do the least wrong to His creatures.* — **Fussilat (41:46)**
 <!-- quran-verse-end -->
 
 ---
