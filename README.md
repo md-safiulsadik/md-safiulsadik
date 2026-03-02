@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *This, because God would never change the blessings with which He has graced a people unless they change their inner selves: and [know] that God is all-hearing, all-seeing.* — **Al-Anfaal (8:53)**
+> 📖 *And so, [when he was born,] We inspired [thus] the mother of Moses: Suckle him [for a time], and then, when thou hast cause to fear for him, cast him into the river, and have no fear and do not grieve - for We shall restore him to thee, and shall make him one of Our message-bearers!”* — **Al-Qasas (28:7)**
 <!-- quran-verse-end -->
 
 ---
