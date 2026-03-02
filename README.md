@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND SO, when the piercing call [of resurrection] is heard* — **Abasa (80:33)**
+> 📖 *behold, we stand in awe of our Sustainer's judgment on a distressful, fateful Day!"* — **Al-Insaan (76:10)**
 <!-- quran-verse-end -->
 
 ---
