@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Be not friends with people whom God has condemned! They [who would befriend them] are indeed bereft of all hope of a life to come - just as those deniers of the truth are bereft of all hope of [ever again seeing] those who are [now] in their graves.* — **Al-Mumtahana (60:13)**
+> 📖 *[And as for you others,] return to your father and say: `O our father! Behold, thy son has stolen-but we [can] bear witness to no more than what has become known to us; and [although we gave you our pledge,] we could not guard against something that [lay hidden in the future and, hence,] was beyond the reach of our perception.* — **Yusuf (12:81)**
 <!-- quran-verse-end -->
 
 ---
