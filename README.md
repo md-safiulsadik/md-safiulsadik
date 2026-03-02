@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the moon as it reflects the sun!* — **Ash-Shams (91:2)**
+> 📖 *This, because God would never change the blessings with which He has graced a people unless they change their inner selves: and [know] that God is all-hearing, all-seeing.* — **Al-Anfaal (8:53)**
 <!-- quran-verse-end -->
 
 ---
