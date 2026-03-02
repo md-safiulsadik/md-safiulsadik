@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither do you worship that which I worship!* — **Al-Kaafiroon (109:3)**
+> 📖 *AND SO, when the piercing call [of resurrection] is heard* — **Abasa (80:33)**
 <!-- quran-verse-end -->
 
 ---
