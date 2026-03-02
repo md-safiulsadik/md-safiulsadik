@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, [warn all men of] the Day when the enemies of God shall be gathered together before the fire, and then shall be driven onward,* — **Fussilat (41:19)**
+> 📖 *in sublime almightiness enthroned,* — **Al-Burooj (85:15)**
 <!-- quran-verse-end -->
 
 ---
