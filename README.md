@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the moon is darkened,* — **Al-Qiyaama (75:8)**
+> 📖 *and caused the earth to burst forth with springs, so that the waters met for a purpose pre-ordained:* — **Al-Qamar (54:12)**
 <!-- quran-verse-end -->
 
 ---
