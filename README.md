@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, [when he was born,] We inspired [thus] the mother of Moses: Suckle him [for a time], and then, when thou hast cause to fear for him, cast him into the river, and have no fear and do not grieve - for We shall restore him to thee, and shall make him one of Our message-bearers!”* — **Al-Qasas (28:7)**
+> 📖 *Hence, [warn all men of] the Day when the enemies of God shall be gathered together before the fire, and then shall be driven onward,* — **Fussilat (41:19)**
 <!-- quran-verse-end -->
 
 ---
