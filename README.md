@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They will say: “Behold, aforetime - when we were [still living] in the midst of our kith and kin - we were full of fear [at the thought of God’s dis­pleasure]:* — **At-Tur (52:26)**
+> 📖 *And [now,] if they who are bent on denying the truth should fight against you, they will indeed turn their backs [in flight], and will find none to protect them and none to bring them succour:* — **Al-Fath (48:22)**
 <!-- quran-verse-end -->
 
 ---
