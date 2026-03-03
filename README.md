@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Woe unto him who amasses wealth and counts it a safeguard,* — **Al-Humaza (104:2)**
+> 📖 *In Him alone is vested the knowledge of when the Last Hour will come. And no fruit bursts forth from its calyx, and no female ever conceives, nor ever gives birth, save with His knowledge. And so, on the Day when He shall call out to them, “Where, now, are those [alleged] partners of Mine?” - they will [surely] answer, “We confess unto Thee that none of us can bear witness [to anyone’s having a share in Thy divinity]!”* — **Fussilat (41:47)**
 <!-- quran-verse-end -->
 
 ---
