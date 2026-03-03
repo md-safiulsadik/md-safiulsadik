@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, too, gave the lie to the truth [many of] those who lived before them; and although those [earlier people] had not attained to even a tenth of [the evidence of the truth] which We have vouch­safed unto these [late successors of theirs], yet when they gave the lie to My apostles, how awesome was My rejection!* — **Saba (34:45)**
+> 📖 *a source [of bliss] whereof God's servants shall drink, seeing it flow in a flow abundant.* — **Al-Insaan (76:6)**
 <!-- quran-verse-end -->
 
 ---
