@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[they do turn their backs on it] inasmuch as they are wont to say unto those who abhor all that God has revealed, “We will comply with your views on some points.” But God knows their secret thoughts:* — **Muhammad (47:26)**
+> 📖 *[Woe unto him who amasses wealth and counts it a safeguard,* — **Al-Humaza (104:2)**
 <!-- quran-verse-end -->
 
 ---
