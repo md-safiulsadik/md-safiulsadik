@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In Him alone is vested the knowledge of when the Last Hour will come. And no fruit bursts forth from its calyx, and no female ever conceives, nor ever gives birth, save with His knowledge. And so, on the Day when He shall call out to them, “Where, now, are those [alleged] partners of Mine?” - they will [surely] answer, “We confess unto Thee that none of us can bear witness [to anyone’s having a share in Thy divinity]!”* — **Fussilat (41:47)**
+> 📖 *They have made their oaths a cover [for their falseness], and thus they turn others away from the Path of God. Evil indeed is all that they are wont to do:* — **Al-Munaafiqoon (63:2)**
 <!-- quran-verse-end -->
 
 ---
