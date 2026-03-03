@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, [only] those who attain to faith and do righteous deeds and humble themselves before their Sustainer - [only] they are destined for paradise, and there shall they abide.* — **Hud (11:23)**
+> 📖 *"and from the evil of the black darkness whenever it descends,* — **Al-Falaq (113:3)**
 <!-- quran-verse-end -->
 
 ---
