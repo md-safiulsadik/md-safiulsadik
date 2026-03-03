@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the mountains will be like fluffy tufts of wool....* — **Al-Qaari'a (101:5)**
+> 📖 *They will say: “Behold, aforetime - when we were [still living] in the midst of our kith and kin - we were full of fear [at the thought of God’s dis­pleasure]:* — **At-Tur (52:26)**
 <!-- quran-verse-end -->
 
 ---
