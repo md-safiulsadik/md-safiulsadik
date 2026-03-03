@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And as for you others,] return to your father and say: `O our father! Behold, thy son has stolen-but we [can] bear witness to no more than what has become known to us; and [although we gave you our pledge,] we could not guard against something that [lay hidden in the future and, hence,] was beyond the reach of our perception.* — **Yusuf (12:81)**
+> 📖 *Lo! he saw a fire [in the desert]; and so he said to his family: "Wait here! Behold, I perceive a fire [far away]: perhaps I can bring you a brand there from, or find at the fire some guidance."* — **Taa-Haa (20:10)**
 <!-- quran-verse-end -->
 
 ---
