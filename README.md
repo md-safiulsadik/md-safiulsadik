@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [as] We raised among them leaders who, so long as they bore themselves with patience and had sure faith in Our messages, guided [their people] in accordance with Our behest [so, too, shall it be with the divine writ revealed unto thee, O Muhammad.]* — **As-Sajda (32:24)**
+> 📖 *He will guide them [in the hereafter as well], and will set their hearts at rest,* — **Muhammad (47:5)**
 <!-- quran-verse-end -->
 
 ---
