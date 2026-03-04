@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They answered: "Nay, but we have come unto thee with [the announcement of] something that they [who are given to evil] have always been wont to call in question,* — **Al-Hijr (15:63)**
+> 📖 *And [remember:] whatever you may give out in usury so that it might increase through [other] people’s possessions will bring [you] no increase in the sight of God whereas all that you give out in charity, seeking God’s countenance, [will be blessed by Him:] for it is they, they [who thus seek His countenance] that shall have their recompense mul­tiplied!* — **Ar-Room (30:39)**
 <!-- quran-verse-end -->
 
 ---
