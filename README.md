@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He will guide them [in the hereafter as well], and will set their hearts at rest,* — **Muhammad (47:5)**
+> 📖 *AND THUS have We bestowed from on high this [divine writ] as a discourse in the Arabic tongue, and have given therein many facets to all manner of warnings, so that men might remain conscious of Us, or that it give rise to a new awareness in them* — **Taa-Haa (20:113)**
 <!-- quran-verse-end -->
 
 ---
