@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Every human being is bound to taste death, [and] in the end unto Us shall all be brought back:* — **Al-Ankaboot (29:57)**
+> 📖 *and when the stars lose their light,* — **At-Takwir (81:2)**
 <!-- quran-verse-end -->
 
 ---
