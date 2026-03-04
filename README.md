@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *This, verily, is a reminder: let him who wills, then set out on a way to his Sustainer!* — **Al-Muzzammil (73:19)**
+> 📖 *They answered: "Nay, but we have come unto thee with [the announcement of] something that they [who are given to evil] have always been wont to call in question,* — **Al-Hijr (15:63)**
 <!-- quran-verse-end -->
 
 ---
