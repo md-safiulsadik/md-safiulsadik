@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND SO, [O Prophet,] be not in doubt about anything that those [misguided people] worship: they but [thoughtlessly] worship as their forefathers worshipped aforetime; and, behold, We shall most certainly give them their full due [for whatever good or evil they have earned], without diminishing aught thereof.* — **Hud (11:109)**
+> 📖 *Verily, it is We who grant life and deal death; and with Us will be all journeys’ end* — **Qaaf (50:43)**
 <!-- quran-verse-end -->
 
 ---
