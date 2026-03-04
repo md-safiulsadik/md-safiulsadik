@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *when they shall have to carry the shackles and chains [of their own making] around their necks,* — **Ghafir (40:71)**
+> 📖 *Every human being is bound to taste death, [and] in the end unto Us shall all be brought back:* — **Al-Ankaboot (29:57)**
 <!-- quran-verse-end -->
 
 ---
