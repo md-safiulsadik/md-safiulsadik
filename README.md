@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the stars lose their light,* — **At-Takwir (81:2)**
+> 📖 *and [as] We raised among them leaders who, so long as they bore themselves with patience and had sure faith in Our messages, guided [their people] in accordance with Our behest [so, too, shall it be with the divine writ revealed unto thee, O Muhammad.]* — **As-Sajda (32:24)**
 <!-- quran-verse-end -->
 
 ---
