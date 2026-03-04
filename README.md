@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND THERE came [unto the Apostle] such of the bedouin as had some excuse to offer, [with the request] that they be granted exemption, whereas those who were bent on giving the lie to God and His Apostle [simply] remained at home. [And] grievous suffering is bound to befall such of them as are bent on denying the truth!* — **At-Tawba (9:90)**
+> 📖 *They answered: “Let him and his brother wait a while, and send unto all cities heralds* — **Ash-Shu'araa (26:36)**
 <!-- quran-verse-end -->
 
 ---
