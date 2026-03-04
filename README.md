@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND THUS have We bestowed from on high this [divine writ] as a discourse in the Arabic tongue, and have given therein many facets to all manner of warnings, so that men might remain conscious of Us, or that it give rise to a new awareness in them* — **Taa-Haa (20:113)**
+> 📖 *AND SO, [O Prophet,] be not in doubt about anything that those [misguided people] worship: they but [thoughtlessly] worship as their forefathers worshipped aforetime; and, behold, We shall most certainly give them their full due [for whatever good or evil they have earned], without diminishing aught thereof.* — **Hud (11:109)**
 <!-- quran-verse-end -->
 
 ---
