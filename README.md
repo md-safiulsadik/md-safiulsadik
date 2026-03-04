@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Unto whom belongs the earth and all that lives there on? [Tell me this] if you happen to know [the answer]!”* — **Al-Muminoon (23:84)**
+> 📖 *and in the end He causes him to die and brings him to the grave;* — **Abasa (80:21)**
 <!-- quran-verse-end -->
 
 ---
