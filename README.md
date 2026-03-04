@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THESE ARE MESSAGES of the divine writ, full of wisdom,* — **Luqman (31:2)**
+> 📖 *AND THERE came [unto the Apostle] such of the bedouin as had some excuse to offer, [with the request] that they be granted exemption, whereas those who were bent on giving the lie to God and His Apostle [simply] remained at home. [And] grievous suffering is bound to befall such of them as are bent on denying the truth!* — **At-Tawba (9:90)**
 <!-- quran-verse-end -->
 
 ---
