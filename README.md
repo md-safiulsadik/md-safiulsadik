@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [remember:] whatever you may give out in usury so that it might increase through [other] people’s possessions will bring [you] no increase in the sight of God whereas all that you give out in charity, seeking God’s countenance, [will be blessed by Him:] for it is they, they [who thus seek His countenance] that shall have their recompense mul­tiplied!* — **Ar-Room (30:39)**
+> 📖 *secure in their winter and summer journeys,* — **Quraish (106:2)**
 <!-- quran-verse-end -->
 
 ---
