@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *secure in their winter and summer journeys,* — **Quraish (106:2)**
+> 📖 *when they shall have to carry the shackles and chains [of their own making] around their necks,* — **Ghafir (40:71)**
 <!-- quran-verse-end -->
 
 ---
