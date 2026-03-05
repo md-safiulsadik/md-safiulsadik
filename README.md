@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For [thus it is:] whenever Our messages are conveyed unto them in all their clarity, they [who are bent on denying the truth] say [to one another], “This [Muhammad] is nothing but a man who wants to turn you away from what your forefathers were wont to worship!” And they say, “This [Qur’an] is nothing but a falsehood invented [by man]!” And [finally,] they who are bent on denying the truth speak thus of the truth when it comes to them: “This is clearly nothing but spellbinding eloquence!”* — **Saba (34:43)**
+> 📖 *and then He forms him in accordance with what he is meant to be, and breathes into him of His spirit: and [thus, O men,] He endows you with hearing, and sight, and feelings as well as minds: [yet] how seldom are you grateful!* — **As-Sajda (32:9)**
 <!-- quran-verse-end -->
 
 ---
