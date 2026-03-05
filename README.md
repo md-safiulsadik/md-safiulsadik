@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and of thy Sustainer's blessings shalt thou [ever] speak.* — **Ad-Dhuhaa (93:11)**
+> 📖 *Say: “Have you ever [really] considered those beings and forces to whom you ascribe a share in God’s divinity, [and] whom you invoke beside God? Show me what it is that they have created on earth - or do [you claim that] they have a share in [govern­ing] the heavens?” Have We ever vouchsafed them a divine writ on which they could rely as evidence [in support of their views]? Nay, [the hope which] the evildoers hold out to one another [is] nothing but a delusion.* — **Faatir (35:40)**
 <!-- quran-verse-end -->
 
 ---
