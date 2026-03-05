@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, We shall have brought them into being in a life renewed,* — **Al-Waaqia (56:35)**
+> 📖 *[a fire] which they shall enter on Judgment Day,* — **Al-Infitaar (82:15)**
 <!-- quran-verse-end -->
 
 ---
