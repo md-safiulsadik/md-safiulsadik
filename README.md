@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thou seest people enter God's religion in hosts,* — **An-Nasr (110:2)**
+> 📖 *for, behold, We shall have brought them into being in a life renewed,* — **Al-Waaqia (56:35)**
 <!-- quran-verse-end -->
 
 ---
