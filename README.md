@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, He let loose upon them great swarms of flying creatures* — **Al-Fil (105:3)**
+> 📖 *Behold, all who pledge their allegiance to thee pledge their allegiance to God: the hand of God is over their hands. Hence, he who breaks his oath, breaks it only to his own hurt; whereas he who remains true to what he has pledged unto God, on him will He bestow a reward supreme.* — **Al-Fath (48:10)**
 <!-- quran-verse-end -->
 
 ---
