@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, all who pledge their allegiance to thee pledge their allegiance to God: the hand of God is over their hands. Hence, he who breaks his oath, breaks it only to his own hurt; whereas he who remains true to what he has pledged unto God, on him will He bestow a reward supreme.* — **Al-Fath (48:10)**
+> 📖 *and of thy Sustainer's blessings shalt thou [ever] speak.* — **Ad-Dhuhaa (93:11)**
 <!-- quran-verse-end -->
 
 ---
