@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Never! For, behold, We have created them out of something that they know [only too well]!* — **Al-Ma'aarij (70:39)**
+> 📖 *NOW AS FOR those who take aught beside Him for their protectors - God watches them, and thou art not responsible for their conduct.* — **Ash-Shura (42:6)**
 <!-- quran-verse-end -->
 
 ---
