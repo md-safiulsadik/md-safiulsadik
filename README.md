@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and yet, he greedily desires that I give yet more!* — **Al-Muddaththir (74:15)**
+> 📖 *[And all shall be judged on that Day,] so that God may requite every human being for all that he has earned [in life]: verily, God is swift in reckoning!* — **Ibrahim (14:51)**
 <!-- quran-verse-end -->
 
 ---
