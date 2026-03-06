@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, you thought that the Apostle and the believers would never return to their kith and kin: and this seemed goodly to your hearts. And you entertained [such] evil thoughts because you have always been people devoid of all good!”* — **Al-Fath (48:12)**
+> 📖 *And how many a township have We destroyed because it had been immersed in evildoing - and now they [all] lie deserted, with their roofs caved in! And how many a well lies abandoned, and how many a castle that [once] stood high!* — **Al-Hajj (22:45)**
 <!-- quran-verse-end -->
 
 ---
