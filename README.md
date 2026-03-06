@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"And, indeed, We bestowed Our favour upon thee at a time long since past,* — **Taa-Haa (20:37)**
+> 📖 *And the inmates of paradise will call out to the inmates of the fire: "Now we have found that what our Sustainer promised us has come true; have you. too, found that what your Sustainer promised you has come true?" [The others] will answer, "Yes!"-whereupon from their midst a voice will loudly proclaim: "God's rejection is the due of the evildoers* — **Al-A'raaf (7:44)**
 <!-- quran-verse-end -->
 
 ---
