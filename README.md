@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Woe, then, unto those praying ones* — **Al-Maa'un (107:4)**
+> 📖 *Nay, you thought that the Apostle and the believers would never return to their kith and kin: and this seemed goodly to your hearts. And you entertained [such] evil thoughts because you have always been people devoid of all good!”* — **Al-Fath (48:12)**
 <!-- quran-verse-end -->
 
 ---
