@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, he did not believe in God, the Tremendous,* — **Al-Haaqqa (69:33)**
+> 📖 *[whereas] on that same Day those who are destined for paradise will be graced with the best of abodes and the fairest place of repose.* — **Al-Furqaan (25:24)**
 <!-- quran-verse-end -->
 
 ---
