@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *A flash of fire will be let loose upon you, and smoke, and you will be left without succour!* — **Ar-Rahmaan (55:35)**
+> 📖 *shall be engulfed by an abyss.* — **Al-Qaari'a (101:9)**
 <!-- quran-verse-end -->
 
 ---
