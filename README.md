@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *shall be engulfed by an abyss.* — **Al-Qaari'a (101:9)**
+> 📖 *for, behold, he did not believe in God, the Tremendous,* — **Al-Haaqqa (69:33)**
 <!-- quran-verse-end -->
 
 ---
