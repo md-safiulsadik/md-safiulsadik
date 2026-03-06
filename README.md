@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Remain, then, conscious of God as best you can, and listen [to Him], and pay heed. And spend in charity for the good of your own selves: for, such as from their own covetousness are saved – it is they, they that shall attain to a happy state!* — **At-Taghaabun (64:16)**
+> 📖 *Now those who lived before these [sinners] did, too, devise many a blasphemy -but the most subtle devising is that of God, who knows what each human being deserves: and the deniers of the truth will [in time] come to know to whom the future belongs.* — **Ar-Ra'd (13:42)**
 <!-- quran-verse-end -->
 
 ---
