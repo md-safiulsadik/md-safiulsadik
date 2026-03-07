@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Think of] the time when He shall gather you all together unto the Day of the [Last] Gathering - that Day of Loss and Gain! For, as for him who shall have believed in God and done what is just and right, He will [on that Day] efface his bad deeds, and will admit him into gardens through which running waters flow, therein to abide beyond the count of time: that will be a triumph supreme!* — **At-Taghaabun (64:9)**
+> 📖 *Thus, in the end, both [the deniers of the truth and the hypocrites] will find themselves in the fire, therein to abide: for such is the recompense of evil­doers.* — **Al-Hashr (59:17)**
 <!-- quran-verse-end -->
 
 ---
