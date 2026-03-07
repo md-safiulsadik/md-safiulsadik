@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[whereas] on that same Day those who are destined for paradise will be graced with the best of abodes and the fairest place of repose.* — **Al-Furqaan (25:24)**
+> 📖 *THOSE [hypocrites] who were left behind rejoiced in their staying away [from war] after [the departure of] God's Apostle, for they hated the thought of striving with their possessions and their lives in God's cause; and they had [even] said [to the others], "Do not go forth to war in this heat!" Say: "The fire of hell is hotter by far!" Had they but grasped this truth!* — **At-Tawba (9:81)**
 <!-- quran-verse-end -->
 
 ---
