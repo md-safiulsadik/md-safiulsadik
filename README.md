@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THOSE [hypocrites] who were left behind rejoiced in their staying away [from war] after [the departure of] God's Apostle, for they hated the thought of striving with their possessions and their lives in God's cause; and they had [even] said [to the others], "Do not go forth to war in this heat!" Say: "The fire of hell is hotter by far!" Had they but grasped this truth!* — **At-Tawba (9:81)**
+> 📖 *And [thus, too, We destroyed] Noah’s people aforetime: for they were iniquitous folk.* — **Adh-Dhaariyat (51:46)**
 <!-- quran-verse-end -->
 
 ---
