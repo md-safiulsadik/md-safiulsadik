@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Only they who listen [with their hearts] can respond to a call; and as for the dead [of heart], God [alone] can raise them from the dead, whereupon unto Him they shall return.* — **Al-An'aam (6:36)**
+> 📖 *whose hearts from their prayer are remote* — **Al-Maa'un (107:5)**
 <!-- quran-verse-end -->
 
 ---
