@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Does he, then, think that no one has power over him?* — **Al-Balad (90:5)**
+> 📖 *[for] there and then were the believers tried, and shaken with a shock severe.* — **Al-Ahzaab (33:11)**
 <!-- quran-verse-end -->
 
 ---
