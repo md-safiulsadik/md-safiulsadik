@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, when they are told, “Spend on others out of what God has provided for you as sus­tenance,” those who are bent on denying the truth say unto those who believe, “Shall we feed anyone whom, if [your] God had so willed, He could have fed [Himself]? Clearly, you are but lost in error!”* — **Yaseen (36:47)**
+> 📖 *Only they who listen [with their hearts] can respond to a call; and as for the dead [of heart], God [alone] can raise them from the dead, whereupon unto Him they shall return.* — **Al-An'aam (6:36)**
 <!-- quran-verse-end -->
 
 ---
