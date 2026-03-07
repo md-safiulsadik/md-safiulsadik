@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[for] there and then were the believers tried, and shaken with a shock severe.* — **Al-Ahzaab (33:11)**
+> 📖 *fully conscious of what they are doing to the believers,* — **Al-Burooj (85:7)**
 <!-- quran-verse-end -->
 
 ---
