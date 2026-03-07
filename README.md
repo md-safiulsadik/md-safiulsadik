@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Lord of the Day of Judgment!* — **Al-Faatiha (1:4)**
+> 📖 *In what other tiding, then, will they, after this, believe?* — **Al-Mursalaat (77:50)**
 <!-- quran-verse-end -->
 
 ---
