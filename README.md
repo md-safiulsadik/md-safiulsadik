@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, in the end, both [the deniers of the truth and the hypocrites] will find themselves in the fire, therein to abide: for such is the recompense of evil­doers.* — **Al-Hashr (59:17)**
+> 📖 *he will in time be called to account with an easy accounting,* — **Al-Inshiqaaq (84:8)**
 <!-- quran-verse-end -->
 
 ---
