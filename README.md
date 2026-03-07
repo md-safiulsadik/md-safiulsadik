@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, indeed, in time will thy Sustainer grant thee [what thy heart desires], and thou shalt be well-pleased.* — **Ad-Dhuhaa (93:5)**
+> 📖 *And what could make thee conceive what that crushing torment will be?* — **Al-Humaza (104:5)**
 <!-- quran-verse-end -->
 
 ---
