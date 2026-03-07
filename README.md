@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And when the prayer is ended, disperse freely on earth and seek to obtain [something] of God's bounty; but remember God often, so that you might attain to a happy state!* — **Al-Jumu'a (62:10)**
+> 📖 *And, indeed, in time will thy Sustainer grant thee [what thy heart desires], and thou shalt be well-pleased.* — **Ad-Dhuhaa (93:5)**
 <!-- quran-verse-end -->
 
 ---
