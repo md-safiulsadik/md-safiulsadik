@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whose hearts from their prayer are remote* — **Al-Maa'un (107:5)**
+> 📖 *and neither did We endow them with bodies that could dispense with food nor were they immortal.* — **Al-Anbiyaa (21:8)**
 <!-- quran-verse-end -->
 
 ---
