@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But, verily, for those who are bent on doing evil, there is suffering in store [even] closer at hand than that [supreme suffering in the hereafter]: but most of them are not aware of it.* — **At-Tur (52:47)**
+> 📖 *and thereupon that [chastisement] which they were promised befalls them –* — **Ash-Shu'araa (26:206)**
 <!-- quran-verse-end -->
 
 ---
