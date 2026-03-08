@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Such is God's bounty: He grants it to anyone who is willing [to receive it]: for God is limitless in His great bounty.* — **Al-Jumu'a (62:4)**
+> 📖 *as well as the people of Noah before them - [since,] verily, they all had been most willful in their evildoing and most overweening –* — **An-Najm (53:52)**
 <!-- quran-verse-end -->
 
 ---
