@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and will [be able to] turn joyfully to those of his own kind.* — **Al-Inshiqaaq (84:9)**
+> 📖 *Moreover, those who are bent on denying the truth are wont to say, “This [Qur’an] is nothing but a lie, which he [himself] has devised with the help of other people, who thereupon have perverted the truth and brought a falsehood into being.”* — **Al-Furqaan (25:4)**
 <!-- quran-verse-end -->
 
 ---
