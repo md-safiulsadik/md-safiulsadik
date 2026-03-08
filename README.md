@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither did We endow them with bodies that could dispense with food nor were they immortal.* — **Al-Anbiyaa (21:8)**
+> 📖 *in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen* — **Al-Qadr (97:4)**
 <!-- quran-verse-end -->
 
 ---
