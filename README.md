@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Moreover, those who are bent on denying the truth are wont to say, “This [Qur’an] is nothing but a lie, which he [himself] has devised with the help of other people, who thereupon have perverted the truth and brought a falsehood into being.”* — **Al-Furqaan (25:4)**
+> 📖 *He knows all that is in the heavens and on earth; and He knows all that you keep secret as well as all that you bring into the open: for God has full knowledge of what is in the hearts [of men].* — **At-Taghaabun (64:4)**
 <!-- quran-verse-end -->
 
 ---
