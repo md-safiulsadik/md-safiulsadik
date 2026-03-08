@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereupon that [chastisement] which they were promised befalls them –* — **Ash-Shu'araa (26:206)**
+> 📖 *and fruits and herbage,* — **Abasa (80:31)**
 <!-- quran-verse-end -->
 
 ---
