@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen* — **Al-Qadr (97:4)**
+> 📖 *And so, whenever they are told, "Come unto that which God has be­stowed from on high, and unto the Apostle," thou canst see these hypocrites turn away from thee with aversion.* — **An-Nisaa (4:61)**
 <!-- quran-verse-end -->
 
 ---
