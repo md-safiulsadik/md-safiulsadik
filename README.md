@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, behold, with every hardship comes ease:* — **Ash-Sharh (94:5)**
+> 📖 *behold, this [divine writ] is indeed the [inspired] word of a noble apostle,* — **At-Takwir (81:19)**
 <!-- quran-verse-end -->
 
 ---
