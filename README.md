@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, whenever they are told, "Come unto that which God has be­stowed from on high, and unto the Apostle," thou canst see these hypocrites turn away from thee with aversion.* — **An-Nisaa (4:61)**
+> 📖 *And, behold, with every hardship comes ease:* — **Ash-Sharh (94:5)**
 <!-- quran-verse-end -->
 
 ---
