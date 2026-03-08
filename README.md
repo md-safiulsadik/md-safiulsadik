@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] is there any, besides the Most Gracious, that could be a shield for you, and could succour you [against danger]? They who deny this truth are but lost in self- delusion!* — **Al-Mulk (67:20)**
+> 📖 *not even a word can he utter but there is a watcher with him, ever-present.* — **Qaaf (50:18)**
 <!-- quran-verse-end -->
 
 ---
