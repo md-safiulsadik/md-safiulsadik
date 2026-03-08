@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *as well as the people of Noah before them - [since,] verily, they all had been most willful in their evildoing and most overweening –* — **An-Najm (53:52)**
+> 📖 *Now if he [whom We have entrusted with it] had dared to attribute some [of his own] sayings unto Us,* — **Al-Haaqqa (69:44)**
 <!-- quran-verse-end -->
 
 ---
