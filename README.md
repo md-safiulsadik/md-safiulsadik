@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who are constant in prayer and dispense charity: for it is they, they who in their innermost are certain of the life to come!* — **Luqman (31:4)**
+> 📖 *But, verily, for those who are bent on doing evil, there is suffering in store [even] closer at hand than that [supreme suffering in the hereafter]: but most of them are not aware of it.* — **At-Tur (52:47)**
 <!-- quran-verse-end -->
 
 ---
