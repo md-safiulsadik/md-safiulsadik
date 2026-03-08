@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and a tongue, and a pair of lips,* — **Al-Balad (90:9)**
+> 📖 *Such is God's bounty: He grants it to anyone who is willing [to receive it]: for God is limitless in His great bounty.* — **Al-Jumu'a (62:4)**
 <!-- quran-verse-end -->
 
 ---
