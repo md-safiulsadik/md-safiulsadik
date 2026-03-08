@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and fruits and herbage,* — **Abasa (80:31)**
+> 📖 *and will [be able to] turn joyfully to those of his own kind.* — **Al-Inshiqaaq (84:9)**
 <!-- quran-verse-end -->
 
 ---
