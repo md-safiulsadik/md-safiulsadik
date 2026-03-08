@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and from the evil of the envious when he envies."* — **Al-Falaq (113:5)**
+> 📖 *VERILY, the Day of Distinction [between the true and the false] has indeed its appointed time:* — **An-Naba (78:17)**
 <!-- quran-verse-end -->
 
 ---
