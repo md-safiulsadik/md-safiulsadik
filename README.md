@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *not even a word can he utter but there is a watcher with him, ever-present.* — **Qaaf (50:18)**
+> 📖 *who are constant in prayer and dispense charity: for it is they, they who in their innermost are certain of the life to come!* — **Luqman (31:4)**
 <!-- quran-verse-end -->
 
 ---
