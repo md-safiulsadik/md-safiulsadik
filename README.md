@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[In such a paradise will they dwell,] reclining upon meadows green and carpets rich in beauty.* — **Ar-Rahmaan (55:76)**
+> 📖 *"God the Eternal, the Uncaused Cause of All Being.* — **Al-Ikhlaas (112:2)**
 <!-- quran-verse-end -->
 
 ---
