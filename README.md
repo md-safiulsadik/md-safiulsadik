@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Let not your worldly goods or your children make you oblivious of the remembrance of God: for If any behave thus - it is they, they who are the losers!* — **Al-Munaafiqoon (63:9)**
+> 📖 *Never set foot in such a place! Only a house of worship founded, from the very first day, upon God-consciousness is worthy of thy setting foot therein -[a house of worship] wherein there are men desirous of growing in purity: for God loves all who purify themselves.* — **At-Tawba (9:108)**
 <!-- quran-verse-end -->
 
 ---
