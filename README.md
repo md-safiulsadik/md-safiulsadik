@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, leave them to indulge in idle talk and play [with words] until they face that [Judgment] Day of theirs which they have been promised –* — **Al-Ma'aarij (70:42)**
+> 📖 *such as, when all mankind is gathered [for judgment], will be enemies unto those [who worshipped them], and will utterly reject their worship?* — **Al-Ahqaf (46:6)**
 <!-- quran-verse-end -->
 
 ---
