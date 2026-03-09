@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Never set foot in such a place! Only a house of worship founded, from the very first day, upon God-consciousness is worthy of thy setting foot therein -[a house of worship] wherein there are men desirous of growing in purity: for God loves all who purify themselves.* — **At-Tawba (9:108)**
+> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
 <!-- quran-verse-end -->
 
 ---
