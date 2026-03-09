@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
+> 📖 *and thus they had to taste the evil outcome of their own doing: for, [in this world,] the end of their doings was ruin,* — **At-Talaaq (65:9)**
 <!-- quran-verse-end -->
 
 ---
