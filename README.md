@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, the Day of Distinction [between the true and the false] has indeed its appointed time:* — **An-Naba (78:17)**
+> 📖 *[And,] verily, those who have attained to faith, and do righteous deeds - it is they, they who are the best of all creatures.* — **Al-Bayyina (98:7)**
 <!-- quran-verse-end -->
 
 ---
