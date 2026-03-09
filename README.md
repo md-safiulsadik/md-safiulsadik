@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Those who do not believe in it [mockingly] ask for its speedy advent whereas those who have attained to faith stand in awe of it, and know it to be the truth. Oh, verily, they who call the Last Hour in question have indeed gone far astray!* — **Ash-Shura (42:18)**
+> 📖 *And lo! [It so happened that] the Prophet told something in confidence to one of his wives; and when she thereupon divulged it, and God made this known to him, he acquainted [others] with some of it and passed over some of it. And as soon as he let her know it, she asked, "Who has told thee this?" - [to which] he replied, "The All-Knowing, the All-Aware has told me."* — **At-Tahrim (66:3)**
 <!-- quran-verse-end -->
 
 ---
