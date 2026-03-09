@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *When they are cast into that [hell], they will hear its breath indrawing as it boils up,* — **Al-Mulk (67:7)**
+> 📖 *And pay heed unto God and the Apostle, so that you might be graced with mercy.* — **Aal-i-Imraan (3:132)**
 <!-- quran-verse-end -->
 
 ---
