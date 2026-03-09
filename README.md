@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *such as, when all mankind is gathered [for judgment], will be enemies unto those [who worshipped them], and will utterly reject their worship?* — **Al-Ahqaf (46:6)**
+> 📖 *When they are cast into that [hell], they will hear its breath indrawing as it boils up,* — **Al-Mulk (67:7)**
 <!-- quran-verse-end -->
 
 ---
