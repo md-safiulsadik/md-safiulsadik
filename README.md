@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"God the Eternal, the Uncaused Cause of All Being.* — **Al-Ikhlaas (112:2)**
+> 📖 *Those who do not believe in it [mockingly] ask for its speedy advent whereas those who have attained to faith stand in awe of it, and know it to be the truth. Oh, verily, they who call the Last Hour in question have indeed gone far astray!* — **Ash-Shura (42:18)**
 <!-- quran-verse-end -->
 
 ---
