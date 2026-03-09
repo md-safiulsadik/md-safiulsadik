@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And pay heed unto God and the Apostle, so that you might be graced with mercy.* — **Aal-i-Imraan (3:132)**
+> 📖 *[In such a paradise will they dwell,] reclining upon meadows green and carpets rich in beauty.* — **Ar-Rahmaan (55:76)**
 <!-- quran-verse-end -->
 
 ---
