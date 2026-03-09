@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[then,] O man - thou [that] hast, verily, been toiling towards thy Sustainer in painful toil - then shalt thou meet Him!* — **Al-Inshiqaaq (84:6)**
+> 📖 *Hence, leave them to indulge in idle talk and play [with words] until they face that [Judgment] Day of theirs which they have been promised –* — **Al-Ma'aarij (70:42)**
 <!-- quran-verse-end -->
 
 ---
