@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and] who incessantly persevere in their prayer* — **Al-Ma'aarij (70:23)**
+> 📖 *Woe on that Day unto those who give the lie to the truth!* — **Al-Mursalaat (77:15)**
 <!-- quran-verse-end -->
 
 ---
