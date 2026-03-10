@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now when [the Queen’s messenger] came unto Solomon, he said: “Do you people mean to add to my wealth? But that which God has given me is [so much] better than all that He has given you! Nay, it is [only such as] you that would rejoice in this gift of yours!* — **An-Naml (27:36)**
+> 📖 *He it is who has sent forth His Apostle with [the task of] spreading guidance and the religion of truth, to the end that He make it prevail over all [false] religion, however hateful this may be to those who ascribe divinity to aught but God.* — **As-Saff (61:9)**
 <!-- quran-verse-end -->
 
 ---
