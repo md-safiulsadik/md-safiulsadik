@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Why - for yourselves [you would choose only] male offspring, whereas to Him [you assign] female:* — **An-Najm (53:21)**
+> 📖 *WOE unto every slanderer, fault-finder!* — **Al-Humaza (104:1)**
 <!-- quran-verse-end -->
 
 ---
