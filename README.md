@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then he gathered [his great ones], and called [unto his people],* — **An-Naazi'aat (79:23)**
+> 📖 *And so he will find himself in a happy state of life,* — **Al-Haaqqa (69:21)**
 <!-- quran-verse-end -->
 
 ---
