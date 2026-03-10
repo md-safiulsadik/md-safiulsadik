@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, they could never be of any avail to thee if thou wert to defy the will of God for, verily, such evildoers are but friends and protectors of one another, whereas God is the Protector of all who are conscious of Him.* — **Al-Jaathiya (45:19)**
+> 📖 *Go, then., with thy household while it is yet night, with thyself following them in the rear; and let none of you look back, but proceed whither you are bidden."* — **Al-Hijr (15:65)**
 <!-- quran-verse-end -->
 
 ---
