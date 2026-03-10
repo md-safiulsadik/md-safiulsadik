@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND, INDEED, from on high have We bestowed upon you messages clearly showing the truth, and [many] a lesson from [the stories of] those who have passed away before you, and [many] an admonition to the God-conscious.* — **An-Noor (24:34)**
+> 📖 *an apostle from God, conveying [unto them] revelations blest with purity,* — **Al-Bayyina (98:2)**
 <!-- quran-verse-end -->
 
 ---
