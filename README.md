@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Oh, verily, they are in doubt as to whether they will meet their Sustainer [on Judgment Day]! Oh, verily, He encompasses everything!* — **Fussilat (41:54)**
+> 📖 *and who have devised a most awesome blasphemy [against Thee],* — **Nooh (71:22)**
 <!-- quran-verse-end -->
 
 ---
