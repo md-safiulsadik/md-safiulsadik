@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and they said: “Are we to follow one single mortal, one from among ourselves? In that case, behold, we would certainly sink into error and folly!* — **Al-Qamar (54:24)**
+> 📖 *And what could make thee conceive what that Judgment Day will be?* — **Al-Infitaar (82:17)**
 <!-- quran-verse-end -->
 
 ---
