@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what that Judgment Day will be?* — **Al-Infitaar (82:17)**
+> 📖 *and then he gathered [his great ones], and called [unto his people],* — **An-Naazi'aat (79:23)**
 <!-- quran-verse-end -->
 
 ---
