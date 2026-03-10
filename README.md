@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who have devised a most awesome blasphemy [against Thee],* — **Nooh (71:22)**
+> 📖 *and they said: “Are we to follow one single mortal, one from among ourselves? In that case, behold, we would certainly sink into error and folly!* — **Al-Qamar (54:24)**
 <!-- quran-verse-end -->
 
 ---
