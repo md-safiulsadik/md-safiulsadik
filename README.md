@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WOE unto every slanderer, fault-finder!* — **Al-Humaza (104:1)**
+> 📖 *Oh, verily, they are in doubt as to whether they will meet their Sustainer [on Judgment Day]! Oh, verily, He encompasses everything!* — **Fussilat (41:54)**
 <!-- quran-verse-end -->
 
 ---
