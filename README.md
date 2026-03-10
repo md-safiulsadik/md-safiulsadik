@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Go, then., with thy household while it is yet night, with thyself following them in the rear; and let none of you look back, but proceed whither you are bidden."* — **Al-Hijr (15:65)**
+> 📖 *And besides those two will be yet two [other] gardens -* — **Ar-Rahmaan (55:62)**
 <!-- quran-verse-end -->
 
 ---
