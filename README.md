@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Woe on that Day unto those who give the lie to the truth!* — **Al-Mursalaat (77:15)**
+> 📖 *AND, INDEED, from on high have We bestowed upon you messages clearly showing the truth, and [many] a lesson from [the stories of] those who have passed away before you, and [many] an admonition to the God-conscious.* — **An-Noor (24:34)**
 <!-- quran-verse-end -->
 
 ---
