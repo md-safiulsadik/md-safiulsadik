@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, thy Sustainer grants abundant sustenance, or gives it in scant measure, unto whomever He wills: verily, fully aware is He of [the needs of] His creatures, and sees them all.* — **Al-Israa (17:30)**
+> 📖 *And one part of him will say: “This it is that has been ever-present with me!”* — **Qaaf (50:23)**
 <!-- quran-verse-end -->
 
 ---
