@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whose hearts from their prayer are remote* — **Al-Maa'un (107:5)**
+> 📖 *[As against this -] verily, the God-conscious will find themselves in a state secure,* — **Ad-Dukhaan (44:51)**
 <!-- quran-verse-end -->
 
 ---
