@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, distant from it shall remain he who is truly conscious of God:* — **Al-Lail (92:17)**
+> 📖 *notwithstanding that no human being can ever attain to faith otherwise than by God's leave, and [that] it is He who lays the loathsome evil [of disbelief] upon those who will not use -their reason?* — **Yunus (10:100)**
 <!-- quran-verse-end -->
 
 ---
