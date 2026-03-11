@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *to the end that it may warn everyone who is alive [of heart], and that the word [of God] may bear witness against all who deny the truth.* — **Yaseen (36:70)**
+> 📖 *God only forbids you to turn in friendship towards such as fight against you because of [your] faith, and drive you forth from your homelands, or aid [others] in driving you forth: and as for those [from among you] who turn towards them in friendship; it is they, they who are truly wrongdoers!* — **Al-Mumtahana (60:9)**
 <!-- quran-verse-end -->
 
 ---
