@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *rushing to assault at morn,* — **Al-Aadiyaat (100:3)**
+> 📖 *[But] it may well be that God will bring about [mutual] affection between you [O believers] and some of those whom you [now] face as enemies: for, God is all-powerful - and God is much-forgiving, a dispenser of grace.* — **Al-Mumtahana (60:7)**
 <!-- quran-verse-end -->
 
 ---
