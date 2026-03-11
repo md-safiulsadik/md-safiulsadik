@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *notwithstanding that no human being can ever attain to faith otherwise than by God's leave, and [that] it is He who lays the loathsome evil [of disbelief] upon those who will not use -their reason?* — **Yunus (10:100)**
+> 📖 *Oh, would that this [death of mine] had been the end of me!* — **Al-Haaqqa (69:27)**
 <!-- quran-verse-end -->
 
 ---
