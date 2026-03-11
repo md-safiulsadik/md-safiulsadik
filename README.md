@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But] it may well be that God will bring about [mutual] affection between you [O believers] and some of those whom you [now] face as enemies: for, God is all-powerful - and God is much-forgiving, a dispenser of grace.* — **Al-Mumtahana (60:7)**
+> 📖 *For, distant from it shall remain he who is truly conscious of God:* — **Al-Lail (92:17)**
 <!-- quran-verse-end -->
 
 ---
