@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *an apostle from God, conveying [unto them] revelations blest with purity,* — **Al-Bayyina (98:2)**
+> 📖 *Behold, thy Sustainer grants abundant sustenance, or gives it in scant measure, unto whomever He wills: verily, fully aware is He of [the needs of] His creatures, and sees them all.* — **Al-Israa (17:30)**
 <!-- quran-verse-end -->
 
 ---
