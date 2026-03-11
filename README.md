@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who turn others away from God's path and try to make it appear crooked, and who refuse to acknowledge the truth of the life to come!"* — **Al-A'raaf (7:45)**
+> 📖 *to the end that it may warn everyone who is alive [of heart], and that the word [of God] may bear witness against all who deny the truth.* — **Yaseen (36:70)**
 <!-- quran-verse-end -->
 
 ---
