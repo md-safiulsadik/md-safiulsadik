@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But nay, by thy Sustainer! They do not [really] believe unless they make thee [O Prophet] a judge of all on which they disagree among themselves, and then find in their hearts no bar to an acceptance of thy decision and give themselves up [to it] in utter self-surrender.* — **An-Nisaa (4:65)**
+> 📖 *ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?* — **Al-Fil (105:1)**
 <!-- quran-verse-end -->
 
 ---
