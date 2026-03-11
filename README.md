@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[As against this -] verily, the God-conscious will find themselves in a state secure,* — **Ad-Dukhaan (44:51)**
+> 📖 *an act of thy Sustainer’s favour: and that, that will be the triumph supreme!* — **Ad-Dukhaan (44:57)**
 <!-- quran-verse-end -->
 
 ---
