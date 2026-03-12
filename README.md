@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, behold, with every hardship comes ease:* — **Ash-Sharh (94:5)**
+> 📖 *As for us, behold, we have come to believe in our Sustainer, [hoping] that He may forgive us our faults and all that magic unto which thou hast forced us: for God is the best [to look forward to], and the One who is truly abiding."* — **Taa-Haa (20:73)**
 <!-- quran-verse-end -->
 
 ---
