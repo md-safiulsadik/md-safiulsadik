@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"And I will not worship ~hat which you have [ever] worshipped,* — **Al-Kaafiroon (109:4)**
+> 📖 *and the day as it rises bright!* — **Al-Lail (92:2)**
 <!-- quran-verse-end -->
 
 ---
