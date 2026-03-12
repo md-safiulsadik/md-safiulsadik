@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the building which they have built will never cease to be a source of deep disquiet in their hearts until their hearts crumble to pieces. And God is all-knowing, wise.* — **At-Tawba (9:110)**
+> 📖 *"I do not worship that which you worship,* — **Al-Kaafiroon (109:2)**
 <!-- quran-verse-end -->
 
 ---
