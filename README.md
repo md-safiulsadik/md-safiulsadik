@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Night of Destiny is better than a thousand months:* — **Al-Qadr (97:3)**
+> 📖 *On that Day you shall be brought to judgment: not [even] the most hidden of your deeds will remain hidden.* — **Al-Haaqqa (69:18)**
 <!-- quran-verse-end -->
 
 ---
