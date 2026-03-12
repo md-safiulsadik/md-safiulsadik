@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and yet, he greedily desires that I give yet more!* — **Al-Muddaththir (74:15)**
+> 📖 *the building which they have built will never cease to be a source of deep disquiet in their hearts until their hearts crumble to pieces. And God is all-knowing, wise.* — **At-Tawba (9:110)**
 <!-- quran-verse-end -->
 
 ---
