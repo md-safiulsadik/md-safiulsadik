@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and so they ask, “When is this promise [of resurrection and judgment] to be fulfilled? [Answer this, O you who believe in it,] if you are men of truth!”* — **Saba (34:29)**
+> 📖 *And so, he who shall have done an atom's weight of good, shall behold it;* — **Az-Zalzala (99:7)**
 <!-- quran-verse-end -->
 
 ---
