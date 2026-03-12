@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that We may bring dead land to life thereby, and give to drink thereof to many [beings] of Our creation, beasts as well as humans.* — **Al-Furqaan (25:49)**
+> 📖 *but [as it was,] his Sustainer had elected him and placed him among the righteous.* — **Al-Qalam (68:50)**
 <!-- quran-verse-end -->
 
 ---
