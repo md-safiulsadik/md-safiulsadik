@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the day as it rises bright!* — **Al-Lail (92:2)**
+> 📖 *And the word [of truth] will stand revealed against them in the face of all the wrong which they had committed, and they will not [be able to] utter a single word [of excuse]:* — **An-Naml (27:85)**
 <!-- quran-verse-end -->
 
 ---
