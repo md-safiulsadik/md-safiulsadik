@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that Day you shall be brought to judgment: not [even] the most hidden of your deeds will remain hidden.* — **Al-Haaqqa (69:18)**
+> 📖 *AND UNTO [the people of] Madyan [We sent] their brother Shu'ayb. He said: "O my people! Worship God [alone]: you have no deity other than Him; and do not give short measure and weight [in any of your dealings with men]. Behold, I see you [now] in a happy state; but, verily, I dread lest suffering befall you on a Day that will encompass [you with doom]!* — **Hud (11:84)**
 <!-- quran-verse-end -->
 
 ---
