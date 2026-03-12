@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And the word [of truth] will stand revealed against them in the face of all the wrong which they had committed, and they will not [be able to] utter a single word [of excuse]:* — **An-Naml (27:85)**
+> 📖 *so that We may bring dead land to life thereby, and give to drink thereof to many [beings] of Our creation, beasts as well as humans.* — **Al-Furqaan (25:49)**
 <!-- quran-verse-end -->
 
 ---
