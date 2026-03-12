@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, he who shall have done an atom's weight of good, shall behold it;* — **Az-Zalzala (99:7)**
+> 📖 *“This, then, is the hell of which you were warned again and again:* — **Yaseen (36:63)**
 <!-- quran-verse-end -->
 
 ---
