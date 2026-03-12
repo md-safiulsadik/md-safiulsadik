@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, God bids you to deliver all that you have been entrusted with unto those who are entitled thereto, and whenever you judge between people, to judge with justice. Verily, most excellent is what God exhorts you to do: verily, God is all-hearing, all-seeing!* — **An-Nisaa (4:58)**
+> 📖 *And, behold, with every hardship comes ease:* — **Ash-Sharh (94:5)**
 <!-- quran-verse-end -->
 
 ---
