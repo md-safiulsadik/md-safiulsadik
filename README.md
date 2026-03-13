@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *as thy Sustainer will have inspired her to do!* — **Az-Zalzala (99:5)**
+> 📖 *HAST THOU ever considered him who tries to prevent* — **Al-Alaq (96:9)**
 <!-- quran-verse-end -->
 
 ---
