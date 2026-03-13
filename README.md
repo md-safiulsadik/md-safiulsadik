@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let, then, the deniers of the truth have their will: let them have their will for a little while.* — **At-Taariq (86:17)**
+> 📖 *and goblets placed ready,* — **Al-Ghaashiya (88:14)**
 <!-- quran-verse-end -->
 
 ---
