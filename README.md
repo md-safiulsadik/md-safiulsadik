@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“This, then, is the hell of which you were warned again and again:* — **Yaseen (36:63)**
+> 📖 *and [My] rejection shall be thy due until the Day of Judgment!"* — **Al-Hijr (15:35)**
 <!-- quran-verse-end -->
 
 ---
