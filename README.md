@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereafter We reduce him to the lowest of low* — **At-Tin (95:5)**
+> 📖 *But God will safeguard all who were conscious of Him, [and will grant them happiness] by virtue of their [inner] triumphs; no evil shall ever touch them, and neither shall they grieve.* — **Az-Zumar (39:61)**
 <!-- quran-verse-end -->
 
 ---
