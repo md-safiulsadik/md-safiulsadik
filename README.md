@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "You may spend [anything], willingly-or unwillingly, [pretending that you do it for the sake of God:] it shall never be accepted from you -for, verily, you are people bent on iniquity!"* — **At-Tawba (9:53)**
+> 📖 *God has already enjoined upon you [O believers] the breaking and expiation of [such of] your oaths [as may run counter to what is right and just]: for, God is your Lord Supreme, and He alone is all-knowing, truly wise.* — **At-Tahrim (66:2)**
 <!-- quran-verse-end -->
 
 ---
