@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and goblets placed ready,* — **Al-Ghaashiya (88:14)**
+> 📖 *having beside them well-matched mates of modest gaze.”* — **Saad (38:52)**
 <!-- quran-verse-end -->
 
 ---
