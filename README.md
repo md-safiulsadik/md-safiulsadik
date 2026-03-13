@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But God will safeguard all who were conscious of Him, [and will grant them happiness] by virtue of their [inner] triumphs; no evil shall ever touch them, and neither shall they grieve.* — **Az-Zumar (39:61)**
+> 📖 *Verily, he that hates thee has indeed been cut off [from all that is good]!* — **Al-Kawthar (108:3)**
 <!-- quran-verse-end -->
 
 ---
