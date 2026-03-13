@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *having beside them well-matched mates of modest gaze.”* — **Saad (38:52)**
+> 📖 *on the Day when thou shalt see all believing men and believing women, with their light spreading rapidly before them and on their right, [and with this wel­come awaiting them:] “A glad tiding for you today: gardens through which running waters flow, therein to abide! This, this is the triumph supreme!”* — **Al-Hadid (57:12)**
 <!-- quran-verse-end -->
 
 ---
