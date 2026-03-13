@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Lo! There came unto them [God’s] apostles, speaking of what lay open before them and what was [still] beyond their ken, [and calling unto them,] “Worship none but God!” They answered: “If our Sustainer had willed [us to believe in what you say], He would have sent down angels [as His message-bearers]. As it is, behold, we deny that there is any truth in what you [claim to] have been sent with!”* — **Fussilat (41:14)**
+> 📖 *and man cries out, "What has happened to her?" -* — **Az-Zalzala (99:3)**
 <!-- quran-verse-end -->
 
 ---
