@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [My] rejection shall be thy due until the Day of Judgment!"* — **Al-Hijr (15:35)**
+> 📖 *HAS, THEN, your Sustainer distinguished you by [giving you] sons, and taken unto Himself daughters in the guise of angels? Verily, you are uttering a dreadful saying!* — **Al-Israa (17:40)**
 <!-- quran-verse-end -->
 
 ---
