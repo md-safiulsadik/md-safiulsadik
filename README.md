@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who has given them food against hunger, and made them safe from danger.* — **Quraish (106:4)**
+> 📖 *blame attaches but to those who oppress [other] people and behave outrageously on earth, offending against all right: for them there is grievous suffering in store!* — **Ash-Shura (42:42)**
 <!-- quran-verse-end -->
 
 ---
