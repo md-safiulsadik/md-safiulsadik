@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, as for him who gives [to others] and is conscious of God,* — **Al-Lail (92:5)**
+> 📖 *Woe on that Day unto those who give the lie to the truth!* — **Al-Mursalaat (77:15)**
 <!-- quran-verse-end -->
 
 ---
