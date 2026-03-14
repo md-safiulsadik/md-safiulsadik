@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on wide-open scrolls.* — **At-Tur (52:3)**
+> 📖 *[As against this,] behold, for those who stand in awe of God although He is beyond the reach of their perception, there is forgiveness in store and a great reward.* — **Al-Mulk (67:12)**
 <!-- quran-verse-end -->
 
 ---
