@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, God's alone is the dominion over the heavens and the earth; He [alone] grants life and deals death; and there is none besides God who could protect you or bring you succour.* — **At-Tawba (9:116)**
+> 📖 *Hence, [bethink yourselves of the Last Hour,] when the trumpet [of judgment] shall be sounded with a single blast,* — **Al-Haaqqa (69:13)**
 <!-- quran-verse-end -->
 
 ---
