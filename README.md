@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet had We so willed, We could indeed have imposed Our guidance upon every human being: but [We have not willed it thus - and so] that word of Mine has come true: “Most certainly will I fill hell with invisible beings as well as with humans, all together!”* — **As-Sajda (32:13)**
+> 📖 *They challenge thee to hasten the coming upon them of [God’s] chastisement: but, verily, hell is bound to encompass all who deny the truth –* — **Al-Ankaboot (29:54)**
 <!-- quran-verse-end -->
 
 ---
