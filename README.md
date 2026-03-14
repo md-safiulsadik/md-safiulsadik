@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, [bethink yourselves of the Last Hour,] when the trumpet [of judgment] shall be sounded with a single blast,* — **Al-Haaqqa (69:13)**
+> 📖 *And so, when they embark on a ship [and find themselves in danger], they call unto God, [at that moment] sincere in their faith in Him alone; but as soon as He has brought them safe ashore, they [begin to] ascribe to imaginary powers a share in His divinity:* — **Al-Ankaboot (29:65)**
 <!-- quran-verse-end -->
 
 ---
