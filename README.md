@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and whenever they pass by them, they wink at one another [derisively];* — **Al-Mutaffifin (83:30)**
+> 📖 *Read - for thy Sustainer is the Most Bountiful One* — **Al-Alaq (96:3)**
 <!-- quran-verse-end -->
 
 ---
