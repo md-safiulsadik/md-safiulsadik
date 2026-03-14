@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *blame attaches but to those who oppress [other] people and behave outrageously on earth, offending against all right: for them there is grievous suffering in store!* — **Ash-Shura (42:42)**
+> 📖 *and whenever they pass by them, they wink at one another [derisively];* — **Al-Mutaffifin (83:30)**
 <!-- quran-verse-end -->
 
 ---
