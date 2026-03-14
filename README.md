@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Read - for thy Sustainer is the Most Bountiful One* — **Al-Alaq (96:3)**
+> 📖 *"and from the evil of all human beings bent on occult endeavours,* — **Al-Falaq (113:4)**
 <!-- quran-verse-end -->
 
 ---
