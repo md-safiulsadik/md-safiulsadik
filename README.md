@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, He let loose upon them great swarms of flying creatures* — **Al-Fil (105:3)**
+> 📖 *And, behold, with every hardship comes ease:* — **Ash-Sharh (94:5)**
 <!-- quran-verse-end -->
 
 ---
