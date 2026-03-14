@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SO THAT the Quraysh might remain secure,* — **Quraish (106:1)**
+> 📖 *Thus, He let loose upon them great swarms of flying creatures* — **Al-Fil (105:3)**
 <!-- quran-verse-end -->
 
 ---
