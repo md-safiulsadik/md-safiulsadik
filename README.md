@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that We might bring forth thereby grain, and herbs,* — **An-Naba (78:15)**
+> 📖 *[a fire] which they shall enter on Judgment Day,* — **Al-Infitaar (82:15)**
 <!-- quran-verse-end -->
 
 ---
