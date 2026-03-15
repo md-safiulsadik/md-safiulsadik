@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or do they say, “[He is but] a poet - let us wait what time will do unto him”?* — **At-Tur (52:30)**
+> 📖 *"and from the evil of the black darkness whenever it descends,* — **Al-Falaq (113:3)**
 <!-- quran-verse-end -->
 
 ---
