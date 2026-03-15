@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [know that] We have not created the heavens and the earth and all that is between them in mere idle play:* — **Al-Anbiyaa (21:16)**
+> 📖 *Or do they say, “[He is but] a poet - let us wait what time will do unto him”?* — **At-Tur (52:30)**
 <!-- quran-verse-end -->
 
 ---
