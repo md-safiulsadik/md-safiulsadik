@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And withal, they were not enjoined aught but that they should worship God, sincere in their faith in Him alone, turning away from all that is false; and that they should be constant in prayer; and that they should spend in charity: for this is a moral law endowed with ever-true soundness and clarity.* — **Al-Bayyina (98:5)**
+> 📖 *Believers are only they whose hearts tremble with awe whenever God is mentioned, and whose faith is strengthened whenever His messages are conveyed unto them, and who in their Sustainer place their trust -* — **Al-Anfaal (8:2)**
 <!-- quran-verse-end -->
 
 ---
