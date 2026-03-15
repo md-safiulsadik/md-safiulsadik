@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *All that they have ever yearned for awaits them with their Sustainer: such will be the reward of the doers of good.* — **Az-Zumar (39:34)**
+> 📖 *Still, the man who had attained to faith went on: “O my people! Follow me: I shall guide you onto the path of rectitude!* — **Ghafir (40:38)**
 <!-- quran-verse-end -->
 
 ---
