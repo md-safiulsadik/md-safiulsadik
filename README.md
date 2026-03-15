@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He answered: "As for him who does wrong [unto others] - him shall we, in time, cause to suffer; and thereupon he shall be referred to his Sustainer, and He will cause him to suffer with unnameable suffering.* — **Al-Kahf (18:87)**
+> 📖 *And [withal, He will grant you] yet another thing that you dearly love: succour from God [in this world], and a victory soon to come: and [thereof, O Prophet,] give thou a glad tiding to all who believe.* — **As-Saff (61:13)**
 <!-- quran-verse-end -->
 
 ---
