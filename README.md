@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[a fire] which they shall enter on Judgment Day,* — **Al-Infitaar (82:15)**
+> 📖 *He answered: "As for him who does wrong [unto others] - him shall we, in time, cause to suffer; and thereupon he shall be referred to his Sustainer, and He will cause him to suffer with unnameable suffering.* — **Al-Kahf (18:87)**
 <!-- quran-verse-end -->
 
 ---
