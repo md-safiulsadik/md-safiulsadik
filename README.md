@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Woe on that Day unto those who give the lie to the truth!* — **Al-Mursalaat (77:15)**
+> 📖 *Say thou, [O Prophet:] "Knowledge thereof rests with God alone; and I am only a plain warner."* — **Al-Mulk (67:26)**
 <!-- quran-verse-end -->
 
 ---
