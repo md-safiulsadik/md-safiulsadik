@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And if any of your wives should go over to the deniers of the truth, and you are thus afflicted in turn, then give unto those whose wives have gone away the equivalent of what they had spent [on their wives by way of dower], and remain conscious of God, in whom you believe!* — **Al-Mumtahana (60:11)**
+> 📖 *All that they have ever yearned for awaits them with their Sustainer: such will be the reward of the doers of good.* — **Az-Zumar (39:34)**
 <!-- quran-verse-end -->
 
 ---
