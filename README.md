@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware of those who would be friends with people whom God has condemned? They are neither of you [O believers] nor of those [who utterly reject the truth]: and so they swear to a falsehood the while they know [it to be false].* — **Al-Mujaadila (58:14)**
+> 📖 *But when he came close to it, a voice called out: "O Moses!* — **Taa-Haa (20:11)**
 <!-- quran-verse-end -->
 
 ---
