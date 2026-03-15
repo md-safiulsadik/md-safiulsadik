@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[a fire] which they shall enter on Judgment Day,* — **Al-Infitaar (82:15)**
+> 📖 *And yet, some choose to worship, instead of Him, imaginary deities that cannot create anything but are themselves created, and have it not within their power to avert harm from, or bring benefit to, themselves, and have no power over death, nor over life, nor over resurrection!* — **Al-Furqaan (25:3)**
 <!-- quran-verse-end -->
 
 ---
