@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say thou, [O Prophet:] "Knowledge thereof rests with God alone; and I am only a plain warner."* — **Al-Mulk (67:26)**
+> 📖 *[a fire] which they shall enter on Judgment Day,* — **Al-Infitaar (82:15)**
 <!-- quran-verse-end -->
 
 ---
