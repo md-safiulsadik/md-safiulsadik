@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But when God's message was conveyed unto Pharaoh,] he said: "Who, now, is this Sustainer of you two, O Moses?"* — **Taa-Haa (20:49)**
+> 📖 *"All praise is due to God, who has bestowed upon me, in my old age, Ishmael and Isaac! Behold, my Sustainer hears indeed all prayer:* — **Ibrahim (14:39)**
 <!-- quran-verse-end -->
 
 ---
