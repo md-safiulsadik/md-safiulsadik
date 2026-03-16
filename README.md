@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thereupon Pharaoh withdrew [with his counsellors] and decided upon the scheme which he would pursue; and then he came [to the tryst].* — **Taa-Haa (20:60)**
+> 📖 *as well as a tree that issues from [the lands adjoining] Mount Sinai, yielding oil and relish for all to eat.* — **Al-Muminoon (23:20)**
 <!-- quran-verse-end -->
 
 ---
