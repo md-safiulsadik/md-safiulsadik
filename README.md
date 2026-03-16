@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "Behold, I take my stand on a clear evidence from my Sustainer-and [so] it is to Him that you are giving the lie! Not in my power is that which [in your ignorance] you so hastily demand: judgment rests with none but God. He shall declare the truth, since it is He who is the best judge between truth and falsehood."* — **Al-An'aam (6:57)**
+> 📖 *and dost thou now see any remnant of them?* — **Al-Haaqqa (69:8)**
 <!-- quran-verse-end -->
 
 ---
