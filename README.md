@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"All praise is due to God, who has bestowed upon me, in my old age, Ishmael and Isaac! Behold, my Sustainer hears indeed all prayer:* — **Ibrahim (14:39)**
+> 📖 *"and from the evil of the envious when he envies."* — **Al-Falaq (113:5)**
 <!-- quran-verse-end -->
 
 ---
