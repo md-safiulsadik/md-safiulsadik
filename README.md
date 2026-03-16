@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?* — **Al-Fil (105:1)**
+> 📖 *Thereupon Pharaoh withdrew [with his counsellors] and decided upon the scheme which he would pursue; and then he came [to the tryst].* — **Taa-Haa (20:60)**
 <!-- quran-verse-end -->
 
 ---
