@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, await in patience thy Sustainer’s judgment, for thou art well within Our sight. And extol thy Sustainer’s limitless glory and praise whenever thou risest up,* — **At-Tur (52:48)**
+> 📖 *[But when God's message was conveyed unto Pharaoh,] he said: "Who, now, is this Sustainer of you two, O Moses?"* — **Taa-Haa (20:49)**
 <!-- quran-verse-end -->
 
 ---
