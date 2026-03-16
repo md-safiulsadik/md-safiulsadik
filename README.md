@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *created man out of a germ-cell* — **Al-Alaq (96:2)**
+> 📖 *And so, await in patience thy Sustainer’s judgment, for thou art well within Our sight. And extol thy Sustainer’s limitless glory and praise whenever thou risest up,* — **At-Tur (52:48)**
 <!-- quran-verse-end -->
 
 ---
