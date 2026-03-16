@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *a source [of bliss] whereof those who are drawn close unto God shall drink.* — **Al-Mutaffifin (83:28)**
+> 📖 *Say: "Behold, I take my stand on a clear evidence from my Sustainer-and [so] it is to Him that you are giving the lie! Not in my power is that which [in your ignorance] you so hastily demand: judgment rests with none but God. He shall declare the truth, since it is He who is the best judge between truth and falsehood."* — **Al-An'aam (6:57)**
 <!-- quran-verse-end -->
 
 ---
