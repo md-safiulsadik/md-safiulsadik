@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, We create man in the best conformation;* — **At-Tin (95:4)**
+> 📖 *LOT ’S PEOPLE [too] gave the lie to all [Our] warn­ings:* — **Al-Qamar (54:33)**
 <!-- quran-verse-end -->
 
 ---
