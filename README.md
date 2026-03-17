@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *If you invoke them, they do not hear your call; and even if they could hear, they would not [be able to] respond to you. And [withal,] on the Day of Resurrection they will utterly disown your having associated them with God. And none can make thee understand [the truth] like the One who is all-aware.* — **Faatir (35:14)**
+> 📖 *Verily, We create man in the best conformation;* — **At-Tin (95:4)**
 <!-- quran-verse-end -->
 
 ---
