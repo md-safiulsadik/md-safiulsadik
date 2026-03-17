@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *IT IS GOD who has created you, and then has provided you with sustenance, and then will cause you to die, and then will bring you to life again. Can any of those beings or powers to whom you ascribe a share in His divinity do any of these things? Limitless is He in His glory, and sublimely exalted above anything to which men may ascribe a share in His divinity!* — **Ar-Room (30:40)**
+> 📖 *Indeed, [even aforetime] did We send forth Our apostles with all evidence of [this] truth; and through them We bestowed revelation from on high, and [thus gave you] a balance [wherewith to weigh right and wrong], so that men might behave with equity; and We bestowed [upon you] from on high [the ability to make use of] iron, in which there is awesome power as well as [a source of] benefits for man: and [all this was given to you] so that God might mark out those who would stand up for him and His Apostle, even though He [Himself] is beyond the reach of human perception. Verily, God is powerful, almighty!* — **Al-Hadid (57:25)**
 <!-- quran-verse-end -->
 
 ---
