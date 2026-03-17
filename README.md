@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, [O believer,] it is We who have bestowed from on high this Qur’an upon thee, step by step - truly a bestowal from on high!* — **Al-Insaan (76:23)**
+> 📖 *If you invoke them, they do not hear your call; and even if they could hear, they would not [be able to] respond to you. And [withal,] on the Day of Resurrection they will utterly disown your having associated them with God. And none can make thee understand [the truth] like the One who is all-aware.* — **Faatir (35:14)**
 <!-- quran-verse-end -->
 
 ---
