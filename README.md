@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Lord of the Day of Judgment!* — **Al-Faatiha (1:4)**
+> 📖 *Or do they say, “He has invented all this”? Say [O Muhammad]: “Had I invented it, you would not be of the least help to me against God. He is fully aware of that [slander] into which you so reck­lessly plunge: enough is He as a witness between me and you! And [withal,] He alone is truly-forgiving, a true dispenser of grace.”* — **Al-Ahqaf (46:8)**
 <!-- quran-verse-end -->
 
 ---
