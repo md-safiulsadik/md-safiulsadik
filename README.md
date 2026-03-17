@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or do they say, “He has invented all this”? Say [O Muhammad]: “Had I invented it, you would not be of the least help to me against God. He is fully aware of that [slander] into which you so reck­lessly plunge: enough is He as a witness between me and you! And [withal,] He alone is truly-forgiving, a true dispenser of grace.”* — **Al-Ahqaf (46:8)**
+> 📖 *And withal, they were not enjoined aught but that they should worship God, sincere in their faith in Him alone, turning away from all that is false; and that they should be constant in prayer; and that they should spend in charity: for this is a moral law endowed with ever-true soundness and clarity.* — **Al-Bayyina (98:5)**
 <!-- quran-verse-end -->
 
 ---
