@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And after he had withdrawn from them and from all that they were worshipping instead of God, We bestowed upon him Isaac and Jacob, and made each of them a prophet;* — **Maryam (19:49)**
+> 📖 *AND IN his absence the people of Moses took to worshipping the effigy of a calf [made] of their ornaments, which gave forth a lowing sound." Did they not see that it could neither speak unto them nor guide them in any way? [And yet] they took to worshipping it, for they were evildoers:* — **Al-A'raaf (7:148)**
 <!-- quran-verse-end -->
 
 ---
