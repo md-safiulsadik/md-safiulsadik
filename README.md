@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[He has sent] an apostle who conveys unto you God's clear messages, so that He might those who have attained to faith and do righteous deeds out of the depths of darkness into the light. And whoever believes in God and does what is right and just, him will He admit into gardens through which running waters flow, therein to abide beyond the count of time: indeed, a most goodly provision will God have granted him!* — **At-Talaaq (65:11)**
+> 📖 *Indeed, God has shown the truth in His Apostle’s true vision: most certainly shall you enter the Inviolable House of Worship, if God so wills, in full security, with your heads shaved or your hair cut short, without any fear: for He has [always] known that which you yourselves could not know. And He has ordained [for you], besides this, a victory soon to come.* — **Al-Fath (48:27)**
 <!-- quran-verse-end -->
 
 ---
