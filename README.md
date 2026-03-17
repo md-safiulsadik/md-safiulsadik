@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *an act of thy Sustainer’s favour: and that, that will be the triumph supreme!* — **Ad-Dukhaan (44:57)**
+> 📖 *But you cannot will it unless God, the Sustainer of all the worlds, wills [to show you that way].* — **At-Takwir (81:29)**
 <!-- quran-verse-end -->
 
 ---
