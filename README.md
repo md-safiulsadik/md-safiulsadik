@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *LOT ’S PEOPLE [too] gave the lie to all [Our] warn­ings:* — **Al-Qamar (54:33)**
+> 📖 *an act of thy Sustainer’s favour: and that, that will be the triumph supreme!* — **Ad-Dukhaan (44:57)**
 <!-- quran-verse-end -->
 
 ---
