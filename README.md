@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But you cannot will it unless God, the Sustainer of all the worlds, wills [to show you that way].* — **At-Takwir (81:29)**
+> 📖 *And after he had withdrawn from them and from all that they were worshipping instead of God, We bestowed upon him Isaac and Jacob, and made each of them a prophet;* — **Maryam (19:49)**
 <!-- quran-verse-end -->
 
 ---
