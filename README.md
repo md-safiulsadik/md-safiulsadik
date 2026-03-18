@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *those who, beguiled by the life of this world, have made play and passing delights their religion! [And God will say:] "And so We shall be oblivious of them today as they were oblivious of the coming of this their Day [of Judgment], and as Our messages they did deny:* — **Al-A'raaf (7:51)**
+> 📖 *EVEN AS thy Sustainer brought thee forth from thy home [to fight] in the cause of the truth, although some of the believers were averse to it,* — **Al-Anfaal (8:5)**
 <!-- quran-verse-end -->
 
 ---
