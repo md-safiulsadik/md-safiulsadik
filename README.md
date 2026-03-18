@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[All other kinds of] secret confabulations are but of Satan’s doing, so that he might cause grief to those who have attained to faith; yet he cannot harm them in the least, unless it be by God’s leave: in God, then, let the believers place their trust!* — **Al-Mujaadila (58:10)**
+> 📖 *THE LAST HOUR draws near, and the moon is split asunder!* — **Al-Qamar (54:1)**
 <!-- quran-verse-end -->
 
 ---
