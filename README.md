@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *EVEN AS thy Sustainer brought thee forth from thy home [to fight] in the cause of the truth, although some of the believers were averse to it,* — **Al-Anfaal (8:5)**
+> 📖 *And [as for] that favour of which thou so tauntingly remindest me - [was it not] due to thy having enslaved the children of Israel?”* — **Ash-Shu'araa (26:22)**
 <!-- quran-verse-end -->
 
 ---
