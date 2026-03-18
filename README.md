@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the planets that run their course and set,* — **At-Takwir (81:16)**
+> 📖 *and make for yourselves mighty castles, [hoping] that you might become immortal?* — **Ash-Shu'araa (26:129)**
 <!-- quran-verse-end -->
 
 ---
