@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay - who is it that responds to the distressed when he calls out to Him, and who removes the ill [that caused the distress], and has made you inherit the earth? Could there be any divine power besides God? How seldom do you keep this in mind!* — **An-Naml (27:62)**
+> 📖 *[who bears] around her neck a rope of twisted strands!* — **Al-Masad (111:5)**
 <!-- quran-verse-end -->
 
 ---
