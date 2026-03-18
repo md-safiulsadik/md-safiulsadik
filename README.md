@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND IN his absence the people of Moses took to worshipping the effigy of a calf [made] of their ornaments, which gave forth a lowing sound." Did they not see that it could neither speak unto them nor guide them in any way? [And yet] they took to worshipping it, for they were evildoers:* — **Al-A'raaf (7:148)**
+> 📖 *He who desires might and glory [ought to know that] all might and glory belong to God [alone]. Unto Him ascend all good words, and the righteous deed does He exalt. But as for those who cunningly devise evil deeds - suffering severe awaits them; and all their devising is bound to come to nought.* — **Faatir (35:10)**
 <!-- quran-verse-end -->
 
 ---
