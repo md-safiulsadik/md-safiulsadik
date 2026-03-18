@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He alone grants life and deals death; and unto Him you all must return.* — **Yunus (10:56)**
+> 📖 *But nay! Verily, all [that awaits him] is a raging flame,* — **Al-Ma'aarij (70:15)**
 <!-- quran-verse-end -->
 
 ---
