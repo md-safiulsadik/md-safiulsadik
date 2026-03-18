@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THE LAST HOUR draws near, and the moon is split asunder!* — **Al-Qamar (54:1)**
+> 📖 *He alone grants life and deals death; and unto Him you all must return.* — **Yunus (10:56)**
 <!-- quran-verse-end -->
 
 ---
