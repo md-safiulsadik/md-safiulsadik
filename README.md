@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But nay! Verily, all [that awaits him] is a raging flame,* — **Al-Ma'aarij (70:15)**
+> 📖 *AND KNOW that whatever booty you acquire [in war], one-fifth thereof belongs to God and the Apostle, and the near of kin, and the orphans, and the needy, and the wayfarer. [This you must observe] if you believe in God and in what We bestowed from on high upon Our servant on the day when the true was distinguished from the false - the day when the two hosts met in battle. And God has the power to will anything.* — **Al-Anfaal (8:41)**
 <!-- quran-verse-end -->
 
 ---
