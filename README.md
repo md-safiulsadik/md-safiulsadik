@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither sky nor earth shed tears over them, nor were they allowed a respite.* — **Ad-Dukhaan (44:29)**
+> 📖 *and at that time you will [have cause to] remember what I am telling you [now]. “But [as for me,] I commit myself unto God: for, verily, God sees all that is in [the hearts of] His servants.”* — **Ghafir (40:44)**
 <!-- quran-verse-end -->
 
 ---
