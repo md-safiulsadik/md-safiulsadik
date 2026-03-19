@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, God will admit those who have attained to faith and have done righteous deeds into gardens through which running waters flow: for, behold, God does whatever He wills.* — **Al-Hajj (22:14)**
+> 📖 *[companions] whom neither man nor invisible being will have touched ere then.* — **Ar-Rahmaan (55:74)**
 <!-- quran-verse-end -->
 
 ---
