@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[who bears] around her neck a rope of twisted strands!* — **Al-Masad (111:5)**
+> 📖 *AND ON EARTH there are signs [of God’s exis­tence, visible] to all who are endowed with inner certainty,* — **Adh-Dhaariyat (51:20)**
 <!-- quran-verse-end -->
 
 ---
