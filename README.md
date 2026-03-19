@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [He is aware, too, that] they who are bent on denying the truth speak [thus, as it were,] to those who have attained to faith: “Follow our way [of life], and we shall indeed take your sins upon ourselves!” But never could they take upon themselves aught of the sins of those [whom they would thus mislead]: behold, they are liars indeed!* — **Al-Ankaboot (29:12)**
+> 📖 *secure in their winter and summer journeys,* — **Quraish (106:2)**
 <!-- quran-verse-end -->
 
 ---
