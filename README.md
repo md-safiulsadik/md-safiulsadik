@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and at that time you will [have cause to] remember what I am telling you [now]. “But [as for me,] I commit myself unto God: for, verily, God sees all that is in [the hearts of] His servants.”* — **Ghafir (40:44)**
+> 📖 *O Prophet! Inspire the believers to conquer all fear of death when fighting, [so that,] if there be twenty of you who are patient in adversity, they might overcome two hundred; and [that,] if there be one hundred of you, they might overcome one thousand of those who are bent on denying the truth, because they are people who cannot grasp it.* — **Al-Anfaal (8:65)**
 <!-- quran-verse-end -->
 
 ---
