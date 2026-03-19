@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, this [divine writ] is indeed a word that between truth and falsehood,* — **At-Taariq (86:13)**
+> 📖 *And [He is aware, too, that] they who are bent on denying the truth speak [thus, as it were,] to those who have attained to faith: “Follow our way [of life], and we shall indeed take your sins upon ourselves!” But never could they take upon themselves aught of the sins of those [whom they would thus mislead]: behold, they are liars indeed!* — **Al-Ankaboot (29:12)**
 <!-- quran-verse-end -->
 
 ---
