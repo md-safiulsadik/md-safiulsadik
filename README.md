@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[companions] whom neither man nor invisible being will have touched ere then.* — **Ar-Rahmaan (55:74)**
+> 📖 *and of thy Sustainer's blessings shalt thou [ever] speak.* — **Ad-Dhuhaa (93:11)**
 <!-- quran-verse-end -->
 
 ---
