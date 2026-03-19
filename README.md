@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *or take them to task through slow decay? And yet, behold, your Sustainer is most compassionate, a dispenser of grace!* — **An-Nahl (16:47)**
+> 📖 *“There is no doubt that what you summon me to is something that has no claim to being invoked either in this world or in the life to come - as [there is no doubt] that unto God is our return, and that they who have wasted their own selves shall find them­selves in the fire:* — **Ghafir (40:43)**
 <!-- quran-verse-end -->
 
 ---
