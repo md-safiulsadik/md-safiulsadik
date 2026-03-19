@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND ON EARTH there are signs [of God’s exis­tence, visible] to all who are endowed with inner certainty,* — **Adh-Dhaariyat (51:20)**
+> 📖 *[the while] We shall summon the forces of heavenly chastisement!* — **Al-Alaq (96:18)**
 <!-- quran-verse-end -->
 
 ---
