@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *secure in their winter and summer journeys,* — **Quraish (106:2)**
+> 📖 *And what could make thee conceive what that Judgment Day will be?* — **Al-Infitaar (82:17)**
 <!-- quran-verse-end -->
 
 ---
