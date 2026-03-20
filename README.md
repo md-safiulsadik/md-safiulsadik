@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[AND] the dwellers of the wooded dales [of Madyan] gave the lie to [one of God’s] message-bearers* — **Ash-Shu'araa (26:176)**
+> 📖 *you would indeed, most surely, behold the blazing fire [of hell]!* — **At-Takaathur (102:6)**
 <!-- quran-verse-end -->
 
 ---
