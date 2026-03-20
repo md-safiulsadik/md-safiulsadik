@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the building which they have built will never cease to be a source of deep disquiet in their hearts until their hearts crumble to pieces. And God is all-knowing, wise.* — **At-Tawba (9:110)**
+> 📖 *[AND] the dwellers of the wooded dales [of Madyan] gave the lie to [one of God’s] message-bearers* — **Ash-Shu'araa (26:176)**
 <!-- quran-verse-end -->
 
 ---
