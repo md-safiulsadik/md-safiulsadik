@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thou hast already fulfilled [the purpose of] that dream- vision!” Thus, verily, do We reward the doers of good:* — **As-Saaffaat (37:105)**
+> 📖 *O YOU who have attained to faith! Remain con­scious of God, and believe in His Apostle, [and] He will grant you doubly of His grace, and will light for you a light wherein you shall walk, and will forgive you [your past sins]: for God is much-forgiving, a dispenser of grace.* — **Al-Hadid (57:28)**
 <!-- quran-verse-end -->
 
 ---
