@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *What will his wealth avail him, and all that he has gained?* — **Al-Masad (111:2)**
+> 📖 *And, indeed, We have caused such [floating vessels] to remain forever a sign [of Our grace unto man]: who, then, is willing to take it to heart?* — **Al-Qamar (54:15)**
 <!-- quran-verse-end -->
 
 ---
