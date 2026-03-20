@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thinking that his wealth will make him live forever!* — **Al-Humaza (104:3)**
+> 📖 *What will his wealth avail him, and all that he has gained?* — **Al-Masad (111:2)**
 <!-- quran-verse-end -->
 
 ---
