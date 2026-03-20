@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And never turn thine, eyes [with longing] towards whatever splendour of this world's life We may have allowed so many others to enjoy in order that We might test them thereby: for the sustenance which thy Sustainer provides [for thee] is better and more enduring.* — **Taa-Haa (20:131)**
+> 📖 *"And I will not worship ~hat which you have [ever] worshipped,* — **Al-Kaafiroon (109:4)**
 <!-- quran-verse-end -->
 
 ---
