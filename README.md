@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and truly lost is he who buries it [in darkness].* — **Ash-Shams (91:10)**
+> 📖 *thinking that his wealth will make him live forever!* — **Al-Humaza (104:3)**
 <!-- quran-verse-end -->
 
 ---
