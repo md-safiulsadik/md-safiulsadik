@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[It is] the freeing of one's neck [from the burden of sin],* — **Al-Balad (90:13)**
+> 📖 *If they could but overcome you, they would [still] remain your foes, and would stretch forth their hands and tongues against you with evil intent: for they desire that you [too] should deny the truth.* — **Al-Mumtahana (60:2)**
 <!-- quran-verse-end -->
 
 ---
