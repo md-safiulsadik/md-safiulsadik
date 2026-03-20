@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"the God of men,* — **An-Naas (114:3)**
+> 📖 *thou hast already fulfilled [the purpose of] that dream- vision!” Thus, verily, do We reward the doers of good:* — **As-Saaffaat (37:105)**
 <!-- quran-verse-end -->
 
 ---
