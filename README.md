@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *nor is this difficult for God.* — **Faatir (35:17)**
+> 📖 *and neither do you worship that which I worship!* — **Al-Kaafiroon (109:3)**
 <!-- quran-verse-end -->
 
 ---
