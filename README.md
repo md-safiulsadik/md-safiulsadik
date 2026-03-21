@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, indeed, We have caused such [floating vessels] to remain forever a sign [of Our grace unto man]: who, then, is willing to take it to heart?* — **Al-Qamar (54:15)**
+> 📖 *and thereupon causes it to decay into rust-brown stubble!* — **Al-A'laa (87:5)**
 <!-- quran-verse-end -->
 
 ---
