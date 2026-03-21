@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and will be told:] “Taste this your trial! It is this that you were so hastily asking for!”* — **Adh-Dhaariyat (51:14)**
+> 📖 *a good many of those of olden times,* — **Al-Waaqia (56:13)**
 <!-- quran-verse-end -->
 
 ---
