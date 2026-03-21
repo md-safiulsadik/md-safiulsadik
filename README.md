@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *a good many of those of olden times,* — **Al-Waaqia (56:13)**
+> 📖 *[The others] answered: “You are nothing but mortal men like ourselves; moreover, the Most Gracious has never bestowed aught [of revelation] from on high. You do nothing but lie!”* — **Yaseen (36:15)**
 <!-- quran-verse-end -->
 
 ---
