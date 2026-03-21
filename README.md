@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[The others] answered: “You are nothing but mortal men like ourselves; moreover, the Most Gracious has never bestowed aught [of revelation] from on high. You do nothing but lie!”* — **Yaseen (36:15)**
+> 📖 *which, then, of your Sustainer’s powers can you disavow? –* — **Ar-Rahmaan (55:63)**
 <!-- quran-verse-end -->
 
 ---
