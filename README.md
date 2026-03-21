@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for He alone holds sway over His creatures, and He alone is truly wise, all-aware.* — **Al-An'aam (6:18)**
+> 📖 *[and will be told:] “Taste this your trial! It is this that you were so hastily asking for!”* — **Adh-Dhaariyat (51:14)**
 <!-- quran-verse-end -->
 
 ---
