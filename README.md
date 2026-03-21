@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which, then, of your Sustainer’s powers can you disavow? –* — **Ar-Rahmaan (55:63)**
+> 📖 *[He it is who will cause you to die, and in time will resurrect you.] And when the Last Hour dawns, those who had been lost in sin will swear that they had not tarried [on earth] longer than an hour: thus were they wont to delude themselves [all their lives]!* — **Ar-Room (30:55)**
 <!-- quran-verse-end -->
 
 ---
