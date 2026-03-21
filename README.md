@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and how it is imbued with moral failings as well as with consciousness of God!* — **Ash-Shams (91:8)**
+> 📖 *for He alone holds sway over His creatures, and He alone is truly wise, all-aware.* — **Al-An'aam (6:18)**
 <!-- quran-verse-end -->
 
 ---
