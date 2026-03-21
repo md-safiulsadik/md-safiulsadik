@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereupon causes it to decay into rust-brown stubble!* — **Al-A'laa (87:5)**
+> 📖 *And when he had provided them with their provisions, he said: "[When you come here next,] bring unto me that brother of yours from your father's side. Do you not see that I have given [you] full measure and have been the best of hosts?* — **Yusuf (12:59)**
 <!-- quran-verse-end -->
 
 ---
