@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[The brothers] replied: "Its requital? He in whose camel-pack [the cup] is found-he shall be [enslaved as] a requital thereof! Thus do we [ourselves] requite the doers of [such] wrong.* — **Yusuf (12:75)**
+> 📖 *TO [THIS] TRUTH gave the lie, in their overweening arrogance, [the tribe of] Thamud,* — **Ash-Shams (91:11)**
 <!-- quran-verse-end -->
 
 ---
