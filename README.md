@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And when he had provided them with their provisions, he said: "[When you come here next,] bring unto me that brother of yours from your father's side. Do you not see that I have given [you] full measure and have been the best of hosts?* — **Yusuf (12:59)**
+> 📖 *Their reward [awaits them] with God: gardens of perpetual bliss, through which running waters flow, therein to abide beyond the count of time; well-pleased is God with them, and well-pleased are they with Him: all this awaits him who of his Sustainer stands in awe!.* — **Al-Bayyina (98:8)**
 <!-- quran-verse-end -->
 
 ---
