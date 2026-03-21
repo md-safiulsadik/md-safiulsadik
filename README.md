@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O you who have attained to faith! Remember the blessings which God bestowed upon you when [hostile] people were about to lay hands on you and He stayed their hands from you. Remain, then, conscious of God: and in God let the believers place their trust.* — **Al-Maaida (5:11)**
+> 📖 *and who brings forth herbage,* — **Al-A'laa (87:4)**
 <!-- quran-verse-end -->
 
 ---
