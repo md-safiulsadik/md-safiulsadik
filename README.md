@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *If you offer up to God a goodly loan, He will amply repay you for it, and will forgive you your sins: for God is ever responsive to gratitude, forbearing,* — **At-Taghaabun (64:17)**
+> 📖 *nor is this difficult for God.* — **Faatir (35:17)**
 <!-- quran-verse-end -->
 
 ---
