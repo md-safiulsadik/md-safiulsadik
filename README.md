@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now as for such of your women as are beyond, the age of monthly courses, as well as for such as do not have any courses, their waiting-period - if you have any doubt [about it] - shall be three [calendar] months; and as for those who are with child, the end of their waiting-term shall come when they deliver their burden. And for everyone who is conscious of God, He makes it easy to obey His commandment:* — **At-Talaaq (65:4)**
+> 📖 *O you who have attained to faith! Remember the blessings which God bestowed upon you when [hostile] people were about to lay hands on you and He stayed their hands from you. Remain, then, conscious of God: and in God let the believers place their trust.* — **Al-Maaida (5:11)**
 <!-- quran-verse-end -->
 
 ---
