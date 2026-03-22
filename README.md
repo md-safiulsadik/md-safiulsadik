@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In them, indeed, you have a good example for everyone who looks forward [with hope and awe] to God and the Last Day. And if any turns away, [let him know that] God is truly self-sufficient, the One to whom all praise is due."* — **Al-Mumtahana (60:6)**
+> 📖 *and fruits and herbage,* — **Abasa (80:31)**
 <!-- quran-verse-end -->
 
 ---
