@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and fruits and herbage,* — **Abasa (80:31)**
+> 📖 *Lo! [With glee do] they contemplate that [fire],* — **Al-Burooj (85:6)**
 <!-- quran-verse-end -->
 
 ---
