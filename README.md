@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and neither do you worship that which I worship!* — **Al-Kaafiroon (109:3)**
+> 📖 *And do you laugh instead of weeping,* — **An-Najm (53:60)**
 <!-- quran-verse-end -->
 
 ---
