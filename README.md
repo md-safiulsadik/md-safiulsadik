@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Sustainer of the east and the west [is He]: there is no deity save Him: hence, ascribe to Him alone the power to determine thy fate,* — **Al-Muzzammil (73:9)**
+> 📖 *and says, "All this is mere spellbinding eloquence handed down [from olden times]!* — **Al-Muddaththir (74:24)**
 <!-- quran-verse-end -->
 
 ---
