@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It is they whom God has rejected: and he whom God rejects shall find none to succour him.* — **An-Nisaa (4:52)**
+> 📖 *O YOU who have attained to faith! Let not your worldly goods or your children make you oblivious of the remembrance of God: for If any behave thus - it is they, they who are the losers!* — **Al-Munaafiqoon (63:9)**
 <!-- quran-verse-end -->
 
 ---
