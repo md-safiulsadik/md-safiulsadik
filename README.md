@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and] by virtue thereof He causes crops to grow for you, and olive trees, and date palms, and grapes, and all [other] kinds of fruit: in this, behold, there is a message indeed for people who think!* — **An-Nahl (16:11)**
+> 📖 *Did We not destroy [so many of] those [sinners] of olden days?* — **Al-Mursalaat (77:16)**
 <!-- quran-verse-end -->
 
 ---
