@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and says, "All this is mere spellbinding eloquence handed down [from olden times]!* — **Al-Muddaththir (74:24)**
+> 📖 *Verily, God loves [only] those who fight in His cause in [solid] ranks, as though they were a building firm and compact.* — **As-Saff (61:4)**
 <!-- quran-verse-end -->
 
 ---
