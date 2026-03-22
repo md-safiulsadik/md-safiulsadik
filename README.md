@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *of Pharaoh, and of [the tribe of] Thamud?* — **Al-Burooj (85:18)**
+> 📖 *BUT NAY! I call to witness the revolving stars,* — **At-Takwir (81:15)**
 <!-- quran-verse-end -->
 
 ---
