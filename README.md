@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BUT NAY! I call to witness the revolving stars,* — **At-Takwir (81:15)**
+> 📖 *In them, indeed, you have a good example for everyone who looks forward [with hope and awe] to God and the Last Day. And if any turns away, [let him know that] God is truly self-sufficient, the One to whom all praise is due."* — **Al-Mumtahana (60:6)**
 <!-- quran-verse-end -->
 
 ---
