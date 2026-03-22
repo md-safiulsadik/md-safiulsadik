@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Jacob] answered: "Behold, it grieves me indeed [to think] that you might take him with you, for I dread lest the wolf devour him at a moment when you are heedless of him!"* — **Yusuf (12:13)**
+> 📖 *and [thus] shall We make easy for thee the path towards [ultimate] ease.* — **Al-A'laa (87:8)**
 <!-- quran-verse-end -->
 
 ---
