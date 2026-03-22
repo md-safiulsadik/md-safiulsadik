@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Let not your worldly goods or your children make you oblivious of the remembrance of God: for If any behave thus - it is they, they who are the losers!* — **Al-Munaafiqoon (63:9)**
+> 📖 *[yet] it is they who, in the life to come, shall have nothing but the fire -for in vain shall be all that they wrought in this [world], and worthless all that they ever did!* — **Hud (11:16)**
 <!-- quran-verse-end -->
 
 ---
