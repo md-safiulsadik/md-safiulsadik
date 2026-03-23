@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, in all this there are messages indeed for those who can read the signs:* — **Al-Hijr (15:75)**
+> 📖 *Lord of the Day of Judgment!* — **Al-Faatiha (1:4)**
 <!-- quran-verse-end -->
 
 ---
