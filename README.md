@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the night as it veils [the earth] in darkness,* — **Al-Lail (92:1)**
+> 📖 *and the mountains will move with [an awesome] movement.* — **At-Tur (52:10)**
 <!-- quran-verse-end -->
 
 ---
