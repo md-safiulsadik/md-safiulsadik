@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, We have bestowed upon thee good in abundance:* — **Al-Kawthar (108:1)**
+> 📖 *He is nothing but a man who attributes his own lying in­ventions to God, and we are not going to believe him!”* — **Al-Muminoon (23:38)**
 <!-- quran-verse-end -->
 
 ---
