@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the mountains will move with [an awesome] movement.* — **At-Tur (52:10)**
+> 📖 *Verily, in all this there are messages indeed for those who can read the signs:* — **Al-Hijr (15:75)**
 <!-- quran-verse-end -->
 
 ---
