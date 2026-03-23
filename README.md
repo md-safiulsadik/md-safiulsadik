@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the blazing fire [of hell] is kindled bright,* — **At-Takwir (81:12)**
+> 📖 *Evil is the example of people who are bent on giving the lie to Our messages: for it is against their own selves that they are sinning!* — **Al-A'raaf (7:177)**
 <!-- quran-verse-end -->
 
 ---
