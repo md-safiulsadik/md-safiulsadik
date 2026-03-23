@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *These it is that shall receive a twofold reward for having been patient in adversity, and having repelled evil with good, and having spent on others out of what We provided for them as sus­tenance,* — **Al-Qasas (28:54)**
+> 📖 *He knows all that enters the earth, and all that comes out of it, as well as all that descends from the skies, and all that ascends to them. And He alone is a dispenser of grace, truly-forgiving.* — **Saba (34:2)**
 <!-- quran-verse-end -->
 
 ---
