@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [remember:] whatever you are given [now] is but for the [passing] enjoyment of life in this world, and for its embellishment - whereas that which is with God is [so much] better and more enduring. Will you not, then, use your reason?* — **Al-Qasas (28:60)**
+> 📖 *and when the blazing fire [of hell] is kindled bright,* — **At-Takwir (81:12)**
 <!-- quran-verse-end -->
 
 ---
