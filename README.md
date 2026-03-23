@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He is nothing but a man who attributes his own lying in­ventions to God, and we are not going to believe him!”* — **Al-Muminoon (23:38)**
+> 📖 *Thereupon his wife approached [the guests] with a loud cry, and struck her face [in astonishment] and exclaimed: “A barren old woman [like me]!”* — **Adh-Dhaariyat (51:29)**
 <!-- quran-verse-end -->
 
 ---
