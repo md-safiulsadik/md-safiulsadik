@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Lord of the Day of Judgment!* — **Al-Faatiha (1:4)**
+> 📖 *Behold, it is He who creates [man] in the first instance, and He [it is who] will bring him forth anew.* — **Al-Burooj (85:13)**
 <!-- quran-verse-end -->
 
 ---
