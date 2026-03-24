@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when all beasts are gathered together,* — **At-Takwir (81:5)**
+> 📖 *will be the food of the sinful:* — **Ad-Dukhaan (44:44)**
 <!-- quran-verse-end -->
 
 ---
