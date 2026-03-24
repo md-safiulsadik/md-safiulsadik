@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, this [divine writ] is indeed a word that between truth and falsehood,* — **At-Taariq (86:13)**
+> 📖 *A DIVINE WRIT has been bestowed from on high upon thee -and let there be no doubt about this in thy heart-in order that thou mayest warn [the erring] thereby, and [thus] admonish the believers:* — **Al-A'raaf (7:2)**
 <!-- quran-verse-end -->
 
 ---
