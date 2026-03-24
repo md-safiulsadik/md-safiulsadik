@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *will be the food of the sinful:* — **Ad-Dukhaan (44:44)**
+> 📖 *And thus shall thy Sustainer’s word come true against all who are bent on denying the truth: they shall find themselves in the fire [of hell].* — **Ghafir (40:6)**
 <!-- quran-verse-end -->
 
 ---
