@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thereupon his wife approached [the guests] with a loud cry, and struck her face [in astonishment] and exclaimed: “A barren old woman [like me]!”* — **Adh-Dhaariyat (51:29)**
+> 📖 *BEHOLD, this [divine writ] is indeed a word that between truth and falsehood,* — **At-Taariq (86:13)**
 <!-- quran-verse-end -->
 
 ---
