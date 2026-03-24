@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thus shall thy Sustainer’s word come true against all who are bent on denying the truth: they shall find themselves in the fire [of hell].* — **Ghafir (40:6)**
+> 📖 *and remembers his Sustainer's name, and prays [unto Him].* — **Al-A'laa (87:15)**
 <!-- quran-verse-end -->
 
 ---
