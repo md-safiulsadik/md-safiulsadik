@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *verily, with every hardship comes ease!* — **Ash-Sharh (94:6)**
+> 📖 *YOU ARE OBSESSED by greed for more and more* — **At-Takaathur (102:1)**
 <!-- quran-verse-end -->
 
 ---
