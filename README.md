@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *YOU ARE OBSESSED by greed for more and more* — **At-Takaathur (102:1)**
+> 📖 *"And as for that young man, his parents were [true] believers - whereas we had every reason to fear that he would bring bitter grief upon them by [his] overweening wickedness and denial of all truth:* — **Al-Kahf (18:80)**
 <!-- quran-verse-end -->
 
 ---
