@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but now that the truth has come to them, they say, “All this is mere spellbinding eloquence” - and, behold, we deny that there is any truth in it!”* — **Az-Zukhruf (43:30)**
+> 📖 *WHEN GOD'S SUCCOUR comes, and victory,* — **An-Nasr (110:1)**
 <!-- quran-verse-end -->
 
 ---
