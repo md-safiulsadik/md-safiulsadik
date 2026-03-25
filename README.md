@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thou wilt see them exposed to that [doom], humbling themselves in abasement, looking [around] with a furtive glance - the while those who had attained to faith will say, “Verily, lost on [this] Day of Resurrection are they who have squandered their own and their followers’ selves!” Oh, verily, the evildoers will fall into long-lasting suffering,* — **Ash-Shura (42:45)**
+> 📖 *well-nigh bursting with fury; [and] every time a host [of such sinners] is flung into it, its keepers will ask them, "Has no warner ever come to you?"* — **Al-Mulk (67:8)**
 <!-- quran-verse-end -->
 
 ---
