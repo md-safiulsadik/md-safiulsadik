@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
+> 📖 *and, verily, [to this day] you pass by the remnants of their dwellings at morning-time* — **As-Saaffaat (37:137)**
 <!-- quran-verse-end -->
 
 ---
