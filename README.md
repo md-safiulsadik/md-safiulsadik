@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *nay, but man shall against himself be an eye-witness,* — **Al-Qiyaama (75:14)**
+> 📖 *O YOU who have attained to faith! Behold, some of your spouses and your children are enemies unto you: so beware of them! But if you pardon [their faults] and forbear, and forgive-then, behold, God will be much-forgiving, a dispenser of grace.* — **At-Taghaabun (64:14)**
 <!-- quran-verse-end -->
 
 ---
