@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *till, when they came upon a valley [full] of ants, an ant exclaimed: “O you ants! Get into your dwellings, lest Solomon and his hosts crush you without [even] being aware [of you]!”* — **An-Naml (27:18)**
+> 📖 *And, behold, with every hardship comes ease:* — **Ash-Sharh (94:5)**
 <!-- quran-verse-end -->
 
 ---
