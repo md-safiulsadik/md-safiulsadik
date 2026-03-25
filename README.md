@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *well-nigh bursting with fury; [and] every time a host [of such sinners] is flung into it, its keepers will ask them, "Has no warner ever come to you?"* — **Al-Mulk (67:8)**
+> 📖 *On that Day, all dominion shall [visibly] belong to God, He shall judge [all men and make a distinction] between them: thus, all who had attained to faith and did righteous deeds shall find themselves in gardens of bliss,* — **Al-Hajj (22:56)**
 <!-- quran-verse-end -->
 
 ---
