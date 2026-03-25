@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, repulse not [any of] those who at morn and evening invoke their Sustainer, seeking His countenance. Thou art in no wise accountable for them-just as they are in no wise accountable for thee -and thou hast therefore no right to repulse them: for then thou wouldst be among the evildoers.* — **Al-An'aam (6:52)**
+> 📖 *Verily, God will admit all who attain to faith and do righteous deeds into gardens through which running waters flow, whereas they who are bent on denying the truth shall have - even though they may enjoy their life [in this world] and eat as cattle eat - the fire [of the hereafter] for their abode.* — **Muhammad (47:12)**
 <!-- quran-verse-end -->
 
 ---
