@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that Day, all dominion shall [visibly] belong to God, He shall judge [all men and make a distinction] between them: thus, all who had attained to faith and did righteous deeds shall find themselves in gardens of bliss,* — **Al-Hajj (22:56)**
+> 📖 *but now that the truth has come to them, they say, “All this is mere spellbinding eloquence” - and, behold, we deny that there is any truth in it!”* — **Az-Zukhruf (43:30)**
 <!-- quran-verse-end -->
 
 ---
