@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and We bestowed upon them [manifold] gifts out of Our grace, and granted them a lofty power to convey the truth [unto others].* — **Maryam (19:50)**
+> 📖 *But [whether by night or by day,] remember thy Sustainer's name, and devote thyself unto Him with utter devotion.* — **Al-Muzzammil (73:8)**
 <!-- quran-verse-end -->
 
 ---
