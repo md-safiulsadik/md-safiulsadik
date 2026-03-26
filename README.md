@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Even as We have sent unto you an apostle from among yourselves to convey unto you Our messages, and to cause you to grow in purity, and to impart unto you revelation and wisdom, and to teach you that which you knew not:* — **Al-Baqara (2:151)**
+> 📖 *PERMISSION [to fight] is given to those against whom war is being wrongfully waged and, verily, God has indeed the power to succour them -:* — **Al-Hajj (22:39)**
 <!-- quran-verse-end -->
 
 ---
