@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, God will admit all who attain to faith and do righteous deeds into gardens through which running waters flow, whereas they who are bent on denying the truth shall have - even though they may enjoy their life [in this world] and eat as cattle eat - the fire [of the hereafter] for their abode.* — **Muhammad (47:12)**
+> 📖 *and We bestowed upon them [manifold] gifts out of Our grace, and granted them a lofty power to convey the truth [unto others].* — **Maryam (19:50)**
 <!-- quran-verse-end -->
 
 ---
