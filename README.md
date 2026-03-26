@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereafter We reduce him to the lowest of low* — **At-Tin (95:5)**
+> 📖 *He governs all that exists, from the celestial space to the earth; and in the end all shall ascend unto Him [for judgment] on a Day the length whereof will be [like] a thousand years of your reckoning.* — **As-Sajda (32:5)**
 <!-- quran-verse-end -->
 
 ---
