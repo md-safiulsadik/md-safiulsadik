@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He governs all that exists, from the celestial space to the earth; and in the end all shall ascend unto Him [for judgment] on a Day the length whereof will be [like] a thousand years of your reckoning.* — **As-Sajda (32:5)**
+> 📖 *[Hence,] O you who have attained to faith, when you do hold secret confabulations, do not conspire with one another with a view to sinful doings, and aggressive conduct, and disobedience to the Apostle, but [rather] hold counsel in the cause of virtue and God-consciousness: and [always] remain conscious of God, unto whom you all shall be gathered.* — **Al-Mujaadila (58:9)**
 <!-- quran-verse-end -->
 
 ---
