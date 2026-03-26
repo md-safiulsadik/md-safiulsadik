@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that you [too, O men,] might never transgress the measure [of what is right]:* — **Ar-Rahmaan (55:8)**
+> 📖 *And [through Our messengers] We revealed unto him this decree: "The last remnant of those [sinners] shall be wiped out" in the morn."* — **Al-Hijr (15:66)**
 <!-- quran-verse-end -->
 
 ---
