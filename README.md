@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Extol, then, the limitless glory of thy Sus­tainer’s mighty name!* — **Al-Waaqia (56:96)**
+> 📖 *And so, [O Prophet,] exhort them; thy task is only to exhort:* — **Al-Ghaashiya (88:21)**
 <!-- quran-verse-end -->
 
 ---
