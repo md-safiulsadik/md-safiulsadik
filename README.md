@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the day as it reveals the world,* — **Ash-Shams (91:3)**
+> 📖 *Art thou not aware that they roam confusedly through all the valleys [of words and thoughts],* — **Ash-Shu'araa (26:225)**
 <!-- quran-verse-end -->
 
 ---
