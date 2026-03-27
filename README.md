@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, [O Prophet,] exhort them; thy task is only to exhort:* — **Al-Ghaashiya (88:21)**
+> 📖 *hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].* — **Al-Kawthar (108:2)**
 <!-- quran-verse-end -->
 
 ---
