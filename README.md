@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, [O believers,] be constant in prayer, and render the purifying dues, and pay heed unto the Apostle, so that you might be graced with God’s mercy.* — **An-Noor (24:56)**
+> 📖 *and [one day] thou shalt see, and they [who now deride thee] shall see,* — **Al-Qalam (68:5)**
 <!-- quran-verse-end -->
 
 ---
