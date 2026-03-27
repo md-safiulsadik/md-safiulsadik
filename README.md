@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [through Our messengers] We revealed unto him this decree: "The last remnant of those [sinners] shall be wiped out" in the morn."* — **Al-Hijr (15:66)**
+> 📖 *Extol, then, the limitless glory of thy Sus­tainer’s mighty name!* — **Al-Waaqia (56:96)**
 <!-- quran-verse-end -->
 
 ---
