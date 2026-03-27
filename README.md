@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
+> 📖 *Consider the day as it reveals the world,* — **Ash-Shams (91:3)**
 <!-- quran-verse-end -->
 
 ---
