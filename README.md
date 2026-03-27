@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And besides those two will be yet two [other] gardens -* — **Ar-Rahmaan (55:62)**
+> 📖 *In the end you will indeed, most surely, behold it with the eye of certainty:* — **At-Takaathur (102:7)**
 <!-- quran-verse-end -->
 
 ---
