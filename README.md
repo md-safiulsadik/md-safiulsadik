@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And it is not We who will be doing wrong unto them, but it is they who will have wronged them­selves.* — **Az-Zukhruf (43:76)**
+> 📖 *Hence, [O believers,] be constant in prayer, and render the purifying dues, and pay heed unto the Apostle, so that you might be graced with God’s mercy.* — **An-Noor (24:56)**
 <!-- quran-verse-end -->
 
 ---
