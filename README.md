@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Art thou not aware that they roam confusedly through all the valleys [of words and thoughts],* — **Ash-Shu'araa (26:225)**
+> 📖 *And it is not We who will be doing wrong unto them, but it is they who will have wronged them­selves.* — **Az-Zukhruf (43:76)**
 <!-- quran-verse-end -->
 
 ---
