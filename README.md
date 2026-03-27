@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].* — **Al-Kawthar (108:2)**
+> 📖 *And besides those two will be yet two [other] gardens -* — **Ar-Rahmaan (55:62)**
 <!-- quran-verse-end -->
 
 ---
