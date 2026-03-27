@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In the end you will indeed, most surely, behold it with the eye of certainty:* — **At-Takaathur (102:7)**
+> 📖 *AND [remind those who deny thee, O Prophet, that] never have We granted life everlasting to any mortal before thee: but do they, perchance, hope that al­though thou must die, they will live forever?”* — **Al-Anbiyaa (21:34)**
 <!-- quran-verse-end -->
 
 ---
