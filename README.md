@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And all shall be judged on that Day,] so that God may requite every human being for all that he has earned [in life]: verily, God is swift in reckoning!* — **Ibrahim (14:51)**
+> 📖 *BEHOLD, this [divine writ] is indeed a word that between truth and falsehood,* — **At-Taariq (86:13)**
 <!-- quran-verse-end -->
 
 ---
