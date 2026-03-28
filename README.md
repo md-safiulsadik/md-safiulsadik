@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *yea, enter thou My paradise!"* — **Al-Fajr (89:30)**
+> 📖 *and who shun the more heinous sins and abominations; and who, whenever they are moved to anger, readily forgive;* — **Ash-Shura (42:37)**
 <!-- quran-verse-end -->
 
 ---
