@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But those among them who were bent on wrongdoing substituted another saying for that which they had been given: and so We let loose against them a plague from heaven in requital of all their evil doings.* — **Al-A'raaf (7:162)**
+> 📖 *[And all shall be judged on that Day,] so that God may requite every human being for all that he has earned [in life]: verily, God is swift in reckoning!* — **Ibrahim (14:51)**
 <!-- quran-verse-end -->
 
 ---
