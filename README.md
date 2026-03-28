@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the earth and all its expanse!* — **Ash-Shams (91:6)**
+> 📖 *And His is all that is in the heavens and on earth, and to Him [alone] obedience is always due: will you, then, pay reverence to aught but Him?* — **An-Nahl (16:52)**
 <!-- quran-verse-end -->
 
 ---
