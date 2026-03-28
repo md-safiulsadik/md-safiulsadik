@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, this [divine writ] is indeed a word that between truth and falsehood,* — **At-Taariq (86:13)**
+> 📖 *yea, enter thou My paradise!"* — **Al-Fajr (89:30)**
 <!-- quran-verse-end -->
 
 ---
