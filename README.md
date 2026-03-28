@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And His is all that is in the heavens and on earth, and to Him [alone] obedience is always due: will you, then, pay reverence to aught but Him?* — **An-Nahl (16:52)**
+> 📖 *and the morn when it dawns!* — **Al-Muddaththir (74:34)**
 <!-- quran-verse-end -->
 
 ---
