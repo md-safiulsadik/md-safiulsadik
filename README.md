@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Ha. Mim.* — **Al-Jaathiya (45:1)**
+> 📖 *[the while] We shall summon the forces of heavenly chastisement!* — **Al-Alaq (96:18)**
 <!-- quran-verse-end -->
 
 ---
