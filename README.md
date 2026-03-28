@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[yet] it is they who, in the life to come, shall have nothing but the fire -for in vain shall be all that they wrought in this [world], and worthless all that they ever did!* — **Hud (11:16)**
+> 📖 *[It was they] who transgressed all bounds of equity all over their lands,* — **Al-Fajr (89:11)**
 <!-- quran-verse-end -->
 
 ---
