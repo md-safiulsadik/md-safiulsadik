@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who shun the more heinous sins and abominations; and who, whenever they are moved to anger, readily forgive;* — **Ash-Shura (42:37)**
+> 📖 *In what other tiding, then, will they, after this, believe?* — **Al-Mursalaat (77:50)**
 <!-- quran-verse-end -->
 
 ---
