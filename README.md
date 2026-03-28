@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But withal,] no sustenance do I ever demand of them, nor do I demand that they feed Me:* — **Adh-Dhaariyat (51:57)**
+> 📖 *and the earth and all its expanse!* — **Ash-Shams (91:6)**
 <!-- quran-verse-end -->
 
 ---
