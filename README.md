@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[the while] We shall summon the forces of heavenly chastisement!* — **Al-Alaq (96:18)**
+> 📖 *but as for those who abandon themselves to wrongdoing - they are indeed but fuel for [the fires of] hell!’"* — **Al-Jinn (72:15)**
 <!-- quran-verse-end -->
 
 ---
