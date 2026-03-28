@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In what other tiding, then, will they, after this, believe?* — **Al-Mursalaat (77:50)**
+> 📖 *Ha. Mim.* — **Al-Jaathiya (45:1)**
 <!-- quran-verse-end -->
 
 ---
