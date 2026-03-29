@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] tell [those of] My servants who have attained to faith that they should be constant in prayer and spend [in Our way], secretly and openly, out of what We provide for them as sustenance, ere there come a Day when there will be no bargaining, and no mutual befriending.* — **Ibrahim (14:31)**
+> 📖 *for He is God, save whom there is no deity. Unto Him all praise is due, at the beginning and at the end [of time]; and with Him rests all judgment; and unto Him shall you all be brought back.* — **Al-Qasas (28:70)**
 <!-- quran-verse-end -->
 
 ---
