@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God has laid down that the Ka'bah, the Inviolable Temple, shall be a symbol for all mankind; and [so, too] the sacred month [of pilgrimage] and the garlanded offerings [are symbols] meant to make you aware that God is aware of all that is in the heavens and all that is on earth, and that God has full knowledge of everything.* — **Al-Maaida (5:97)**
+> 📖 *[And] tell [those of] My servants who have attained to faith that they should be constant in prayer and spend [in Our way], secretly and openly, out of what We provide for them as sustenance, ere there come a Day when there will be no bargaining, and no mutual befriending.* — **Ibrahim (14:31)**
 <!-- quran-verse-end -->
 
 ---
