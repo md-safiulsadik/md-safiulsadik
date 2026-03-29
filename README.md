@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Dost thou not know that God knows all that occurs in heaven as well as on earth? All this, behold, is in [God’s] record: verily, [to know] all this is easy for God.* — **Al-Hajj (22:70)**
+> 📖 *[But withal,] no sustenance do I ever demand of them, nor do I demand that they feed Me:* — **Adh-Dhaariyat (51:57)**
 <!-- quran-verse-end -->
 
 ---
