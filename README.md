@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"the God of men,* — **An-Naas (114:3)**
+> 📖 *and thou seest people enter God's religion in hosts,* — **An-Nasr (110:2)**
 <!-- quran-verse-end -->
 
 ---
