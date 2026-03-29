@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *near unto the garden of promise.* — **An-Najm (53:15)**
+> 📖 *How awesome the sudden calamity!* — **Al-Qaari'a (101:2)**
 <!-- quran-verse-end -->
 
 ---
