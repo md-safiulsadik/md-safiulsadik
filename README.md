@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for He is God, save whom there is no deity. Unto Him all praise is due, at the beginning and at the end [of time]; and with Him rests all judgment; and unto Him shall you all be brought back.* — **Al-Qasas (28:70)**
+> 📖 *O our Sustainer, relieve us of suffering, for, verily, we [now] believe [in Thee]!”* — **Ad-Dukhaan (44:12)**
 <!-- quran-verse-end -->
 
 ---
