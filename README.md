@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
+> 📖 *Or is there any that could provide you with sustenance if He should withhold His provision [from you]? Nay, but they [who are bent on denying the truth] stubbornly persist in their disdain [of God's messages] and in their headlong flight [from Him]!* — **Al-Mulk (67:21)**
 <!-- quran-verse-end -->
 
 ---
