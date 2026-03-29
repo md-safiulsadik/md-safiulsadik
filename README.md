@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But withal,] no sustenance do I ever demand of them, nor do I demand that they feed Me:* — **Adh-Dhaariyat (51:57)**
+> 📖 *THESE WERE some of the prophets upon whom God bestowed His blessings - [prophets] of the seed of Adam and of those whom We caused to be borne [in the ark] with Noah, and of the seed of Abraham and Israel and [all of them were] among those whom We had guided and elected; [and] whenever the messages of the Most Gracious were conveyed unto them, they would fall down [before Him], prostrating themselves and weeping.* — **Maryam (19:58)**
 <!-- quran-verse-end -->
 
 ---
