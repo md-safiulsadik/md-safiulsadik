@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, it is this [kind of man] that thrusts the orphan away,* — **Al-Maa'un (107:2)**
+> 📖 *Dost thou not know that God knows all that occurs in heaven as well as on earth? All this, behold, is in [God’s] record: verily, [to know] all this is easy for God.* — **Al-Hajj (22:70)**
 <!-- quran-verse-end -->
 
 ---
