@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O our Sustainer, relieve us of suffering, for, verily, we [now] believe [in Thee]!”* — **Ad-Dukhaan (44:12)**
+> 📖 *near unto the garden of promise.* — **An-Najm (53:15)**
 <!-- quran-verse-end -->
 
 ---
