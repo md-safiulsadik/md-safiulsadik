@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And if he divorces her [finally], she shall thereafter not be lawful unto him unless she first takes another man for husband; then, if the latter divorces her, there shall be no sin upon either of the two if they return to one another-provided that both of them think that they will be able to keep within the bounds set by God: for these are the bounds of God which He makes clear unto people of [innate] knowledge.* — **Al-Baqara (2:230)**
+> 📖 *"the God of men,* — **An-Naas (114:3)**
 <!-- quran-verse-end -->
 
 ---
