@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *How awesome the sudden calamity!* — **Al-Qaari'a (101:2)**
+> 📖 *THUS has God, the Almighty, the Wise, revealed [the truth] unto thee, [O Muhammad,] and unto those who preceded thee:* — **Ash-Shura (42:3)**
 <!-- quran-verse-end -->
 
 ---
