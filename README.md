@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And His are the lofty ships that sail like [floating] mountains through the seas.* — **Ar-Rahmaan (55:24)**
+> 📖 *And if he divorces her [finally], she shall thereafter not be lawful unto him unless she first takes another man for husband; then, if the latter divorces her, there shall be no sin upon either of the two if they return to one another-provided that both of them think that they will be able to keep within the bounds set by God: for these are the bounds of God which He makes clear unto people of [innate] knowledge.* — **Al-Baqara (2:230)**
 <!-- quran-verse-end -->
 
 ---
