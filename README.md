@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And We send [Our] message-bearers only as heralds of glad tidings and as warners: hence, all who believe and live righteously -no fear need they have, and neither shall they grieve;* — **Al-An'aam (6:48)**
+> 📖 *ALL PRAISE is due to God, Originator of the heavens and the earth, who causes the angels to be (His) message-bearers, endowed with wings, two, or three, or four. [Unceasingly] He adds to His creation whatever He wills: for, verily, God has the power to will anything.* — **Faatir (35:1)**
 <!-- quran-verse-end -->
 
 ---
