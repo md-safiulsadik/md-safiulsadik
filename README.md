@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *secure in their winter and summer journeys,* — **Quraish (106:2)**
+> 📖 *O Mary! Remain thou truly devout unto thy Sustainer, and prostrate thyself in worship, and bow down with those who bow down [before Him]."* — **Aal-i-Imraan (3:43)**
 <!-- quran-verse-end -->
 
 ---
