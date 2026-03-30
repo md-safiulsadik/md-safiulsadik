@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *all those who [throughout their lives] but idly played with things vain –* — **At-Tur (52:12)**
+> 📖 *this land in which thou art free to dwell -* — **Al-Balad (90:2)**
 <!-- quran-verse-end -->
 
 ---
