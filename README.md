@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THUS has God, the Almighty, the Wise, revealed [the truth] unto thee, [O Muhammad,] and unto those who preceded thee:* — **Ash-Shura (42:3)**
+> 📖 *all those who [throughout their lives] but idly played with things vain –* — **At-Tur (52:12)**
 <!-- quran-verse-end -->
 
 ---
