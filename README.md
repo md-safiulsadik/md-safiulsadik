@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And as for him whose record shall be placed in his right hand,* — **Al-Inshiqaaq (84:7)**
+> 📖 *AND, INDEED, [O Prophet,] even before thy time did We send [Our apostles] unto communities of old -* — **Al-Hijr (15:10)**
 <!-- quran-verse-end -->
 
 ---
