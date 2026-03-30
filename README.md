@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
+> 📖 *And as for him whose record shall be placed in his right hand,* — **Al-Inshiqaaq (84:7)**
 <!-- quran-verse-end -->
 
 ---
