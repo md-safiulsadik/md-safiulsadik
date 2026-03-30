@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND, INDEED, [O Prophet,] even before thy time did We send [Our apostles] unto communities of old -* — **Al-Hijr (15:10)**
+> 📖 *and, behold, it is with my Sustainer - and your Sustainer - that I seek refuge against all your endeavours to revile me.* — **Ad-Dukhaan (44:20)**
 <!-- quran-verse-end -->
 
 ---
