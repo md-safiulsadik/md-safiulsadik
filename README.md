@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *a good many of olden times,* — **Al-Waaqia (56:39)**
+> 📖 *Ayn. Sin. Qaf.* — **Ash-Shura (42:2)**
 <!-- quran-verse-end -->
 
 ---
