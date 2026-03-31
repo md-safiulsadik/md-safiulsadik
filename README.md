@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Ta. Sin. THESE ARE MESSAGES of the Qur’an - a di­vine writ clear in itself and clearly showing the truth:* — **An-Naml (27:1)**
+> 📖 *unless it be to an apostle whom He has been pleased to elect [there for]: and then He sends forth [the forces of heaven] to watch over him in whatever lies open before him and in what is beyond his ken –* — **Al-Jinn (72:27)**
 <!-- quran-verse-end -->
 
 ---
