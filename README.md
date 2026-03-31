@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"God the Eternal, the Uncaused Cause of All Being.* — **Al-Ikhlaas (112:2)**
+> 📖 *“And as soon as thou and those who are with thee are settled in the ark, say: ‘All praise is due to God, who has saved us from those evildoing folk!’* — **Al-Muminoon (23:28)**
 <!-- quran-verse-end -->
 
 ---
