@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *unless it be to an apostle whom He has been pleased to elect [there for]: and then He sends forth [the forces of heaven] to watch over him in whatever lies open before him and in what is beyond his ken –* — **Al-Jinn (72:27)**
+> 📖 *and will have no protector whatever to succour them against God: for he whom God lets go astray shall find no way [of escape].* — **Ash-Shura (42:46)**
 <!-- quran-verse-end -->
 
 ---
