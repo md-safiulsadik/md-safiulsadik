@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and, behold, it is with my Sustainer - and your Sustainer - that I seek refuge against all your endeavours to revile me.* — **Ad-Dukhaan (44:20)**
+> 📖 *Is it their minds that bid them [to take] this [attitude] - or are they [simply] people filled with overweening arrogance?* — **At-Tur (52:32)**
 <!-- quran-verse-end -->
 
 ---
