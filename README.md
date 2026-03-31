@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“And as soon as thou and those who are with thee are settled in the ark, say: ‘All praise is due to God, who has saved us from those evildoing folk!’* — **Al-Muminoon (23:28)**
+> 📖 *for, indeed, the life to come will be better for thee than this earlier part [of thy life]!* — **Ad-Dhuhaa (93:4)**
 <!-- quran-verse-end -->
 
 ---
