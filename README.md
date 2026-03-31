@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And He it is who has created the heavens and the earth in accordance with [an inner] truth - and whenever He says, "Be," His word comes true; and His will be the dominion on the Day when the trumpet [of resurrection] is blown. He knows all that is beyond the reach of a created being's perception, as well as all that can be witnessed by a creature's senses or mind: for He alone is truly wise, all-aware.* — **Al-An'aam (6:73)**
+> 📖 *Ta. Sin. THESE ARE MESSAGES of the Qur’an - a di­vine writ clear in itself and clearly showing the truth:* — **An-Naml (27:1)**
 <!-- quran-verse-end -->
 
 ---
