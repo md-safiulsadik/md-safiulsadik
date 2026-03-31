@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and will [be able to] turn joyfully to those of his own kind.* — **Al-Inshiqaaq (84:9)**
+> 📖 *And He it is who has created the heavens and the earth in accordance with [an inner] truth - and whenever He says, "Be," His word comes true; and His will be the dominion on the Day when the trumpet [of resurrection] is blown. He knows all that is beyond the reach of a created being's perception, as well as all that can be witnessed by a creature's senses or mind: for He alone is truly wise, all-aware.* — **Al-An'aam (6:73)**
 <!-- quran-verse-end -->
 
 ---
