@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Is it their minds that bid them [to take] this [attitude] - or are they [simply] people filled with overweening arrogance?* — **At-Tur (52:32)**
+> 📖 *rejoicing in all that their Sustainer will have granted them: for their Sustainer will have warded off from them all suffering through the blazing fire.* — **At-Tur (52:18)**
 <!-- quran-verse-end -->
 
 ---
