@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ALL THAT IS in the heavens and all that is on earth extols the limitless glory of God, the Sovereign Supreme, the Holy, the Almighty, the Wise!* — **Al-Jumu'a (62:1)**
+> 📖 *and will [be able to] turn joyfully to those of his own kind.* — **Al-Inshiqaaq (84:9)**
 <!-- quran-verse-end -->
 
 ---
