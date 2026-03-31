@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, indeed, the life to come will be better for thee than this earlier part [of thy life]!* — **Ad-Dhuhaa (93:4)**
+> 📖 *Say: “Yea, indeed - and most abject will you then be!” –* — **As-Saaffaat (37:18)**
 <!-- quran-verse-end -->
 
 ---
