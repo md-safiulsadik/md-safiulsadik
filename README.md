@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND AFTER them We gave rise to new genera­tions:* — **Al-Muminoon (23:42)**
+> 📖 *And, finally, [O Muhammad,] We have set thee on a way by which the purpose [of faith] may be fulfilled: so follow thou this [way], and follow not the likes and dislikes of those who do not know [the truth].* — **Al-Jaathiya (45:18)**
 <!-- quran-verse-end -->
 
 ---
