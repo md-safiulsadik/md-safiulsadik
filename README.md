@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, verily, to the love of wealth is he most ardently devoted.* — **Al-Aadiyaat (100:8)**
+> 📖 *and [then] He will bring you forth [from It] in resurrection.* — **Nooh (71:18)**
 <!-- quran-verse-end -->
 
 ---
