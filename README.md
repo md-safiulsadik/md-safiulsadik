@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And so,] whenever the two demands [of his nature] come face to face, contending from the right and from the left,* — **Qaaf (50:17)**
+> 📖 *Nay, in time you will come to understand!* — **At-Takaathur (102:3)**
 <!-- quran-verse-end -->
 
 ---
