@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And the earth will shine bright with her Sus­tainer’s light. And the record [of everyone’s deeds] will be laid bare, and all the prophets will be brought forward, and all [other] witnesses; and judgment will be passed on them all in justice. And they will not be wronged,* — **Az-Zumar (39:69)**
+> 📖 *for, verily, to the love of wealth is he most ardently devoted.* — **Al-Aadiyaat (100:8)**
 <!-- quran-verse-end -->
 
 ---
