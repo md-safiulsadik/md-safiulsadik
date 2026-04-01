@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But then, [when they beset him with their enmity,] he called out to his Sustainer, “These are [indeed] people lost in sin!”* — **Ad-Dukhaan (44:22)**
+> 📖 *AND [thus it is:] We have not imparted to this [Prophet the gift of] poetry, nor would [poetry] have suited this [message]: it is but a reminder and a [divine] discourse, clear in itself and clearly showing the truth,* — **Yaseen (36:69)**
 <!-- quran-verse-end -->
 
 ---
