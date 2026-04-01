@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *All praise is due to God alone, the Sustainer of all the worlds,* — **Al-Faatiha (1:2)**
+> 📖 *AND AFTER them We gave rise to new genera­tions:* — **Al-Muminoon (23:42)**
 <!-- quran-verse-end -->
 
 ---
