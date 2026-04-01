@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, finally, [O Muhammad,] We have set thee on a way by which the purpose [of faith] may be fulfilled: so follow thou this [way], and follow not the likes and dislikes of those who do not know [the truth].* — **Al-Jaathiya (45:18)**
+> 📖 *[And so,] whenever the two demands [of his nature] come face to face, contending from the right and from the left,* — **Qaaf (50:17)**
 <!-- quran-verse-end -->
 
 ---
