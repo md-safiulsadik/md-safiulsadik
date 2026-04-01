@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[who bears] around her neck a rope of twisted strands!* — **Al-Masad (111:5)**
+> 📖 *DO MEN THINK that on their [mere] saying, “We have attained to faith”, they will be left to themselves, and will not be put to a test?* — **Al-Ankaboot (29:2)**
 <!-- quran-verse-end -->
 
 ---
