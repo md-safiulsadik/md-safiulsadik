@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DO MEN THINK that on their [mere] saying, “We have attained to faith”, they will be left to themselves, and will not be put to a test?* — **Al-Ankaboot (29:2)**
+> 📖 *But then, [when they beset him with their enmity,] he called out to his Sustainer, “These are [indeed] people lost in sin!”* — **Ad-Dukhaan (44:22)**
 <!-- quran-verse-end -->
 
 ---
