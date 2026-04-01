@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [then] He will bring you forth [from It] in resurrection.* — **Nooh (71:18)**
+> 📖 *Thee alone do we worship; and unto Thee alone do we turn for aid.* — **Al-Faatiha (1:5)**
 <!-- quran-verse-end -->
 
 ---
