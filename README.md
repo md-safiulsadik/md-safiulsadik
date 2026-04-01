@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [thus it is:] We have not imparted to this [Prophet the gift of] poetry, nor would [poetry] have suited this [message]: it is but a reminder and a [divine] discourse, clear in itself and clearly showing the truth,* — **Yaseen (36:69)**
+> 📖 *All praise is due to God alone, the Sustainer of all the worlds,* — **Al-Faatiha (1:2)**
 <!-- quran-verse-end -->
 
 ---
