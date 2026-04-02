@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thee alone do we worship; and unto Thee alone do we turn for aid.* — **Al-Faatiha (1:5)**
+> 📖 *O men! Call to mind the blessings which God has bestowed upon you! Is there any creator, other than God, that could provide for you sustenance out of heaven and earth? There is no deity save Him: and yet, how perverted are your minds!* — **Faatir (35:3)**
 <!-- quran-verse-end -->
 
 ---
