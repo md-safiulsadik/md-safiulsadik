@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Some faces will on that Day be bright with happiness,* — **Al-Qiyaama (75:22)**
+> 📖 *For, if God were to grant [in this world] abundant sustenance to [all of] His servants, they would behave on earth with wanton insolence: but as it is, He bestows [His grace] from on high in due measure, as He wills: for, verily, He is fully aware of [the needs of] His creatures, and sees them all.* — **Ash-Shura (42:27)**
 <!-- quran-verse-end -->
 
 ---
