@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O men! Call to mind the blessings which God has bestowed upon you! Is there any creator, other than God, that could provide for you sustenance out of heaven and earth? There is no deity save Him: and yet, how perverted are your minds!* — **Faatir (35:3)**
+> 📖 *WHEN THE HYPOCRITES come unto thee, they say, "We bear witness that thou art indeed God's Apostle!" But God knows that thou art truly His Apostle; and He bears witness that the hypocrites are indeed false [in their declaration of faith].* — **Al-Munaafiqoon (63:1)**
 <!-- quran-verse-end -->
 
 ---
