@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and some faces will on that Day be overcast with despair,* — **Al-Qiyaama (75:24)**
+> 📖 *SAY: "I seek refuge with the Sustainer of men,* — **An-Naas (114:1)**
 <!-- quran-verse-end -->
 
 ---
