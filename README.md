@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *does it make secure, until the rise of dawn.* — **Al-Qadr (97:5)**
+> 📖 *Hence, give them the tiding of grievous suffering [in the life to come] –* — **Al-Inshiqaaq (84:24)**
 <!-- quran-verse-end -->
 
 ---
