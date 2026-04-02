@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, give them the tiding of grievous suffering [in the life to come] –* — **Al-Inshiqaaq (84:24)**
+> 📖 *and some faces will on that Day be overcast with despair,* — **Al-Qiyaama (75:24)**
 <!-- quran-verse-end -->
 
 ---
