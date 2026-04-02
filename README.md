@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "I seek refuge with the Sustainer of men,* — **An-Naas (114:1)**
+> 📖 *and olive trees and date-palms,* — **Abasa (80:29)**
 <!-- quran-verse-end -->
 
 ---
