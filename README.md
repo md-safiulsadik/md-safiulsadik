@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ALL THAT IS in the heavens and on earth extols God’s limitless glory: for He alone is almighty, truly wise!* — **Al-Hadid (57:1)**
+> 📖 *As for those who avoid the [truly] grave sins and shameful deeds - even though they may some­times stumble behold, thy Sustainer is abounding in forgiveness. He is fully aware of you when He brings you into being out of dust, and when you are still hidden in your mothers’ wombs: do not, then, consider your­selves pure - [for] He knows best as to who is conscious of Him.* — **An-Najm (53:32)**
 <!-- quran-verse-end -->
 
 ---
