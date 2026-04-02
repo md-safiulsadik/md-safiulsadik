@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and lifted from thee the burden* — **Ash-Sharh (94:2)**
+> 📖 *ALL THAT IS in the heavens and on earth extols God’s limitless glory: for He alone is almighty, truly wise!* — **Al-Hadid (57:1)**
 <!-- quran-verse-end -->
 
 ---
