@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and olive trees and date-palms,* — **Abasa (80:29)**
+> 📖 *and lifted from thee the burden* — **Ash-Sharh (94:2)**
 <!-- quran-verse-end -->
 
 ---
