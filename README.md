@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, [O men,] We have sent unto you an apostle who shall bear witness to the truth before you, even as We sent an apostle unto Pharaoh:* — **Al-Muzzammil (73:15)**
+> 📖 *Your Sustainer is fully aware of what you are [and what you deserve]: if He so wills, he will bestow [His] grace upon you; and if He so wills, He will chastise you. Hence, We have not sent thee [unto men, O Prophet,] with the power to determine their fate,* — **Al-Israa (17:54)**
 <!-- quran-verse-end -->
 
 ---
