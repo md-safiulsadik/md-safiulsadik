@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for none [of them] had any fear of what might befall them.* — **Ash-Shams (91:15)**
+> 📖 *Thus, as for him who gives [to others] and is conscious of God,* — **Al-Lail (92:5)**
 <!-- quran-verse-end -->
 
 ---
