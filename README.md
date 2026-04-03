@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Your Sustainer is fully aware of what you are [and what you deserve]: if He so wills, he will bestow [His] grace upon you; and if He so wills, He will chastise you. Hence, We have not sent thee [unto men, O Prophet,] with the power to determine their fate,* — **Al-Israa (17:54)**
+> 📖 *and the mountains [its] pegs?* — **An-Naba (78:7)**
 <!-- quran-verse-end -->
 
 ---
