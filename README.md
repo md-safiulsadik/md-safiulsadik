@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and lifted from thee the burden* — **Ash-Sharh (94:2)**
+> 📖 *AND LO! We caused a group of unseen beings to incline towards thee, [O Muhammad,] so that they might give ear to the Qur’an; and so, as soon as they became aware of it, they said [unto one another], “Listen in silence!” And when [the recitation] was ended, they returned to their people as warners.* — **Al-Ahqaf (46:29)**
 <!-- quran-verse-end -->
 
 ---
