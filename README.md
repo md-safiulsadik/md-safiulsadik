@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the mountains [its] pegs?* — **An-Naba (78:7)**
+> 📖 *And [think of] the people of Noah: when they gave the lie to [one of] the apostles, We caused them to drown, and made them a symbol for all mankind: for, grievous suffering have We readied for all who [knowingly] do wrong!* — **Al-Furqaan (25:37)**
 <!-- quran-verse-end -->
 
 ---
