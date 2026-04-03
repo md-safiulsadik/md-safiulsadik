@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But if they [whose minds are perverted] give thee the lie, [O Prophet, remember that] even so, before thy time, have [other] apostles been given the lie: for [the unbelievers always refuse to admit that] all things go back to God [as their source].* — **Faatir (35:4)**
+> 📖 *[As for such sinners,] behold, We [but] try them as We tried the owners of a certain garden who vowed that they would surely harvest its fruit on the morrow,* — **Al-Qalam (68:17)**
 <!-- quran-verse-end -->
 
 ---
