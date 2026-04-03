@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *People before your time have indeed asked such questions-and in result thereof have come to deny the truth.* — **Al-Maaida (5:102)**
+> 📖 *And they who are in the fire will say to the keepers of hell, “Pray unto your Sustainer that He lighten, [though it be] for one day [only], this suffering of ours!”* — **Ghafir (40:49)**
 <!-- quran-verse-end -->
 
 ---
