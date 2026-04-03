@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, as for him who gives [to others] and is conscious of God,* — **Al-Lail (92:5)**
+> 📖 *and goblets placed ready,* — **Al-Ghaashiya (88:14)**
 <!-- quran-verse-end -->
 
 ---
