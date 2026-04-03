@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND LO! We caused a group of unseen beings to incline towards thee, [O Muhammad,] so that they might give ear to the Qur’an; and so, as soon as they became aware of it, they said [unto one another], “Listen in silence!” And when [the recitation] was ended, they returned to their people as warners.* — **Al-Ahqaf (46:29)**
+> 📖 *But if they [whose minds are perverted] give thee the lie, [O Prophet, remember that] even so, before thy time, have [other] apostles been given the lie: for [the unbelievers always refuse to admit that] all things go back to God [as their source].* — **Faatir (35:4)**
 <!-- quran-verse-end -->
 
 ---
