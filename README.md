@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or do they in whose hearts is disease think, perchance, that God would never bring their moral failings to light?* — **Muhammad (47:29)**
+> 📖 *[But,] verily, those who [falsely, and without repentance,] accuse chaste women who may have been unthinkingly careless but have remained true to their faith, shall be rejected [from God’s grace] in this world as well as in the life to come: and awesome suffering awaits them* — **An-Noor (24:23)**
 <!-- quran-verse-end -->
 
 ---
