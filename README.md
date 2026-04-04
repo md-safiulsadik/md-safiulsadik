@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, when they are told, “Spend on others out of what God has provided for you as sus­tenance,” those who are bent on denying the truth say unto those who believe, “Shall we feed anyone whom, if [your] God had so willed, He could have fed [Himself]? Clearly, you are but lost in error!”* — **Yaseen (36:47)**
+> 📖 *Or do they in whose hearts is disease think, perchance, that God would never bring their moral failings to light?* — **Muhammad (47:29)**
 <!-- quran-verse-end -->
 
 ---
