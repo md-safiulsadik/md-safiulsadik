@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but [since it will be too late,] they will turn upon one another, demanding of each other [to relieve them of the burden of their past sins].* — **As-Saaffaat (37:27)**
+> 📖 *Thus, when they are told, “Spend on others out of what God has provided for you as sus­tenance,” those who are bent on denying the truth say unto those who believe, “Shall we feed anyone whom, if [your] God had so willed, He could have fed [Himself]? Clearly, you are but lost in error!”* — **Yaseen (36:47)**
 <!-- quran-verse-end -->
 
 ---
