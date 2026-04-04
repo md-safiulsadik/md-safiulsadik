@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus have We determined [the nature of man's creation]: and excellent indeed is Our power to determine [what is to be]!* — **Al-Mursalaat (77:23)**
+> 📖 *then He causes him to be begotten out of the essence of a humble fluid;* — **As-Sajda (32:8)**
 <!-- quran-verse-end -->
 
 ---
