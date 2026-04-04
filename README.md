@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and goblets placed ready,* — **Al-Ghaashiya (88:14)**
+> 📖 *AS FOR THOSE who are bent on denying the truth and on barring [others] from the path of God - all their [good] deeds will He let go to waste;* — **Muhammad (47:1)**
 <!-- quran-verse-end -->
 
 ---
