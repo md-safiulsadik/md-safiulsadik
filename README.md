@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [have We not] raised thee high in dignity?* — **Ash-Sharh (94:4)**
+> 📖 *but [since it will be too late,] they will turn upon one another, demanding of each other [to relieve them of the burden of their past sins].* — **As-Saaffaat (37:27)**
 <!-- quran-verse-end -->
 
 ---
