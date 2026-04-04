@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus he incited his people to levity, and they obeyed him: for, behold, they were people depraved!* — **Az-Zukhruf (43:54)**
+> 📖 *SAY: "He is the One God:* — **Al-Ikhlaas (112:1)**
 <!-- quran-verse-end -->
 
 ---
