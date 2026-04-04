@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so they devised an evil scheme; but We devised a subtle scheme (of Our own), and they perceived it not.* — **An-Naml (27:50)**
+> 📖 *Thus have We determined [the nature of man's creation]: and excellent indeed is Our power to determine [what is to be]!* — **Al-Mursalaat (77:23)**
 <!-- quran-verse-end -->
 
 ---
