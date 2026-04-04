@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who stand in dread of their Sustainer's chastisement –* — **Al-Ma'aarij (70:27)**
+> 📖 *And so they devised an evil scheme; but We devised a subtle scheme (of Our own), and they perceived it not.* — **An-Naml (27:50)**
 <!-- quran-verse-end -->
 
 ---
