@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AS FOR THOSE who are bent on denying the truth and on barring [others] from the path of God - all their [good] deeds will He let go to waste;* — **Muhammad (47:1)**
+> 📖 *noble, recording,* — **Al-Infitaar (82:11)**
 <!-- quran-verse-end -->
 
 ---
