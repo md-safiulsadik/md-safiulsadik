@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And whenever Our messages were conveyed to them, they would say, "We have heard [all this] before; if we wanted, we could certainly compose sayings like these [ourselves]: they are nothing but fables of ancient times!"* — **Al-Anfaal (8:31)**
+> 📖 *GOD is He who has created seven heavens, and, like them, [the many aspects] of the earth. Through all of them flows down from on high, unceasingly, His [creative] will, so that you might come to know that God has the power to will anything, and that God encompasses all things with His knowledge.* — **At-Talaaq (65:12)**
 <!-- quran-verse-end -->
 
 ---
