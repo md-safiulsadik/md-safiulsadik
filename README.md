@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *noble, recording,* — **Al-Infitaar (82:11)**
+> 📖 *woe on that Day unto those who give the to the truth!* — **Al-Mursalaat (77:49)**
 <!-- quran-verse-end -->
 
 ---
