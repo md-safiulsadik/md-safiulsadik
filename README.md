@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Lord of the Day of Judgment!* — **Al-Faatiha (1:4)**
+> 📖 *And whenever Our messages were conveyed to them, they would say, "We have heard [all this] before; if we wanted, we could certainly compose sayings like these [ourselves]: they are nothing but fables of ancient times!"* — **Al-Anfaal (8:31)**
 <!-- quran-verse-end -->
 
 ---
