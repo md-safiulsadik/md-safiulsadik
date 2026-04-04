@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *woe on that Day unto those who give the to the truth!* — **Al-Mursalaat (77:49)**
+> 📖 *And [have We not] raised thee high in dignity?* — **Ash-Sharh (94:4)**
 <!-- quran-verse-end -->
 
 ---
