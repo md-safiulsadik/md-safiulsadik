@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *of those who were lost in sin:* — **Al-Muddaththir (74:41)**
+> 📖 *And what could make thee conceive what that sudden calamity will be?* — **Al-Qaari'a (101:3)**
 <!-- quran-verse-end -->
 
 ---
