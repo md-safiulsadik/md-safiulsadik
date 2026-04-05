@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHEN GOD'S SUCCOUR comes, and victory,* — **An-Nasr (110:1)**
+> 📖 *God annuls or confirms whatever He wills [of His earlier messages] -for with Him is the source of all revelation.* — **Ar-Ra'd (13:39)**
 <!-- quran-verse-end -->
 
 ---
