@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *an apostle from God, conveying [unto them] revelations blest with purity,* — **Al-Bayyina (98:2)**
+> 📖 *Verily, they who are bent on denying the truth and on barring [others] from the path of God, and [who thus] cut themselves off from the Apostle after guidance has been vouchsafed to them, can in no wise harm God; but He will cause all their deeds to come to nought.* — **Muhammad (47:32)**
 <!-- quran-verse-end -->
 
 ---
