@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Do not say [to the Prophet], "Listen to us," but rather say, "Have patience with us," and hearken [unto him], since grievous suffering awaits those who deny the truth.* — **Al-Baqara (2:104)**
+> 📖 *Greater indeed than the creation of man is the creation of the heavens and the earth: yet most men do not understand [what this implies].* — **Ghafir (40:57)**
 <!-- quran-verse-end -->
 
 ---
