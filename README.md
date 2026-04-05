@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Excepted, however, shall be they that repent, and put themselves to rights, and make known the truth: and it is they whose repentance I shall accept-for I alone am the Acceptor of Repentance, the Dispenser of Grace.* — **Al-Baqara (2:160)**
+> 📖 *But God’s is the dominion over the heavens and the earth: He forgives whomever He wills, and imposes suffering on whomever He wills - and [withal,] He is indeed much-forgiving, a dispenser of grace.* — **Al-Fath (48:14)**
 <!-- quran-verse-end -->
 
 ---
