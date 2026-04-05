@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But God’s is the dominion over the heavens and the earth: He forgives whomever He wills, and imposes suffering on whomever He wills - and [withal,] He is indeed much-forgiving, a dispenser of grace.* — **Al-Fath (48:14)**
+> 📖 *How would God bestow His guidance upon people who have resolved to deny the truth after having attained to faith, and having borne witness that this Apostle is true, and [after] all evidence of the truth has come unto them? For, God does not guide such evildoing folk.* — **Aal-i-Imraan (3:86)**
 <!-- quran-verse-end -->
 
 ---
