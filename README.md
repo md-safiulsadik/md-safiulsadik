@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *IT DOES NOT behove a prophet to keep captives unless he has battled strenuously on earth. You may desire the fleeting gains of this world-but God desires [for you the good of] the life to come: and God is almighty, wise.* — **Al-Anfaal (8:67)**
+> 📖 *O YOU who have attained to faith! Do not say [to the Prophet], "Listen to us," but rather say, "Have patience with us," and hearken [unto him], since grievous suffering awaits those who deny the truth.* — **Al-Baqara (2:104)**
 <!-- quran-verse-end -->
 
 ---
