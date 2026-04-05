@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[The hypocrites among] the bedouin are more tenacious in [their] refusal to acknowledge the truth and in [their] hypocrisy [than are settled people], and more liable to ignore the ordinances which God has bestowed from on high upon His Apostle - but God is all-knowing, wise.* — **At-Tawba (9:97)**
+> 📖 *“Behold, those who are destined for paradise shall today have joy in whatever they do:* — **Yaseen (36:55)**
 <!-- quran-verse-end -->
 
 ---
