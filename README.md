@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what that sudden calamity will be?* — **Al-Qaari'a (101:3)**
+> 📖 *in a garden sublime,* — **Al-Ghaashiya (88:10)**
 <!-- quran-verse-end -->
 
 ---
