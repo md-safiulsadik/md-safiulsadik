@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“Behold, those who are destined for paradise shall today have joy in whatever they do:* — **Yaseen (36:55)**
+> 📖 *so that He may forgive you some of your sins, and grant you respite until a term known [to Him alone]: but, behold, when the term appointed by God does come, it can never be put back - if you but knew it!"* — **Nooh (71:4)**
 <!-- quran-verse-end -->
 
 ---
