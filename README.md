@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And lo! We said unto thee, [O Prophet:] "Behold, thy Sustainer encompasses all mankind [within His knowledge and might]: and so We have ordained that the vision which We have shown thee -as also the tree [of hell,] cursed in this Qur'an - shall be but a trial for men. Now [by Our mentioning hell] We convey a warning to them: but [if they are bent on denying the truth,] this [warning] only increases their gross, overweening arrogance."* — **Al-Israa (17:60)**
+> 📖 *guiding towards consciousness of what is right; and so We have come to believe in it. And we shall never ascribe divinity to anyone beside our Sustainer,* — **Al-Jinn (72:2)**
 <!-- quran-verse-end -->
 
 ---
