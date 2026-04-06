@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But he turned away from them and said: "O woe is me for Joseph!"-and his eyes became dim from the grief with which he was filled.* — **Yusuf (12:84)**
+> 📖 *AND INDEED, [it was with the same message that] We sent forth Noah unto his people: "Behold, I come unto you with the plain warning* — **Hud (11:25)**
 <!-- quran-verse-end -->
 
 ---
