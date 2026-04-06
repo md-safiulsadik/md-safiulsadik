@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [man] will have neither strength nor helper!* — **At-Taariq (86:10)**
+> 📖 *He answered: "That wherein my Sustainer has so securely established me is better [than anything that you could give me]; hence, do but help me with [your labour's] strength, [and] I shall erect a rampart between you and them!* — **Al-Kahf (18:95)**
 <!-- quran-verse-end -->
 
 ---
