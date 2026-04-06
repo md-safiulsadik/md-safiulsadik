@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And once again: What could make thee conceive what that Judgment Day will be?* — **Al-Infitaar (82:18)**
+> 📖 *[The truly virtuous are] they [who] fulfil their vows, and stand in awe of a Day the woe of which is bound to spread far and wide,* — **Al-Insaan (76:7)**
 <!-- quran-verse-end -->
 
 ---
