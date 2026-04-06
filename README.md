@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *guiding towards consciousness of what is right; and so We have come to believe in it. And we shall never ascribe divinity to anyone beside our Sustainer,* — **Al-Jinn (72:2)**
+> 📖 *Thereupon the angels prostrated themselves, all of them together,* — **Saad (38:73)**
 <!-- quran-verse-end -->
 
 ---
