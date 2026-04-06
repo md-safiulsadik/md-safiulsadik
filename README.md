@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Behold, I would dread, were I to rebel against my Sustainer, the suffering [which would befall me] on that awesome Day [of Judgment].”* — **Az-Zumar (39:13)**
+> 📖 *But he turned away from them and said: "O woe is me for Joseph!"-and his eyes became dim from the grief with which he was filled.* — **Yusuf (12:84)**
 <!-- quran-verse-end -->
 
 ---
