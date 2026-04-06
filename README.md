@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas him We admitted unto Our grace: for, behold, he was among the righteous.* — **Al-Anbiyaa (21:75)**
+> 📖 *AND NEVER YET have We sent a prophet unto any community without trying its people with misfortune and hardship, so that they might humble themselves;* — **Al-A'raaf (7:94)**
 <!-- quran-verse-end -->
 
 ---
