@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND INDEED, [it was with the same message that] We sent forth Noah unto his people: "Behold, I come unto you with the plain warning* — **Hud (11:25)**
+> 📖 *and [man] will have neither strength nor helper!* — **At-Taariq (86:10)**
 <!-- quran-verse-end -->
 
 ---
