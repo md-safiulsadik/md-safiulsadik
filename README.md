@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and to this, behold, he [himself] bears witness indeed:* — **Al-Aadiyaat (100:7)**
+> 📖 *whereas him We admitted unto Our grace: for, behold, he was among the righteous.* — **Al-Anbiyaa (21:75)**
 <!-- quran-verse-end -->
 
 ---
