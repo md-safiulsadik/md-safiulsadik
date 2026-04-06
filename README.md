@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thereupon the angels prostrated themselves, all of them together,* — **Saad (38:73)**
+> 📖 *[for he was always] grateful for the blessings granted by Him who had elected him and guided him onto a straight way.* — **An-Nahl (16:121)**
 <!-- quran-verse-end -->
 
 ---
