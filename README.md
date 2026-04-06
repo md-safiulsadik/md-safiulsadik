@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He answered: "That wherein my Sustainer has so securely established me is better [than anything that you could give me]; hence, do but help me with [your labour's] strength, [and] I shall erect a rampart between you and them!* — **Al-Kahf (18:95)**
+> 📖 *and to this, behold, he [himself] bears witness indeed:* — **Al-Aadiyaat (100:7)**
 <!-- quran-verse-end -->
 
 ---
