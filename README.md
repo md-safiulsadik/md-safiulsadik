@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, they who are bent on denying the truth and on barring [others] from the path of God, and [who thus] cut themselves off from the Apostle after guidance has been vouchsafed to them, can in no wise harm God; but He will cause all their deeds to come to nought.* — **Muhammad (47:32)**
+> 📖 *And lo! We said unto thee, [O Prophet:] "Behold, thy Sustainer encompasses all mankind [within His knowledge and might]: and so We have ordained that the vision which We have shown thee -as also the tree [of hell,] cursed in this Qur'an - shall be but a trial for men. Now [by Our mentioning hell] We convey a warning to them: but [if they are bent on denying the truth,] this [warning] only increases their gross, overweening arrogance."* — **Al-Israa (17:60)**
 <!-- quran-verse-end -->
 
 ---
