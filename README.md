@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[for he was always] grateful for the blessings granted by Him who had elected him and guided him onto a straight way.* — **An-Nahl (16:121)**
+> 📖 *And once again: What could make thee conceive what that Judgment Day will be?* — **Al-Infitaar (82:18)**
 <!-- quran-verse-end -->
 
 ---
