@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But when the bearer of good tidings came [with Joseph's tunic], he laid it over his face; and he regained his sight, [and] exclaimed: "Did I not tell you, `Verily, I know, from God, something that you do not know'?"* — **Yusuf (12:96)**
+> 📖 *And then, he whose weight [of good deeds] is heavy in the balance* — **Al-Qaari'a (101:6)**
 <!-- quran-verse-end -->
 
 ---
