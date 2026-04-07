@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let, then, the deniers of the truth have their will: let them have their will for a little while.* — **At-Taariq (86:17)**
+> 📖 *Now as for [the tribe of] Ad, they walked arrogantly on earth, [offending] against all right, and saying, “Who could have a power greater than ours?” Why - were they, then, not aware that God, who created them, had a power greater than theirs? But they went on rejecting Our messages;* — **Fussilat (41:15)**
 <!-- quran-verse-end -->
 
 ---
