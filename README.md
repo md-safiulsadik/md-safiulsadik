@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND NEVER YET have We sent a prophet unto any community without trying its people with misfortune and hardship, so that they might humble themselves;* — **Al-A'raaf (7:94)**
+> 📖 *till, when they come close to it, their hearing and their sight and their [very] skins will bear witness against them, speaking of what they were doing [on earth].* — **Fussilat (41:20)**
 <!-- quran-verse-end -->
 
 ---
