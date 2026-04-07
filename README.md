@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, as for those who persecute believing men and believing women, and thereafter do not repent, hell's suffering awaits them: yea, suffering through fire awaits them!* — **Al-Burooj (85:10)**
+> 📖 *Thereupon the command will go forth:] "Lay hold of him, and shackle him,* — **Al-Haaqqa (69:30)**
 <!-- quran-verse-end -->
 
 ---
