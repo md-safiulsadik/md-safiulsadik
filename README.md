@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Therefore, [O believer,] endure all adversity with goodly patience:* — **Al-Ma'aarij (70:5)**
+> 📖 *Verily, as for those who persecute believing men and believing women, and thereafter do not repent, hell's suffering awaits them: yea, suffering through fire awaits them!* — **Al-Burooj (85:10)**
 <!-- quran-verse-end -->
 
 ---
