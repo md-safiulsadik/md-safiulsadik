@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And then, he whose weight [of good deeds] is heavy in the balance* — **Al-Qaari'a (101:6)**
+> 📖 *Upon those [blest] will be garments of green silk and brocade; and they will be adorned with bracelets of silver. And their Sustainer will them to drink of a drink most pure.* — **Al-Insaan (76:21)**
 <!-- quran-verse-end -->
 
 ---
