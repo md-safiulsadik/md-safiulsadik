@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now as for [the tribe of] Ad, they walked arrogantly on earth, [offending] against all right, and saying, “Who could have a power greater than ours?” Why - were they, then, not aware that God, who created them, had a power greater than theirs? But they went on rejecting Our messages;* — **Fussilat (41:15)**
+> 📖 *But when the bearer of good tidings came [with Joseph's tunic], he laid it over his face; and he regained his sight, [and] exclaimed: "Did I not tell you, `Verily, I know, from God, something that you do not know'?"* — **Yusuf (12:96)**
 <!-- quran-verse-end -->
 
 ---
