@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *till, when they come close to it, their hearing and their sight and their [very] skins will bear witness against them, speaking of what they were doing [on earth].* — **Fussilat (41:20)**
+> 📖 *SO THAT the Quraysh might remain secure,* — **Quraish (106:1)**
 <!-- quran-verse-end -->
 
 ---
