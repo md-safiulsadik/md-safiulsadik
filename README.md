@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Upon those [blest] will be garments of green silk and brocade; and they will be adorned with bracelets of silver. And their Sustainer will them to drink of a drink most pure.* — **Al-Insaan (76:21)**
+> 📖 *Therefore, [O believer,] endure all adversity with goodly patience:* — **Al-Ma'aarij (70:5)**
 <!-- quran-verse-end -->
 
 ---
