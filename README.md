@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SO THAT the Quraysh might remain secure,* — **Quraish (106:1)**
+> 📖 *And so, all that they were wont to invoke aforetime will have forsaken them; and they shall know for certain that there is no escape for them.* — **Fussilat (41:48)**
 <!-- quran-verse-end -->
 
 ---
