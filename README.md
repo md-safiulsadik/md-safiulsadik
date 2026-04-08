@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[saying, in their hearts,] "We feed you for the sake of God alone: we desire no recompense from you, nor thanks:* — **Al-Insaan (76:9)**
+> 📖 *Say: "You may spend [anything], willingly-or unwillingly, [pretending that you do it for the sake of God:] it shall never be accepted from you -for, verily, you are people bent on iniquity!"* — **At-Tawba (9:53)**
 <!-- quran-verse-end -->
 
 ---
