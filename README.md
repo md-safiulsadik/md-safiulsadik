@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *of fire fiercely burning [for all who have attained to faith]!* — **Al-Burooj (85:5)**
+> 📖 *“Behold, those who are destined for paradise shall today have joy in whatever they do:* — **Yaseen (36:55)**
 <!-- quran-verse-end -->
 
 ---
