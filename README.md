@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thereupon the command will go forth:] "Lay hold of him, and shackle him,* — **Al-Haaqqa (69:30)**
+> 📖 *of fire fiercely burning [for all who have attained to faith]!* — **Al-Burooj (85:5)**
 <!-- quran-verse-end -->
 
 ---
