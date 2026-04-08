@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[It will be] a Day when no human being shall be of the least avail to another human being: for on that Day [it will become manifest that] all sovereignty is God's alone.* — **Al-Infitaar (82:19)**
+> 📖 *As it is, they say [mockingly]: “O our Sus­tainer! Hasten on to us our share [of punishment even] before the Day of Reckoning!”* — **Saad (38:16)**
 <!-- quran-verse-end -->
 
 ---
