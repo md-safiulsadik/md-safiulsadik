@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereafter We reduce him to the lowest of low* — **At-Tin (95:5)**
+> 📖 *but if you desire God and His Apostle, and [thus the good of] the life in the hereafter, then [know that], verily, for the doers of good among you God has readied a mighty reward!”* — **Al-Ahzaab (33:29)**
 <!-- quran-verse-end -->
 
 ---
