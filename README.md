@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *As it is, they say [mockingly]: “O our Sus­tainer! Hasten on to us our share [of punishment even] before the Day of Reckoning!”* — **Saad (38:16)**
+> 📖 *and thereafter We reduce him to the lowest of low* — **At-Tin (95:5)**
 <!-- quran-verse-end -->
 
 ---
