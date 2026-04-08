@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *How awesome that laying-bare of the truth!* — **Al-Haaqqa (69:2)**
+> 📖 *[It will be] a Day when no human being shall be of the least avail to another human being: for on that Day [it will become manifest that] all sovereignty is God's alone.* — **Al-Infitaar (82:19)**
 <!-- quran-verse-end -->
 
 ---
