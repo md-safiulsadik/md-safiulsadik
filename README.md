@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "You may spend [anything], willingly-or unwillingly, [pretending that you do it for the sake of God:] it shall never be accepted from you -for, verily, you are people bent on iniquity!"* — **At-Tawba (9:53)**
+> 📖 *How awesome that laying-bare of the truth!* — **Al-Haaqqa (69:2)**
 <!-- quran-verse-end -->
 
 ---
