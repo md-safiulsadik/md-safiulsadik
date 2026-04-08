@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the night as it veils [the earth] in darkness,* — **Al-Lail (92:1)**
+> 📖 *verily, how evil an abode and a station!” -;* — **Al-Furqaan (25:66)**
 <!-- quran-verse-end -->
 
 ---
