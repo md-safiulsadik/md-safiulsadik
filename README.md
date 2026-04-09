@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND HAS the story of Abraham’s honoured guests ever come within thy ken?* — **Adh-Dhaariyat (51:24)**
+> 📖 *Behold, [when Our messages are conveyed to one who is bent on denying the truth,] he reflects and meditates [as to how to disprove them] –* — **Al-Muddaththir (74:18)**
 <!-- quran-verse-end -->
 
 ---
