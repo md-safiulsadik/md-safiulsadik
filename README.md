@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, he who shall have done an atom's weight of good, shall behold it;* — **Az-Zalzala (99:7)**
+> 📖 *Did He not utterly confound their artful planning?* — **Al-Fil (105:2)**
 <!-- quran-verse-end -->
 
 ---
