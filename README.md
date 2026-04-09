@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And he will impart unto thy son revelation, and wisdom, and the Torah, and the Gospel,* — **Aal-i-Imraan (3:48)**
+> 📖 *AND HAS the story of Abraham’s honoured guests ever come within thy ken?* — **Adh-Dhaariyat (51:24)**
 <!-- quran-verse-end -->
 
 ---
