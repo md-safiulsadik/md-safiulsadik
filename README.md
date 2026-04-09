@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But] We know best what they will be saying when the most perceptive of them shall say, "You have spent [there] but one day!"* — **Taa-Haa (20:104)**
+> 📖 *But they [who reject My messages are wont to] ask, “When is that promise [of God’s judgment] to be fulfilled? [Answer this, O you who believe in it,] if you are men of truth!”* — **Al-Anbiyaa (21:38)**
 <!-- quran-verse-end -->
 
 ---
