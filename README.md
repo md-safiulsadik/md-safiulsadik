@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and believes in the truth of the ultimate good* — **Al-Lail (92:6)**
+> 📖 *And he will impart unto thy son revelation, and wisdom, and the Torah, and the Gospel,* — **Aal-i-Imraan (3:48)**
 <!-- quran-verse-end -->
 
 ---
