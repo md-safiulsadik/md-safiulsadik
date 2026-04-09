@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But they [who reject My messages are wont to] ask, “When is that promise [of God’s judgment] to be fulfilled? [Answer this, O you who believe in it,] if you are men of truth!”* — **Al-Anbiyaa (21:38)**
+> 📖 *SO THAT the Quraysh might remain secure,* — **Quraish (106:1)**
 <!-- quran-verse-end -->
 
 ---
