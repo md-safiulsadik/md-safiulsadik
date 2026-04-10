@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And so,] whenever the two demands [of his nature] come face to face, contending from the right and from the left,* — **Qaaf (50:17)**
+> 📖 *In this, behold, there is a message [unto men], even though most of them will not believe [in it].* — **Ash-Shu'araa (26:8)**
 <!-- quran-verse-end -->
 
 ---
