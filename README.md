@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and I said: "'Ask your Sustainer to forgive you your sins - for, verily, He is all-forgiving!* — **Nooh (71:10)**
+> 📖 *and being, withal, of those who have attained to faith, and who enjoin upon one another patience in adversity, and enjoin upon one another compassion.* — **Al-Balad (90:17)**
 <!-- quran-verse-end -->
 
 ---
