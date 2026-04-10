@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In this, behold, there is a message [unto men], even though most of them will not believe [in it].* — **Ash-Shu'araa (26:8)**
+> 📖 *[hence,] O my Sustainer, cause me and [some] of my offspring to remain constant in prayer! "And, O our Sustainer, accept this my prayer:* — **Ibrahim (14:40)**
 <!-- quran-verse-end -->
 
 ---
