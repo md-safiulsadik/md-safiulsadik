@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
+> 📖 *and I said: "'Ask your Sustainer to forgive you your sins - for, verily, He is all-forgiving!* — **Nooh (71:10)**
 <!-- quran-verse-end -->
 
 ---
