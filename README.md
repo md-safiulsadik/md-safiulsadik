@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, [when Our messages are conveyed to one who is bent on denying the truth,] he reflects and meditates [as to how to disprove them] –* — **Al-Muddaththir (74:18)**
+> 📖 *[And so,] whenever the two demands [of his nature] come face to face, contending from the right and from the left,* — **Qaaf (50:17)**
 <!-- quran-verse-end -->
 
 ---
