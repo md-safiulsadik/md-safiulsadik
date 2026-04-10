@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, he has no power over those who have attained to faith and in their Sustainer place their tray trust:* — **An-Nahl (16:99)**
+> 📖 *and will reward them for all their patience in adversity with a garden [of bliss] and with [garments of] silk.* — **Al-Insaan (76:12)**
 <!-- quran-verse-end -->
 
 ---
