@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and divert yourselves all the while?* — **An-Najm (53:61)**
+> 📖 *about which it has been decreed that whoever entrusts himself to it, him will it lead astray and guide towards the suffering of the blazing flame!* — **Al-Hajj (22:4)**
 <!-- quran-verse-end -->
 
 ---
