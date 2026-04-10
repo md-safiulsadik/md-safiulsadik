@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[hence,] O my Sustainer, cause me and [some] of my offspring to remain constant in prayer! "And, O our Sustainer, accept this my prayer:* — **Ibrahim (14:40)**
+> 📖 *Yea indeed! His Sustainer did see all that was in him!* — **Al-Inshiqaaq (84:15)**
 <!-- quran-verse-end -->
 
 ---
