@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and leave the sea becalmed [between thee and Pharaoh’s men]: for, verily, they are a host destined to be drowned!”* — **Ad-Dukhaan (44:24)**
+> 📖 *Behold, he has no power over those who have attained to faith and in their Sustainer place their tray trust:* — **An-Nahl (16:99)**
 <!-- quran-verse-end -->
 
 ---
