@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *yet when the misfortune decreed by Us befell them, they did not humble themselves, but rather their hearts grew hard, for Satan had made all their doings seem goodly to them.* — **Al-An'aam (6:43)**
+> 📖 *And had it not been for God’s having ordained banishment for them, He would indeed have imposed [yet greater] suffering on them in this world: still, in the life to come there awaits them suffering through fire:* — **Al-Hashr (59:3)**
 <!-- quran-verse-end -->
 
 ---
