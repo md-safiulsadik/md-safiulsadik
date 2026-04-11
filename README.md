@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].* — **Al-Kawthar (108:2)**
+> 📖 *But if one happens to be of those who are wont to call the truth a lie, and [thus] go astray,* — **Al-Waaqia (56:92)**
 <!-- quran-verse-end -->
 
 ---
