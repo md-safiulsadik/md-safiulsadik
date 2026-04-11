@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *When those [heavenly messengers] came unto him and bade him peace, he answered, “[And upon you be] peace!” - [saying to himself,] “They are strangers.”* — **Adh-Dhaariyat (51:25)**
+> 📖 *And among the rebel­lious forces [which We made subservient to him] there were some that dived for him [into the sea] and performed other works, besides: but it was We who kept watch over them.* — **Al-Anbiyaa (21:82)**
 <!-- quran-verse-end -->
 
 ---
