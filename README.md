@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And among the rebel­lious forces [which We made subservient to him] there were some that dived for him [into the sea] and performed other works, besides: but it was We who kept watch over them.* — **Al-Anbiyaa (21:82)**
+> 📖 *Are they, then, not aware that it is God who grants abundant sustenance, or gives it in scant measure, unto whomever He wills? In this, behold, there are messages indeed for peo­ple who will believe!* — **Ar-Room (30:37)**
 <!-- quran-verse-end -->
 
 ---
