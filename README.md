@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Are they, then, not aware that it is God who grants abundant sustenance, or gives it in scant measure, unto whomever He wills? In this, behold, there are messages indeed for peo­ple who will believe!* — **Ar-Room (30:37)**
+> 📖 *behold, this [divine writ] is indeed the [inspired] word of a noble apostle,* — **At-Takwir (81:19)**
 <!-- quran-verse-end -->
 
 ---
