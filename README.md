@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Lord of the Day of Judgment!* — **Al-Faatiha (1:4)**
+> 📖 *yet when the misfortune decreed by Us befell them, they did not humble themselves, but rather their hearts grew hard, for Satan had made all their doings seem goodly to them.* — **Al-An'aam (6:43)**
 <!-- quran-verse-end -->
 
 ---
