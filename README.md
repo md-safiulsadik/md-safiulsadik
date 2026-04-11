@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *If thou couldst but see [them] when they will be made to stand before the fire and will say, "Oh, would that we were brought back [to life]: then we would not give the lie to our Sustainer's messages, but would be among the believers!"* — **Al-An'aam (6:27)**
+> 📖 *When those [heavenly messengers] came unto him and bade him peace, he answered, “[And upon you be] peace!” - [saying to himself,] “They are strangers.”* — **Adh-Dhaariyat (51:25)**
 <!-- quran-verse-end -->
 
 ---
