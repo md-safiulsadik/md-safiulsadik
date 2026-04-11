@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, place thy trust in God [alone] - for, behold, that in which thou believest is truth self-evident.* — **An-Naml (27:79)**
+> 📖 *THE BESTOWAL from on high of this divine writ issues from God, the Almighty, the Wise.* — **Al-Jaathiya (45:2)**
 <!-- quran-verse-end -->
 
 ---
