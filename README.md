@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet, [now that this divine writ has been placed before them,] they refuse to acknowledge it as true! In time, however, they will come to know [what it was that they had rejected]:* — **As-Saaffaat (37:170)**
+> 📖 *Hence, place thy trust in God [alone] - for, behold, that in which thou believest is truth self-evident.* — **An-Naml (27:79)**
 <!-- quran-verse-end -->
 
 ---
