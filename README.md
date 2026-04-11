@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *about which it has been decreed that whoever entrusts himself to it, him will it lead astray and guide towards the suffering of the blazing flame!* — **Al-Hajj (22:4)**
+> 📖 *WHEN THE SKY is cleft asunder,* — **Al-Infitaar (82:1)**
 <!-- quran-verse-end -->
 
 ---
