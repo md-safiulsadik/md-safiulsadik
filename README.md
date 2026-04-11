@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And they who are in the fire will say to the keepers of hell, “Pray unto your Sustainer that He lighten, [though it be] for one day [only], this suffering of ours!”* — **Ghafir (40:49)**
+> 📖 *If thou couldst but see [them] when they will be made to stand before the fire and will say, "Oh, would that we were brought back [to life]: then we would not give the lie to our Sustainer's messages, but would be among the believers!"* — **Al-An'aam (6:27)**
 <!-- quran-verse-end -->
 
 ---
