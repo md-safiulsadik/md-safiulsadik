@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[for,] had We willed to indulge in a pastime, We would indeed have produced it from within Ourselves - if such had been Our will at all!* — **Al-Anbiyaa (21:17)**
+> 📖 *NO CALAMITY can ever befall [man] unless it be by God's leave: hence, whoever believes in God guides his [own] heart [towards this truth]; and God has full knowledge of everything.* — **At-Taghaabun (64:11)**
 <!-- quran-verse-end -->
 
 ---
