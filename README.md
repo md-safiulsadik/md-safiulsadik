@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *knowing all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind - the Almighty, the Wise!* — **At-Taghaabun (64:18)**
+> 📖 *Verily, it is We who have created man out of a drop of sperm intermingled, so that We might try him [in his later life]: and therefore We made him a being endowed with hearing and sight.* — **Al-Insaan (76:2)**
 <!-- quran-verse-end -->
 
 ---
