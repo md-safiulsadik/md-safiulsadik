@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Does he claim that all the deities are [but] one God? Verily, a most strange thing is this!”* — **Saad (38:5)**
+> 📖 *[AS AGAINST this,] behold, the God-conscious shall dwell amidst [cooling] shades and springs,* — **Al-Mursalaat (77:41)**
 <!-- quran-verse-end -->
 
 ---
