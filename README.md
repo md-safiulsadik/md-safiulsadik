@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THE BESTOWAL from on high of this divine writ issues from God, the Almighty, the Wise.* — **Al-Jaathiya (45:2)**
+> 📖 *[But unto the righteous God will say,] "O thou human being that hast attained to inner peace!* — **Al-Fajr (89:27)**
 <!-- quran-verse-end -->
 
 ---
