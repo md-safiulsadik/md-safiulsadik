@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].* — **Al-Kawthar (108:2)**
+> 📖 *LET [all] this be a reminder [to those who believe in God] - for, verily, the most beauteous of all goals awaits the God-conscious:* — **Saad (38:49)**
 <!-- quran-verse-end -->
 
 ---
