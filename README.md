@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that Day will every human being be requited for what he has earned: no wrong [will be done] on that Day: verily, swift in reckoning is God!* — **Ghafir (40:17)**
+> 📖 *[for,] had We willed to indulge in a pastime, We would indeed have produced it from within Ourselves - if such had been Our will at all!* — **Al-Anbiyaa (21:17)**
 <!-- quran-verse-end -->
 
 ---
