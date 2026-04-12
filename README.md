@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, indeed, he saw him a second time* — **An-Najm (53:13)**
+> 📖 *Does he claim that all the deities are [but] one God? Verily, a most strange thing is this!”* — **Saad (38:5)**
 <!-- quran-verse-end -->
 
 ---
