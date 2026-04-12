@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen* — **Al-Qadr (97:4)**
+> 📖 *and on that Day you will most surely be called to account for [what you did with] the boon of life!* — **At-Takaathur (102:8)**
 <!-- quran-verse-end -->
 
 ---
