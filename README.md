@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Among those of the Jewish faith there are some who distort the meaning of the [revealed] words, taking them out of their context and saying, [as it were,] "We have heard, but we disobey," and, "Hear without hearkening,” and, “Hearken thou unto us, (O Muhammad)” - thus making a play with their tongues, and implying that the [true] Faith is false. And had they but said, "We have heard, and we pay heed," and "Hear [us], and have patience with us," it would indeed have been for their own good, and more upright: but God has rejected them because of their refusal to acknowledge the truth - for it is in but few things that they believe.* — **An-Nisaa (4:46)**
+> 📖 *and brought about great corruption therein:* — **Al-Fajr (89:12)**
 <!-- quran-verse-end -->
 
 ---
