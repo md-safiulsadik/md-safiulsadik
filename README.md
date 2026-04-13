@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[For] God has thus ordained: “I shall most certainly prevail, I and My apostles!” Verily, God is powerful, almighty!* — **Al-Mujaadila (58:21)**
+> 📖 *O our Sustainer! Cause us to come out of this [suffering] - and then, if ever We revert [to sinning], may we truly be [deemed] evildoers!”* — **Al-Muminoon (23:107)**
 <!-- quran-verse-end -->
 
 ---
