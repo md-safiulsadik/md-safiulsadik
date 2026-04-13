@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now those who have been vouchsafed revelation aforetime did break up their unity [of faith] after such an evidence of the truth had come to them.* — **Al-Bayyina (98:4)**
+> 📖 *on the Day [of Judgment] when some faces will shine [with happiness] and some faces will be dark [with grief]. And as for those with faces darkened, [they shall be told:] "Did you deny the truth after having attained to faith? Taste, then, this suffering for having denied the truth!"* — **Aal-i-Imraan (3:106)**
 <!-- quran-verse-end -->
 
 ---
