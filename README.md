@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“[As for me,] why should I not worship Him who has brought me into being, and to whom you all will be brought back?* — **Yaseen (36:22)**
+> 📖 *[For] God has thus ordained: “I shall most certainly prevail, I and My apostles!” Verily, God is powerful, almighty!* — **Al-Mujaadila (58:21)**
 <!-- quran-verse-end -->
 
 ---
