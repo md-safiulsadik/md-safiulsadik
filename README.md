@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[God] answered: "Go [the way thou hast chosen]! But as for such of them as shall follow thee - behold, hell will be the recompense of you (all], a recompense most ample!* — **Al-Israa (17:63)**
+> 📖 *As it is, they [who are averse to the truth often] swear by God with their most solemn oaths that if a warner should ever come to them, they would follow his guidance better than any of the communities [of old had followed the warner sent to them]: but now that a warner has come unto them, [his call] but increases their aversion,* — **Faatir (35:42)**
 <!-- quran-verse-end -->
 
 ---
