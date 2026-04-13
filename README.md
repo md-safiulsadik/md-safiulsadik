@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and brought about great corruption therein:* — **Al-Fajr (89:12)**
+> 📖 *[God] answered: "Go [the way thou hast chosen]! But as for such of them as shall follow thee - behold, hell will be the recompense of you (all], a recompense most ample!* — **Al-Israa (17:63)**
 <!-- quran-verse-end -->
 
 ---
