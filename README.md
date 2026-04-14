@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And He it is who causes the night and the day to succeed one another, [revealing Himself in His works] unto him who has the will to take thought - that is has the will to be grateful.* — **Al-Furqaan (25:62)**
+> 📖 *together with his wife, that carrier of evil tales,* — **Al-Masad (111:4)**
 <!-- quran-verse-end -->
 
 ---
