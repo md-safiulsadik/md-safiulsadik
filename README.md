@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"I do not worship that which you worship,* — **Al-Kaafiroon (109:2)**
+> 📖 *And what could make thee conceive what it is, that Night of Destiny?* — **Al-Qadr (97:2)**
 <!-- quran-verse-end -->
 
 ---
