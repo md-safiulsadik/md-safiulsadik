@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what it is, that Night of Destiny?* — **Al-Qadr (97:2)**
+> 📖 *and the night when it grows still and dark.* — **Ad-Dhuhaa (93:2)**
 <!-- quran-verse-end -->
 
 ---
