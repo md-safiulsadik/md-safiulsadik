@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, how many a community that persisted in evildoing have We dashed into fragments, and raised another people in its stead!* — **Al-Anbiyaa (21:11)**
+> 📖 *CONSIDER the sky full of great constellations,* — **Al-Burooj (85:1)**
 <!-- quran-verse-end -->
 
 ---
