@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the night when it grows still and dark.* — **Ad-Dhuhaa (93:2)**
+> 📖 *For, how many a community that persisted in evildoing have We dashed into fragments, and raised another people in its stead!* — **Al-Anbiyaa (21:11)**
 <!-- quran-verse-end -->
 
 ---
