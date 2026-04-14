@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "I seek refuge with the Sustainer of the rising dawn,* — **Al-Falaq (113:1)**
+> 📖 *Each of the two gardens yielded its produce and never failed therein in any way, for We had caused a stream to gush forth in the midst of each of them.* — **Al-Kahf (18:33)**
 <!-- quran-verse-end -->
 
 ---
