@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *As it is, they [who are averse to the truth often] swear by God with their most solemn oaths that if a warner should ever come to them, they would follow his guidance better than any of the communities [of old had followed the warner sent to them]: but now that a warner has come unto them, [his call] but increases their aversion,* — **Faatir (35:42)**
+> 📖 *And He it is who causes the night and the day to succeed one another, [revealing Himself in His works] unto him who has the will to take thought - that is has the will to be grateful.* — **Al-Furqaan (25:62)**
 <!-- quran-verse-end -->
 
 ---
