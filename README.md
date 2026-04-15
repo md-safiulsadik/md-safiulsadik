@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Limitless in His glory is He who has created opposites in whatever the earth produces, and in men’s own selves, and in that of which [as yet] they have no knowledge.* — **Yaseen (36:36)**
+> 📖 *Or is there any that could provide you with sustenance if He should withhold His provision [from you]? Nay, but they [who are bent on denying the truth] stubbornly persist in their disdain [of God's messages] and in their headlong flight [from Him]!* — **Al-Mulk (67:21)**
 <!-- quran-verse-end -->
 
 ---
