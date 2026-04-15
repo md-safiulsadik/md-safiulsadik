@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Each of the two gardens yielded its produce and never failed therein in any way, for We had caused a stream to gush forth in the midst of each of them.* — **Al-Kahf (18:33)**
+> 📖 *ARE YOU NOT aware that God has made subservient to you all that is in the heavens and all that is on earth, and has lavished upon you His blessings, both outward and inward? And yet, among men there is many a one that argues about God without having any knowledge [of Him], without any guidance, and without any light-giving revelation;* — **Luqman (31:20)**
 <!-- quran-verse-end -->
 
 ---
