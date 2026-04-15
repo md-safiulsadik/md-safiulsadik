@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THEY WILL ASK thee [O Prophet] about the Last Hour: "When will it come to pass?"* — **An-Naazi'aat (79:42)**
+> 📖 *and calls the ultimate good a lie –* — **Al-Lail (92:9)**
 <!-- quran-verse-end -->
 
 ---
