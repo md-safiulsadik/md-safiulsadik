@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or is there any that could provide you with sustenance if He should withhold His provision [from you]? Nay, but they [who are bent on denying the truth] stubbornly persist in their disdain [of God's messages] and in their headlong flight [from Him]!* — **Al-Mulk (67:21)**
+> 📖 *[for] if those [to whom they have pledged themselves] are indeed driven away, they will not go forth with them; and if war is waged against them, they will not come to their succour; and even if they [try to] succour them, they will most certainly turn their backs [in flight], and in the end will [themselves] find no succour.* — **Al-Hashr (59:12)**
 <!-- quran-verse-end -->
 
 ---
