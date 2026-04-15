@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the stars are scattered,* — **Al-Infitaar (82:2)**
+> 📖 *sparks of fire striking,* — **Al-Aadiyaat (100:2)**
 <!-- quran-verse-end -->
 
 ---
