@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And there are yet other [gains] which are still beyond your grasp, [but] which God has already encompassed [for you]: for God has the power to will anything.* — **Al-Fath (48:21)**
+> 📖 *Can such, then, expect anything else [to befall them] but the like of the days of [calamity which befell] those [deniers of the truth] who passed away before them? Say: "Wait, then, [for what will happen) verily, I shall wait with you!"* — **Yunus (10:102)**
 <!-- quran-verse-end -->
 
 ---
