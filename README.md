@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *an apostle from God, conveying [unto them] revelations blest with purity,* — **Al-Bayyina (98:2)**
+> 📖 *[Jacob] replied: "Shall I trust you with him in the same way as I trusted you with his brother (Joseph] aforetime? [Nay,] but God's guardianship is better [than yours], for He is the most merciful of the merciful!"* — **Yusuf (12:64)**
 <!-- quran-verse-end -->
 
 ---
