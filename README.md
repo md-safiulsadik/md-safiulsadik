@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For those who are bent on denying the truth God has propounded a parable in [the stories of] Noah's wife and Lot's wife: they were wedded to two of Our righteous servants, and each one betrayed her husband; and neither of the two [husbands] will be of any avail to these two women when they are told [on Judgment Day], "Enter the fire with all those [other sinners] who enter it!"* — **At-Tahrim (66:10)**
+> 📖 *God has laid down that the Ka'bah, the Inviolable Temple, shall be a symbol for all mankind; and [so, too] the sacred month [of pilgrimage] and the garlanded offerings [are symbols] meant to make you aware that God is aware of all that is in the heavens and all that is on earth, and that God has full knowledge of everything.* — **Al-Maaida (5:97)**
 <!-- quran-verse-end -->
 
 ---
