@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Woe unto him who amasses wealth and counts it a safeguard,* — **Al-Humaza (104:2)**
+> 📖 *an apostle from God, conveying [unto them] revelations blest with purity,* — **Al-Bayyina (98:2)**
 <!-- quran-verse-end -->
 
 ---
