@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas him We admitted unto Our grace: for, behold, he was among the righteous.* — **Al-Anbiyaa (21:75)**
+> 📖 *AND SO, when the great overwhelming event [of, resurrection] comes to pass –* — **An-Naazi'aat (79:34)**
 <!-- quran-verse-end -->
 
 ---
