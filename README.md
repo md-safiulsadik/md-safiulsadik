@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SO THAT the Quraysh might remain secure,* — **Quraish (106:1)**
+> 📖 *crystal-like, [but] of silver - the measure whereof they alone will determine.* — **Al-Insaan (76:16)**
 <!-- quran-verse-end -->
 
 ---
