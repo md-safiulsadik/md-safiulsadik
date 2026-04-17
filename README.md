@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and] who incessantly persevere in their prayer* — **Al-Ma'aarij (70:23)**
+> 📖 *and they will say: “All praise is due to God, who has caused all sorrow to leave us: for, verily, our Sustainer is indeed much-forgiving, ever-responsive to gratitude –* — **Faatir (35:34)**
 <!-- quran-verse-end -->
 
 ---
