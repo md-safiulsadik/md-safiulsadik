@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Woe unto every sinful self-deceiver* — **Al-Jaathiya (45:7)**
+> 📖 *[and] who incessantly persevere in their prayer* — **Al-Ma'aarij (70:23)**
 <!-- quran-verse-end -->
 
 ---
