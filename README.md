@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Jacob] replied: "Shall I trust you with him in the same way as I trusted you with his brother (Joseph] aforetime? [Nay,] but God's guardianship is better [than yours], for He is the most merciful of the merciful!"* — **Yusuf (12:64)**
+> 📖 *God admonishes you [hereby] lest you ever revert to the like of this [sin], if you are [truly] believers;* — **An-Noor (24:17)**
 <!-- quran-verse-end -->
 
 ---
