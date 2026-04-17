@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for him whose record shall be given to him behind his back;* — **Al-Inshiqaaq (84:10)**
+> 📖 *Woe unto every sinful self-deceiver* — **Al-Jaathiya (45:7)**
 <!-- quran-verse-end -->
 
 ---
