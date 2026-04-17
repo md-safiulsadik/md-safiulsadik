@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *verily, it will close in upon them* — **Al-Humaza (104:8)**
+> 📖 *and has set up within them the moon as a light [reflected] and set up the sun as a [radiant] lamp?* — **Nooh (71:16)**
 <!-- quran-verse-end -->
 
 ---
