@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Alif. Lam. Mim.* — **Aal-i-Imraan (3:1)**
+> 📖 *O MEN! Be conscious of your Sustainer, and stand in awe of the Day on which no parent will be of any avail to his child, nor a child will in the least avail his parent! Verily, God’s promise [of resurrection] is true in­deed: let not, then, the life of this world deludes you, and let not [your own] deceptive thoughts about God delude you!* — **Luqman (31:33)**
 <!-- quran-verse-end -->
 
 ---
