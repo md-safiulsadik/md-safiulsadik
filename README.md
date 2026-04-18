@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHEN THE EARTH quakes with her [last] mighty quaking,* — **Az-Zalzala (99:1)**
+> 📖 *Consider the heavens, ever-revolving,* — **At-Taariq (86:11)**
 <!-- quran-verse-end -->
 
 ---
