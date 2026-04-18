@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *What will his wealth avail him, and all that he has gained?* — **Al-Masad (111:2)**
+> 📖 *Yet had We so willed, We could indeed have imposed Our guidance upon every human being: but [We have not willed it thus - and so] that word of Mine has come true: “Most certainly will I fill hell with invisible beings as well as with humans, all together!”* — **As-Sajda (32:13)**
 <!-- quran-verse-end -->
 
 ---
