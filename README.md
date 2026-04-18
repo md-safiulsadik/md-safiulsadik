@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Keep awake [in prayer] at night, all but a small part* — **Al-Muzzammil (73:2)**
+> 📖 *And [remember:] God creates [every one of] you out of dust, then out of a drop of sperm; and then He fashions you into either of the two sexes. And no female conceives or gives birth unless it be with His knowledge; and none that is long-lived has his days lengthened - and neither is aught lessened of his days - unless it be thus laid down in [God’s] decree: for, behold, all this is easy for God.* — **Faatir (35:11)**
 <!-- quran-verse-end -->
 
 ---
