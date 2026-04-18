@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *a guidance and a glad tiding to the believers* — **An-Naml (27:2)**
+> 📖 *[But] how couldst thou tell anything about it,* — **An-Naazi'aat (79:43)**
 <!-- quran-verse-end -->
 
 ---
