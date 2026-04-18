@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for what crime she had been slain,* — **At-Takwir (81:9)**
+> 📖 *WHEN THE EARTH quakes with her [last] mighty quaking,* — **Az-Zalzala (99:1)**
 <!-- quran-verse-end -->
 
 ---
