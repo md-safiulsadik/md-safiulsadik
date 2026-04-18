@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O MEN! Be conscious of your Sustainer, and stand in awe of the Day on which no parent will be of any avail to his child, nor a child will in the least avail his parent! Verily, God’s promise [of resurrection] is true in­deed: let not, then, the life of this world deludes you, and let not [your own] deceptive thoughts about God delude you!* — **Luqman (31:33)**
+> 📖 *Now those who lived before these [sinners] did, too, devise many a blasphemy -but the most subtle devising is that of God, who knows what each human being deserves: and the deniers of the truth will [in time] come to know to whom the future belongs.* — **Ar-Ra'd (13:42)**
 <!-- quran-verse-end -->
 
 ---
