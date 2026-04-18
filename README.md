@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, We have bestowed upon thee good in abundance:* — **Al-Kawthar (108:1)**
+> 📖 *Keep awake [in prayer] at night, all but a small part* — **Al-Muzzammil (73:2)**
 <!-- quran-verse-end -->
 
 ---
