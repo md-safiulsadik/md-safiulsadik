@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But] how couldst thou tell anything about it,* — **An-Naazi'aat (79:43)**
+> 📖 *for what crime she had been slain,* — **At-Takwir (81:9)**
 <!-- quran-verse-end -->
 
 ---
