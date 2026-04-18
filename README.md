@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *an apostle from God, conveying [unto them] revelations blest with purity,* — **Al-Bayyina (98:2)**
+> 📖 *What will his wealth avail him, and all that he has gained?* — **Al-Masad (111:2)**
 <!-- quran-verse-end -->
 
 ---
