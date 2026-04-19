@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, God knows the hidden reality of the heavens and the earth; and God sees all that you do.* — **Al-Hujuraat (49:18)**
+> 📖 *or thou have a house [made] of gold, or thou ascend to heaven - but nay, we would not [even] believe in thy ascension unless thou bring down to us [from heaven] a writing which we [ourselves] could read! Say thou, [O Prophet:] "Limitless in His glory is my Sustainer! Am I, then, aught but a mortal man, an apostle?"* — **Al-Israa (17:93)**
 <!-- quran-verse-end -->
 
 ---
