@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [likewise] the birds in their assemblies: [together] they all Would turn again and again unto Him [who had created them].* — **Saad (38:19)**
+> 📖 *[But] they are not all alike: among the followers of earlier revelation there are upright people, who recite God's messages throughout the night, and prostrate themselves [before Him].* — **Aal-i-Imraan (3:113)**
 <!-- quran-verse-end -->
 
 ---
