@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let them, therefore, worship the Sustainer of this Temple;* — **Quraish (106:3)**
+> 📖 *and [likewise] the birds in their assemblies: [together] they all Would turn again and again unto Him [who had created them].* — **Saad (38:19)**
 <!-- quran-verse-end -->
 
 ---
