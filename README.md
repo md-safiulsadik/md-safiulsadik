@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Such will be their requital for having rejected Our messages and having said, "After we will have become bones and dust, shall we, forsooth, be raised from the dead in a new act of creation?"* — **Al-Israa (17:98)**
+> 📖 *and will aid you with worldly goods and children, and will bestow upon you gardens, and bestow upon you running waters.* — **Nooh (71:12)**
 <!-- quran-verse-end -->
 
 ---
