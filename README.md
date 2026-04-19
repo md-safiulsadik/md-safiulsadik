@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *wherein there are ordinances of ever-true soundness and clarity.* — **Al-Bayyina (98:3)**
+> 📖 *How, then, if you refuse to acknowledge the truth, will you protect yourselves on that Day which shall turn the hair of children grey,* — **Al-Muzzammil (73:17)**
 <!-- quran-verse-end -->
 
 ---
