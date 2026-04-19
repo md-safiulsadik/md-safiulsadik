@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For on that Day neither man nor invisible being will be asked about his sins.* — **Ar-Rahmaan (55:39)**
+> 📖 *Verily, herein lies a message indeed for all who believe [in God].* — **Al-Hijr (15:77)**
 <!-- quran-verse-end -->
 
 ---
