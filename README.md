@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and made no allowance [for the will of God]:* — **Al-Qalam (68:18)**
+> 📖 *For on that Day neither man nor invisible being will be asked about his sins.* — **Ar-Rahmaan (55:39)**
 <!-- quran-verse-end -->
 
 ---
