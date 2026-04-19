@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But] they are not all alike: among the followers of earlier revelation there are upright people, who recite God's messages throughout the night, and prostrate themselves [before Him].* — **Aal-i-Imraan (3:113)**
+> 📖 *so that you [O men] might believe in God and His Apostle, and might honour Him, and revere Him, and extol His limitless glory from morn to evening.* — **Al-Fath (48:9)**
 <!-- quran-verse-end -->
 
 ---
