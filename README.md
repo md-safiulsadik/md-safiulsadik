@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereat the heavens might well-nigh be rent into fragments, and the earth be split asunder, and the mountains fall down in ruins!* — **Maryam (19:90)**
+> 📖 *and made no allowance [for the will of God]:* — **Al-Qalam (68:18)**
 <!-- quran-verse-end -->
 
 ---
