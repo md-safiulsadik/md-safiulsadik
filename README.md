@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *or thou have a house [made] of gold, or thou ascend to heaven - but nay, we would not [even] believe in thy ascension unless thou bring down to us [from heaven] a writing which we [ourselves] could read! Say thou, [O Prophet:] "Limitless in His glory is my Sustainer! Am I, then, aught but a mortal man, an apostle?"* — **Al-Israa (17:93)**
+> 📖 *Indeed, [even aforetime] did We send forth Our apostles with all evidence of [this] truth; and through them We bestowed revelation from on high, and [thus gave you] a balance [wherewith to weigh right and wrong], so that men might behave with equity; and We bestowed [upon you] from on high [the ability to make use of] iron, in which there is awesome power as well as [a source of] benefits for man: and [all this was given to you] so that God might mark out those who would stand up for him and His Apostle, even though He [Himself] is beyond the reach of human perception. Verily, God is powerful, almighty!* — **Al-Hadid (57:25)**
 <!-- quran-verse-end -->
 
 ---
