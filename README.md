@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then He forms him in accordance with what he is meant to be, and breathes into him of His spirit: and [thus, O men,] He endows you with hearing, and sight, and feelings as well as minds: [yet] how seldom are you grateful!* — **As-Sajda (32:9)**
+> 📖 *whereat the heavens might well-nigh be rent into fragments, and the earth be split asunder, and the mountains fall down in ruins!* — **Maryam (19:90)**
 <!-- quran-verse-end -->
 
 ---
