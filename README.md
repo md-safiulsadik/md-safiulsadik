@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that you [O men] might believe in God and His Apostle, and might honour Him, and revere Him, and extol His limitless glory from morn to evening.* — **Al-Fath (48:9)**
+> 📖 *Verily, God knows the hidden reality of the heavens and the earth; and God sees all that you do.* — **Al-Hujuraat (49:18)**
 <!-- quran-verse-end -->
 
 ---
