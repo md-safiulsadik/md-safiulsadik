@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And thereupon We caused [other of] Our apostles to follow in their footsteps; and [in the course of time] We caused them to be followed by Jesus, the son of Mary, upon whom We bestowed the Gospel; and in the hearts of those who [truly] followed him We engendered compassion and mercy. But as for monastic asceticism - We did not enjoin it upon them: they invented it themselves out of a desire for God’s goodly acceptance. But then, they did not [always] observe it as it ought to have been observed: and so We granted their recompense unto such of them as had [truly] attained to faith, whereas many of them became iniquitous.* — **Al-Hadid (57:27)**
+> 📖 *O you who have attained to faith! Kill no game while you are in the state of pilgrimage. And whoever of you kills it intentionally, [shall make] amends in cattle equivalent to what he has killed - with two persons of probity giving their judgment thereon- to be brought as an offering to the Ka`bah; or else he may atone for his sin by feeding the needy, or by the equivalent thereof in fasting: [this,] in order that. he taste the full gravity of his deed, [while] God shall have effaced the past. But whoever does it again, God will inflict His retribution on him: for God is almighty, an avenger of evil.* — **Al-Maaida (5:95)**
 <!-- quran-verse-end -->
 
 ---
