@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Why - can they [who deny the truth ever] determine what [the truth] should be?* — **Az-Zukhruf (43:79)**
+> 📖 *But as against this - anyone who repents and attains to faith and does righteous deeds may well [hope to] find himself among those who achieve a happy state [in the life to come].* — **Al-Qasas (28:67)**
 <!-- quran-verse-end -->
 
 ---
