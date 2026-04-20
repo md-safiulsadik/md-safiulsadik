@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHEN GOD'S SUCCOUR comes, and victory,* — **An-Nasr (110:1)**
+> 📖 *And once again: What could make thee conceive what that Judgment Day will be?* — **Al-Infitaar (82:18)**
 <!-- quran-verse-end -->
 
 ---
