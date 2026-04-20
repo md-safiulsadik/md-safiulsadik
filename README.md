@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, verily, man becomes grossly overweening* — **Al-Alaq (96:6)**
+> 📖 *Why - can they [who deny the truth ever] determine what [the truth] should be?* — **Az-Zukhruf (43:79)**
 <!-- quran-verse-end -->
 
 ---
