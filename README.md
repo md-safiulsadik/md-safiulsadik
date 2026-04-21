@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that Day will [men's] hearts be throbbing,* — **An-Naazi'aat (79:8)**
+> 📖 *yet, behold, this [rejection] will indeed become a source of bitter regret for all who deny the truth [of God's revelation] –* — **Al-Haaqqa (69:50)**
 <!-- quran-verse-end -->
 
 ---
