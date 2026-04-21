@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *DOOMED are the hands of him of the glowing countence: and doomed is he!* — **Al-Masad (111:1)**
+> 📖 *And follow [but] that which comes unto thee through revelation from thy Sustainer: for God is truly aware of all that you do, [O men].* — **Al-Ahzaab (33:2)**
 <!-- quran-verse-end -->
 
 ---
