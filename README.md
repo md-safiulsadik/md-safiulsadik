@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *of one-half thereof - or make it a little less than that,* — **Al-Muzzammil (73:3)**
+> 📖 *In [each of] these two [gardens] will two springs gush forth.* — **Ar-Rahmaan (55:66)**
 <!-- quran-verse-end -->
 
 ---
