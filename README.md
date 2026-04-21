@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *yet, behold, this [rejection] will indeed become a source of bitter regret for all who deny the truth [of God's revelation] –* — **Al-Haaqqa (69:50)**
+> 📖 *But if good fortune comes to you from God, such a person is sure to say - just as if there had never been any question of love between you and him -: "Oh, would that I had been with them, and thus had a [share in their] mighty triumph!"* — **An-Nisaa (4:73)**
 <!-- quran-verse-end -->
 
 ---
