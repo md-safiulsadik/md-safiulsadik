@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And follow [but] that which comes unto thee through revelation from thy Sustainer: for God is truly aware of all that you do, [O men].* — **Al-Ahzaab (33:2)**
+> 📖 *On that Day will [men's] hearts be throbbing,* — **An-Naazi'aat (79:8)**
 <!-- quran-verse-end -->
 
 ---
