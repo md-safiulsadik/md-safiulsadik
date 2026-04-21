@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *To happiness [in the life to come] will indeed attain he who attains to purity [in this world],* — **Al-A'laa (87:14)**
+> 📖 *Hence, [O Muhammad,] proclaim thou unto all people the [duty of] pilgrimage: they will come unto thee on foot and on every [kind of] fast mount, coming from every far-away point [on earth],* — **Al-Hajj (22:27)**
 <!-- quran-verse-end -->
 
 ---
