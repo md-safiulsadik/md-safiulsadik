@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In [each of] these two [gardens] will two springs gush forth.* — **Ar-Rahmaan (55:66)**
+> 📖 *To happiness [in the life to come] will indeed attain he who attains to purity [in this world],* — **Al-A'laa (87:14)**
 <!-- quran-verse-end -->
 
 ---
