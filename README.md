@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But if good fortune comes to you from God, such a person is sure to say - just as if there had never been any question of love between you and him -: "Oh, would that I had been with them, and thus had a [share in their] mighty triumph!"* — **An-Nisaa (4:73)**
+> 📖 *Let them, therefore, worship the Sustainer of this Temple;* — **Quraish (106:3)**
 <!-- quran-verse-end -->
 
 ---
