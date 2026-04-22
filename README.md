@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, He let loose upon them great swarms of flying creatures* — **Al-Fil (105:3)**
+> 📖 *Can you ever feel secure that He who is in heaven will not cause the earth to swallow you up when, lo and behold, it begins to quake?* — **Al-Mulk (67:16)**
 <!-- quran-verse-end -->
 
 ---
