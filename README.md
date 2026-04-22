@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[He has sent] an apostle who conveys unto you God's clear messages, so that He might those who have attained to faith and do righteous deeds out of the depths of darkness into the light. And whoever believes in God and does what is right and just, him will He admit into gardens through which running waters flow, therein to abide beyond the count of time: indeed, a most goodly provision will God have granted him!* — **At-Talaaq (65:11)**
+> 📖 *AND [there are hypocrites] who have established a [separate] house of worship in order to create mischief, and to promote apostasy and disunity among the believers, and to provide an outpost for all who from the outset have been warring against God and His Apostle. And they will surely swear [to you, O believers], "We had but the best of intentions!" -the while God [Himself] bears witness that they are lying.* — **At-Tawba (9:107)**
 <!-- quran-verse-end -->
 
 ---
