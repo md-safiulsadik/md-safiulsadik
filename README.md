@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet whenever [God's] guidance came to them [through a prophet,] nothing has ever kept people from believing [in him] save this their objection: "Would God have sent a [mere] mortal man as His apostle?"* — **Al-Israa (17:94)**
+> 📖 *Said He: "Down with you, [and be henceforth] enemies unto one another, having on earth your abode and livelihood for a while:* — **Al-A'raaf (7:24)**
 <!-- quran-verse-end -->
 
 ---
