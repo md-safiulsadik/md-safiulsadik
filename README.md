@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and] neither may the sun overtake the moon, nor can the night usurp the time of day, since all of them float through space [in accordance with Our laws].* — **Yaseen (36:40)**
+> 📖 *who stand in awe of their Sustainer although He is beyond the reach of human perception, and who tremble at the thought of the Last Hour.* — **Al-Anbiyaa (21:49)**
 <!-- quran-verse-end -->
 
 ---
