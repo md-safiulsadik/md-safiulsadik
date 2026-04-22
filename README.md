@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Your only deity is God - He save whom there is no deity, [and whho] embraces all things within His knowledge!"* — **Taa-Haa (20:98)**
+> 📖 *they would like thee to be soft [with them], so that they might be soft [with thee].* — **Al-Qalam (68:9)**
 <!-- quran-verse-end -->
 
 ---
