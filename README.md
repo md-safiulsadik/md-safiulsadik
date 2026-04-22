@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Can you ever feel secure that He who is in heaven will not cause the earth to swallow you up when, lo and behold, it begins to quake?* — **Al-Mulk (67:16)**
+> 📖 *And [so it is that] whenever they are summoned unto God and His Apostle in order that [the divine writ] might judge between them, lo! some of them turn away;* — **An-Noor (24:48)**
 <!-- quran-verse-end -->
 
 ---
