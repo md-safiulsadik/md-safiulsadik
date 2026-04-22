@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who stand in awe of their Sustainer although He is beyond the reach of human perception, and who tremble at the thought of the Last Hour.* — **Al-Anbiyaa (21:49)**
+> 📖 *Your only deity is God - He save whom there is no deity, [and whho] embraces all things within His knowledge!"* — **Taa-Haa (20:98)**
 <!-- quran-verse-end -->
 
 ---
