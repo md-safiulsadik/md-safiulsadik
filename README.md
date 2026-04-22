@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *they would like thee to be soft [with them], so that they might be soft [with thee].* — **Al-Qalam (68:9)**
+> 📖 *but when they have to measure or weigh whatever they owe to others, give less than what is due!* — **Al-Mutaffifin (83:3)**
 <!-- quran-verse-end -->
 
 ---
