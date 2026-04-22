@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but when they have to measure or weigh whatever they owe to others, give less than what is due!* — **Al-Mutaffifin (83:3)**
+> 📖 *Yet whenever [God's] guidance came to them [through a prophet,] nothing has ever kept people from believing [in him] save this their objection: "Would God have sent a [mere] mortal man as His apostle?"* — **Al-Israa (17:94)**
 <!-- quran-verse-end -->
 
 ---
