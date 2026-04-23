@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *having put thee together in whatever form He willed [thee to have]?* — **Al-Infitaar (82:8)**
+> 📖 *He has given freedom to the two great bodies of water, so that they might meet:* — **Ar-Rahmaan (55:19)**
 <!-- quran-verse-end -->
 
 ---
