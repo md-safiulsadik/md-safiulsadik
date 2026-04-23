@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, indeed, in time will thy Sustainer grant thee [what thy heart desires], and thou shalt be well-pleased.* — **Ad-Dhuhaa (93:5)**
+> 📖 *till, when they came upon a valley [full] of ants, an ant exclaimed: “O you ants! Get into your dwellings, lest Solomon and his hosts crush you without [even] being aware [of you]!”* — **An-Naml (27:18)**
 <!-- quran-verse-end -->
 
 ---
