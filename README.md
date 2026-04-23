@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *What will his wealth avail him, and all that he has gained?* — **Al-Masad (111:2)**
+> 📖 *having put thee together in whatever form He willed [thee to have]?* — **Al-Infitaar (82:8)**
 <!-- quran-verse-end -->
 
 ---
