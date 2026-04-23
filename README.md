@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In the name of God, The Most Gracious, The Dispenser of Grace:* — **Al-Faatiha (1:1)**
+> 📖 *And thus did [God] reveal unto His servant whatever He deemed right to reveal.* — **An-Najm (53:10)**
 <!-- quran-verse-end -->
 
 ---
