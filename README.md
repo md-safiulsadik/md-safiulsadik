@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *till, when they came upon a valley [full] of ants, an ant exclaimed: “O you ants! Get into your dwellings, lest Solomon and his hosts crush you without [even] being aware [of you]!”* — **An-Naml (27:18)**
+> 📖 *BUT NAY! I call to witness the sunset's [fleeting] afterglow,* — **Al-Inshiqaaq (84:16)**
 <!-- quran-verse-end -->
 
 ---
