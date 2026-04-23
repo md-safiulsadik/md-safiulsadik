@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said He: "Down with you, [and be henceforth] enemies unto one another, having on earth your abode and livelihood for a while:* — **Al-A'raaf (7:24)**
+> 📖 *And, lo, Satan made all their doings seem goodly to them, and said, "No one can overcome you this day, for, behold, I shall be your protector!" but as soon as the two hosts came within sight of one another, he turned on his heels and said, "Behold, I am not responsible for you: behold, I see something that you do not see: behold, I fear God-for God is severe in retribution!"* — **Al-Anfaal (8:48)**
 <!-- quran-verse-end -->
 
 ---
