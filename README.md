@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[coming upon thee] from the right and from the left, in crowds?* — **Al-Ma'aarij (70:37)**
+> 📖 *Have they, then, never journeyed about the earth, letting their hearts gain wisdom, and causing their ears to hear? Yet, verily, it is not their eyes that have become blind - but blind have become the hearts that are in their breasts!* — **Al-Hajj (22:46)**
 <!-- quran-verse-end -->
 
 ---
