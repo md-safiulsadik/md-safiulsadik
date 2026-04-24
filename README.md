@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Guide us the straight way.* — **Al-Faatiha (1:6)**
+> 📖 *you will indeed have to taste of the tree of deadly fruit,* — **Al-Waaqia (56:52)**
 <!-- quran-verse-end -->
 
 ---
