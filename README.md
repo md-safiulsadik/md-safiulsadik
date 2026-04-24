@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, it is this [kind of man] that thrusts the orphan away,* — **Al-Maa'un (107:2)**
+> 📖 *This, verily, is a reminder: let him who wills, then set out on a way to his Sustainer!* — **Al-Muzzammil (73:19)**
 <!-- quran-verse-end -->
 
 ---
