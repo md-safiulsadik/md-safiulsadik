@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In the end you will indeed, most surely, behold it with the eye of certainty:* — **At-Takaathur (102:7)**
+> 📖 *those who want only to be seen and praised,* — **Al-Maa'un (107:6)**
 <!-- quran-verse-end -->
 
 ---
