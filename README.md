@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *This, verily, is a reminder: let him who wills, then set out on a way to his Sustainer!* — **Al-Muzzammil (73:19)**
+> 📖 *And [thus], indeed, have We sent forth Moses with Our messages [and this Our command]: "Lead thy people out of the depths of darkness into the light, and remind them of the Days of God!" Verily, in this [reminder] there are messages indeed for all who are wholly patient in adversity and deeply grateful [to God].* — **Ibrahim (14:5)**
 <!-- quran-verse-end -->
 
 ---
