@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[then,] O man - thou [that] hast, verily, been toiling towards thy Sustainer in painful toil - then shalt thou meet Him!* — **Al-Inshiqaaq (84:6)**
+> 📖 *wherein there are ordinances of ever-true soundness and clarity.* — **Al-Bayyina (98:3)**
 <!-- quran-verse-end -->
 
 ---
