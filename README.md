@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And they [who have died] are thereupon brought before God, their true Lord Supreme. Oh, verily, His alone is all judgment: and He is the swiftest of all reckoners!* — **Al-An'aam (6:62)**
+> 📖 *[Jacob] answered: "Behold, it grieves me indeed [to think] that you might take him with you, for I dread lest the wolf devour him at a moment when you are heedless of him!"* — **Yusuf (12:13)**
 <!-- quran-verse-end -->
 
 ---
