@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and what will his wealth avail him when he goes down [to his grave]?* — **Al-Lail (92:11)**
+> 📖 *who hears God’s messages when they are conveyed to him, and yet, as though he had not heard them, persists in his haughty disdain! Hence, announce unto him grievous suffering –* — **Al-Jaathiya (45:8)**
 <!-- quran-verse-end -->
 
 ---
