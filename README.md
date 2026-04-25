@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:45)**
+> 📖 *[even thus, O men,] are you bound to move; onward from stage to stage.* — **Al-Inshiqaaq (84:19)**
 <!-- quran-verse-end -->
 
 ---
