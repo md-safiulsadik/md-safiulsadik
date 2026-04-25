@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And Noah] said: "O my people! I am but a plain warner to you, [sent to tell you]* — **Nooh (71:2)**
+> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:45)**
 <!-- quran-verse-end -->
 
 ---
