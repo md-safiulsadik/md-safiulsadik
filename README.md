@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, do not invoke, side by side with God, anything that can neither benefit thee nor harm thee: for, behold, if thou do it, thou wilt surely be among the evildoers!* — **Yunus (10:106)**
+> 📖 *[And Noah] said: "O my people! I am but a plain warner to you, [sent to tell you]* — **Nooh (71:2)**
 <!-- quran-verse-end -->
 
 ---
