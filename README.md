@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *wherein there are ordinances of ever-true soundness and clarity.* — **Al-Bayyina (98:3)**
+> 📖 *They [who will remain without] will call out to those [within], “Were we not with you?” - [to which] the others will answer: “So it was! But you allowed yourselves to succumb to temptation, and you were hesitant [in your faith], and you were doubtful [of resurrection]; and your wishful thinking beguiled you until God’s command came to pass: for, [indeed, your own] deceptive thoughts about God deluded you* — **Al-Hadid (57:14)**
 <!-- quran-verse-end -->
 
 ---
