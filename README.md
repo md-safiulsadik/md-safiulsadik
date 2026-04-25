@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God has promised the believers, both men and women, gardens through which running waters flow, therein to abide, and goodly dwellings in gardens of perpetual bliss: but God's goodly acceptance is the greatest [bliss of all] -for this, this is the triumph supreme!* — **At-Tawba (9:72)**
+> 📖 *THE BESTOWAL from on high [of this revelation] issues from the Most Gracious, the Dis­penser of Grace:* — **Fussilat (41:2)**
 <!-- quran-verse-end -->
 
 ---
