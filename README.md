@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[even thus, O men,] are you bound to move; onward from stage to stage.* — **Al-Inshiqaaq (84:19)**
+> 📖 *And they [who have died] are thereupon brought before God, their true Lord Supreme. Oh, verily, His alone is all judgment: and He is the swiftest of all reckoners!* — **Al-An'aam (6:62)**
 <!-- quran-verse-end -->
 
 ---
