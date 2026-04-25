@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND UNTO [the people of] Madyan [We sent] their brother Shu’ayb who thereupon said: “O my peo­ple! Worship God [alone], and look forward to the Last Day, and do not act wickedly on earth by spreading corruption!”* — **Al-Ankaboot (29:36)**
+> 📖 *Thus, do not invoke, side by side with God, anything that can neither benefit thee nor harm thee: for, behold, if thou do it, thou wilt surely be among the evildoers!* — **Yunus (10:106)**
 <!-- quran-verse-end -->
 
 ---
