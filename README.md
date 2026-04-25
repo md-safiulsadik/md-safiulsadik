@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *in hosts descend in it the angels, bearing divine inspiration by their Sustainer's leave; from all [evil] that may happen* — **Al-Qadr (97:4)**
+> 📖 *"the Sovereign of men,* — **An-Naas (114:2)**
 <!-- quran-verse-end -->
 
 ---
