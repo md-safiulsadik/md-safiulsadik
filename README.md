@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND, INDEED, [already] unto the children of Israel did We vouchsafe revelation, and wisdom, and prophethood; and We provided for them sustenance out of the good things of life, and favoured them above all other people [of their time].* — **Al-Jaathiya (45:16)**
+> 📖 *And after that We said unto the children of Israel: "Dwell now securely on earth - but [remember that] when the promise of the Last Day shall come to pass, We will bring you forth as [parts of] a motley crowd!* — **Al-Israa (17:104)**
 <!-- quran-verse-end -->
 
 ---
