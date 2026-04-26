@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, We have caused it to be a trial for evildoers:* — **As-Saaffaat (37:63)**
+> 📖 *Now as for those who will not believe in God and His Apostle - verily, We have readied a blazing flame for all [such] deniers of the truth!* — **Al-Fath (48:13)**
 <!-- quran-verse-end -->
 
 ---
