@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *enter, then, together with My [other true] servants –* — **Al-Fajr (89:29)**
+> 📖 *or have been reminded [of the truth], and helped by this reminder.* — **Abasa (80:4)**
 <!-- quran-verse-end -->
 
 ---
