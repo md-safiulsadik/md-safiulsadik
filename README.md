@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *However, as for him who turns away, being bent on denying the truth,* — **Al-Ghaashiya (88:23)**
+> 📖 *and man cries out, "What has happened to her?" -* — **Az-Zalzala (99:3)**
 <!-- quran-verse-end -->
 
 ---
