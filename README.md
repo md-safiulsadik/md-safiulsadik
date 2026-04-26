@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ALL THAT IS in the heavens and on earth extols God’s limitless glory: for He alone is almighty, truly wise!* — **Al-Hadid (57:1)**
+> 📖 *And who could be more wicked than he who attributes his own lying inventions to God, or gives the lie to the truth when it comes unto him [through revelation]? Is not hell the [proper] abode for all who [thus] deny the truth?* — **Al-Ankaboot (29:68)**
 <!-- quran-verse-end -->
 
 ---
