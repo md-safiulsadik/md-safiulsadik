@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said he: “Even if I should bring about before thee something that clearly shows the truth?”* — **Ash-Shu'araa (26:30)**
+> 📖 *And pay heed unto God and His Apostle, and do not [allow yourselves to] be at variance with one another, lest you lose heart and your moral strength desert you. And be patient in adversity: for, verily, God is with those who are patient in adversity.* — **Al-Anfaal (8:46)**
 <!-- quran-verse-end -->
 
 ---
