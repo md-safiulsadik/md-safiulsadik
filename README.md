@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And after that We said unto the children of Israel: "Dwell now securely on earth - but [remember that] when the promise of the Last Day shall come to pass, We will bring you forth as [parts of] a motley crowd!* — **Al-Israa (17:104)**
+> 📖 *ALL THAT IS in the heavens and on earth extols God’s limitless glory: for He alone is almighty, truly wise!* — **Al-Hadid (57:1)**
 <!-- quran-verse-end -->
 
 ---
