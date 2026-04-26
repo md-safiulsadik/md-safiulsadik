@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and man cries out, "What has happened to her?" -* — **Az-Zalzala (99:3)**
+> 📖 *Verily, We have caused it to be a trial for evildoers:* — **As-Saaffaat (37:63)**
 <!-- quran-verse-end -->
 
 ---
