@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *This [was God's purpose] -and also [to show] that God renders vain the artful schemes of those who deny the truth.* — **Al-Anfaal (8:18)**
+> 📖 *God - there is no deity save Him! In God then let the believers place their trust.* — **At-Taghaabun (64:13)**
 <!-- quran-verse-end -->
 
 ---
