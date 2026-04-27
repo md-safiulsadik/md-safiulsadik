@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"from all [temptation to evil by] invisible forces as well as men,"* — **An-Naas (114:6)**
+> 📖 *BEHOLD. We sent Noah unto his people. [saying:] "Warn thy people ere grievous suffering befall them!* — **Nooh (71:1)**
 <!-- quran-verse-end -->
 
 ---
