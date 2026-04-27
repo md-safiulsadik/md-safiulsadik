@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Avoid thou, therefore, those who turn away from all remembrance of Us and care for no more than the life of this world,* — **An-Najm (53:29)**
+> 📖 *whereupon He causes hypocrisy to take root in their hearts, [therein to remain] until the Day on which they shall meet Him" - because they have failed to fulfil the vow which they had made unto God, and because they were wont to lie.* — **At-Tawba (9:77)**
 <!-- quran-verse-end -->
 
 ---
