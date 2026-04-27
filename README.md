@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Some faces will on that Day be downcast,* — **Al-Ghaashiya (88:2)**
+> 📖 *and that with thy Sustainer is the beginning and the end [of all that exists];* — **An-Najm (53:42)**
 <!-- quran-verse-end -->
 
 ---
