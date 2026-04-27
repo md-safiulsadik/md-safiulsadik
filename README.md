@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and that with thy Sustainer is the beginning and the end [of all that exists];* — **An-Najm (53:42)**
+> 📖 *And what could make thee conceive what it is, that steep uphill road?* — **Al-Balad (90:12)**
 <!-- quran-verse-end -->
 
 ---
