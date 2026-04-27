@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God - there is no deity save Him! In God then let the believers place their trust.* — **At-Taghaabun (64:13)**
+> 📖 *Avoid thou, therefore, those who turn away from all remembrance of Us and care for no more than the life of this world,* — **An-Najm (53:29)**
 <!-- quran-verse-end -->
 
 ---
