@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what it is, that steep uphill road?* — **Al-Balad (90:12)**
+> 📖 *"from all [temptation to evil by] invisible forces as well as men,"* — **An-Naas (114:6)**
 <!-- quran-verse-end -->
 
 ---
