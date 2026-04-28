@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but unto thy Sustainer turn in patience.* — **Al-Muddaththir (74:7)**
+> 📖 *those who want only to be seen and praised,* — **Al-Maa'un (107:6)**
 <!-- quran-verse-end -->
 
 ---
