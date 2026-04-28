@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and appoint for me, out of my kinsfolk, one who will help me to bear my burden:* — **Taa-Haa (20:29)**
+> 📖 *but unto thy Sustainer turn in patience.* — **Al-Muddaththir (74:7)**
 <!-- quran-verse-end -->
 
 ---
