@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And at the sky, how it is raised aloft?* — **Al-Ghaashiya (88:18)**
+> 📖 *and appoint for me, out of my kinsfolk, one who will help me to bear my burden:* — **Taa-Haa (20:29)**
 <!-- quran-verse-end -->
 
 ---
