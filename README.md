@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *although each sign that We showed them was weigh­tier than the preceding one: and [each time] We took them to task through suffering, so that they might return [to Us].* — **Az-Zukhruf (43:48)**
+> 📖 *See to what they liken thee, [O Prophet, simply] because they have gone astray and are now unable to find a way to the truth]!* — **Al-Furqaan (25:9)**
 <!-- quran-verse-end -->
 
 ---
