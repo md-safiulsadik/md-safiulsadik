@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *See to what they liken thee, [O Prophet, simply] because they have gone astray and are now unable to find a way to the truth]!* — **Al-Furqaan (25:9)**
+> 📖 *He who has created death as well as life, so that He might put you to a test [and thus show] which of you is best in conduct, and [make you realize that] He alone is almighty, truly forgiving.* — **Al-Mulk (67:2)**
 <!-- quran-verse-end -->
 
 ---
