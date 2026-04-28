@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD. We sent Noah unto his people. [saying:] "Warn thy people ere grievous suffering befall them!* — **Nooh (71:1)**
+> 📖 *although each sign that We showed them was weigh­tier than the preceding one: and [each time] We took them to task through suffering, so that they might return [to Us].* — **Az-Zukhruf (43:48)**
 <!-- quran-verse-end -->
 
 ---
