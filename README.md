@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He who has created death as well as life, so that He might put you to a test [and thus show] which of you is best in conduct, and [make you realize that] He alone is almighty, truly forgiving.* — **Al-Mulk (67:2)**
+> 📖 *And at the sky, how it is raised aloft?* — **Al-Ghaashiya (88:18)**
 <!-- quran-verse-end -->
 
 ---
