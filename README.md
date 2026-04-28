@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *those who want only to be seen and praised,* — **Al-Maa'un (107:6)**
+> 📖 *Consider the sky and its wondrous make,* — **Ash-Shams (91:5)**
 <!-- quran-verse-end -->
 
 ---
