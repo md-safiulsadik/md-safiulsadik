@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[It is a triumph of] those who turn [unto God] in repentance [whenever they have sinned], and who worship and praise [Him], and go on and on [seeking His goodly acceptance], and bow down [before Him] and prostrate themselves in adoration, and enjoin the doing of what is right and forbid the doing of what is wrong, and keep to the bounds set by God. And give thou [O Prophet] the glad tiding [of God's promise] to all believers.* — **At-Tawba (9:112)**
+> 📖 *Art thou not aware that it is God who makes the night grow longer by shortening the day, and makes the day grow longer by shortening the night, and that He has made the sun and the moon subservient [to His laws], each running its course for a term set [by Him] and that God is fully aware of all that you do?* — **Luqman (31:29)**
 <!-- quran-verse-end -->
 
 ---
