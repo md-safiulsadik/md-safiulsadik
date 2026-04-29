@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *to those whom God has guided. Follow, then, their guidance, [and] say: "No reward do I ask of you for this [truth]: behold, it is but an admonition unto all mankind!"* — **Al-An'aam (6:90)**
+> 📖 *But as for those who do bad deeds and afterwards repent and [truly] believe-verily, after such repentance thy Sustainer is indeed much forgiving, a dispenser of grace!* — **Al-A'raaf (7:153)**
 <!-- quran-verse-end -->
 
 ---
