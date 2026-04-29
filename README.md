@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And test the orphans [in your charge] until they reach a marriage­able age; then, if you find them to be mature of mind, hand over to them their possessions; and do not consume them by wasteful spending, and in haste, ere they grow up. And let him who is rich abstain entirely [from his ward's property]; and let him who is poor partake thereof in a fair manner. And when you hand over to them their possessions, let there be witnesses on their behalf - although none can take count as God does.* — **An-Nisaa (4:6)**
+> 📖 *Thou canst not find people who [truly] believe in God and the Last Day and [at the same time] love anyone who contends against God and His Apostle - even though they be their fathers, or their sons, or their brothers, or [others of] their kindred. [As for the true believers,] it is they in whose hearts He has inscribed faith, and whom He has strength­ened with inspiration from Himself, and whom [in time] He will admit into gardens through which running waters flow, therein to abide. Well-pleased is God with them, and well-pleased are they with Him. They are God’s partisans: oh, verily, it is they, the partisans of God, who shall attain to a happy state!* — **Al-Mujaadila (58:22)**
 <!-- quran-verse-end -->
 
 ---
