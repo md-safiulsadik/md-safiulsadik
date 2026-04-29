@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He it is who turned out of their homes, at the time of [their] first gathering [for war], such of the followers of earlier revelation as were bent on denying the truth. You did not think [O believers] that they would depart [without resistance] - just as they thought that their strongholds would protect them against God: but God came upon them in a manner which they had not expected, and cast terror into their hearts; [and thus] they destroyed their homes by their own hands as well as the hands of the believers. Learn a lesson, then, O you who are endowed with insight!* — **Al-Hashr (59:2)**
+> 📖 *[It is a triumph of] those who turn [unto God] in repentance [whenever they have sinned], and who worship and praise [Him], and go on and on [seeking His goodly acceptance], and bow down [before Him] and prostrate themselves in adoration, and enjoin the doing of what is right and forbid the doing of what is wrong, and keep to the bounds set by God. And give thou [O Prophet] the glad tiding [of God's promise] to all believers.* — **At-Tawba (9:112)**
 <!-- quran-verse-end -->
 
 ---
