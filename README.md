@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and so God has graced us with His favour, and has warded off from us all suffering through the scorching winds [of frustration].* — **At-Tur (52:27)**
+> 📖 *And test the orphans [in your charge] until they reach a marriage­able age; then, if you find them to be mature of mind, hand over to them their possessions; and do not consume them by wasteful spending, and in haste, ere they grow up. And let him who is rich abstain entirely [from his ward's property]; and let him who is poor partake thereof in a fair manner. And when you hand over to them their possessions, let there be witnesses on their behalf - although none can take count as God does.* — **An-Nisaa (4:6)**
 <!-- quran-verse-end -->
 
 ---
