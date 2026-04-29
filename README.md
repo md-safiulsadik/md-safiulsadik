@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHEN GOD'S SUCCOUR comes, and victory,* — **An-Nasr (110:1)**
+> 📖 *for him shall We make easy the path towards hardship:* — **Al-Lail (92:10)**
 <!-- quran-verse-end -->
 
 ---
