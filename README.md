@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, those who turn their backs [on this mes­sage] after guidance has been vouchsafed to them, [do it because] Satan has embellished their fancies and filled them with false hopes:* — **Muhammad (47:25)**
+> 📖 *[whereas,] behold, the truly virtuous shall drink from a cup flavoured with the calyx of sweet-smelling flowers:* — **Al-Insaan (76:5)**
 <!-- quran-verse-end -->
 
 ---
