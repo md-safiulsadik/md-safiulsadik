@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"He begets not, and neither is He begotten;* — **Al-Ikhlaas (112:3)**
+> 📖 *and then He forms him in accordance with what he is meant to be, and breathes into him of His spirit: and [thus, O men,] He endows you with hearing, and sight, and feelings as well as minds: [yet] how seldom are you grateful!* — **As-Sajda (32:9)**
 <!-- quran-verse-end -->
 
 ---
