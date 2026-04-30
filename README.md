@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[whereas,] behold, the truly virtuous shall drink from a cup flavoured with the calyx of sweet-smelling flowers:* — **Al-Insaan (76:5)**
+> 📖 *Verily, that [hell-fire) is Indeed one of the great [forewarnings] –* — **Al-Muddaththir (74:35)**
 <!-- quran-verse-end -->
 
 ---
