@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[For,] were it Our will, We could indeed turn it into chaff, and you would be left to wonder [and to lament],* — **Al-Waaqia (56:65)**
+> 📖 *“Behold, I found there a woman ruling over them; and she has been given [abundance] of all [good] things, and hers is a mighty throne,* — **An-Naml (27:23)**
 <!-- quran-verse-end -->
 
 ---
