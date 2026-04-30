@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for those who do bad deeds and afterwards repent and [truly] believe-verily, after such repentance thy Sustainer is indeed much forgiving, a dispenser of grace!* — **Al-A'raaf (7:153)**
+> 📖 *"He begets not, and neither is He begotten;* — **Al-Ikhlaas (112:3)**
 <!-- quran-verse-end -->
 
 ---
