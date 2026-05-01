@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, behold, I am going to send a gift to those [people], and await whatever [answer] the envoys bring back.”* — **An-Naml (27:35)**
+> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
 <!-- quran-verse-end -->
 
 ---
