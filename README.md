@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But as for those who were bent on denying the truth, [they will be told:] “Were not My messages conveyed to you? And withal, you gloried in your arrogance, and so you became people lost in sin:* — **Al-Jaathiya (45:31)**
+> 📖 *Hence, behold, I am going to send a gift to those [people], and await whatever [answer] the envoys bring back.”* — **An-Naml (27:35)**
 <!-- quran-verse-end -->
 
 ---
