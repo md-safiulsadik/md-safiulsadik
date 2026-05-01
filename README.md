@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let them, therefore, worship the Sustainer of this Temple;* — **Quraish (106:3)**
+> 📖 *[he, too, will be wel­comed into paradise with the words,] “Peace be unto thee [that art] of those who have attained to right­eousness!”* — **Al-Waaqia (56:91)**
 <!-- quran-verse-end -->
 
 ---
