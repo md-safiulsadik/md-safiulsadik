@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[he, too, will be wel­comed into paradise with the words,] “Peace be unto thee [that art] of those who have attained to right­eousness!”* — **Al-Waaqia (56:91)**
+> 📖 *and provides for him in a manner beyond all expectation; and for everyone who places his trust in God He [alone] is enough. Verily, God always attains to His purpose: [and] indeed, unto everything has God appointed its [term and] measure.* — **At-Talaaq (65:3)**
 <!-- quran-verse-end -->
 
 ---
