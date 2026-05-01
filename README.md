@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And tell them what happens to him to whom We vouchsafe Our messages and who then discards them: Satan catches up with him, and he strays, like so many others, into grievous error.* — **Al-A'raaf (7:175)**
+> 📖 *AND [remember the time] when Abraham spoke [thus]: "O my Sustainer! Make this land secure, and preserve me and my children from ever worshipping idols -* — **Ibrahim (14:35)**
 <!-- quran-verse-end -->
 
 ---
