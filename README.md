@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“Behold, I found there a woman ruling over them; and she has been given [abundance] of all [good] things, and hers is a mighty throne,* — **An-Naml (27:23)**
+> 📖 *those who want only to be seen and praised,* — **Al-Maa'un (107:6)**
 <!-- quran-verse-end -->
 
 ---
