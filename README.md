@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [remember the time] when Abraham spoke [thus]: "O my Sustainer! Make this land secure, and preserve me and my children from ever worshipping idols -* — **Ibrahim (14:35)**
+> 📖 *But as for those who were bent on denying the truth, [they will be told:] “Were not My messages conveyed to you? And withal, you gloried in your arrogance, and so you became people lost in sin:* — **Al-Jaathiya (45:31)**
 <!-- quran-verse-end -->
 
 ---
