@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *those who want only to be seen and praised,* — **Al-Maa'un (107:6)**
+> 📖 *that [which he conveys to you] is but [a divine] inspiration with which he is being inspired –* — **An-Najm (53:4)**
 <!-- quran-verse-end -->
 
 ---
