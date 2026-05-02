@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *yet, behold, this [rejection] will indeed become a source of bitter regret for all who deny the truth [of God's revelation] –* — **Al-Haaqqa (69:50)**
+> 📖 *Thus it is, because God alone is the Ultimate Truth, so that all that men invoke instead of Him is sheer falsehood; and because God alone is exalted, truly great!* — **Luqman (31:30)**
 <!-- quran-verse-end -->
 
 ---
