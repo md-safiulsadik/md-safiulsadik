@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thereupon [his brother’s son] Lot came to believe in him and said: “Verily, I [too] shall forsake the domain of evil [and turn] to my Sustainer: for, verily, He alone is almighty, truly wise!”* — **Al-Ankaboot (29:26)**
+> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
 <!-- quran-verse-end -->
 
 ---
