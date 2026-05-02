@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
+> 📖 *whereas, whenever He tries him by straitening his means of livelihood, he says, "My Sustainer has disgraced me!"* — **Al-Fajr (89:16)**
 <!-- quran-verse-end -->
 
 ---
