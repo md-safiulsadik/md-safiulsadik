@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus it is, because God alone is the Ultimate Truth, so that all that men invoke instead of Him is sheer falsehood; and because God alone is exalted, truly great!* — **Luqman (31:30)**
+> 📖 *and caused them to become like a field of grain that has been eaten down to stubble* — **Al-Fil (105:5)**
 <!-- quran-verse-end -->
 
 ---
