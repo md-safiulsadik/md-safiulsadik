@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and caused them to become like a field of grain that has been eaten down to stubble* — **Al-Fil (105:5)**
+> 📖 *Verily, those who contend against God and His Apostle - it is they who [on Judgment Day] shall find themselves among the most abject.* — **Al-Mujaadila (58:20)**
 <!-- quran-verse-end -->
 
 ---
