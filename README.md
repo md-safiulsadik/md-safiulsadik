@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, those who contend against God and His Apostle - it is they who [on Judgment Day] shall find themselves among the most abject.* — **Al-Mujaadila (58:20)**
+> 📖 *HAVE THE STORIES of those who, in earlier times, refused to acknowledge the truth never yet come within your ken? [They denied it -] and so they had to taste the evil outcome of their own doings, with [more] grievous suffering awaiting them [in the life to come]:* — **At-Taghaabun (64:5)**
 <!-- quran-verse-end -->
 
 ---
