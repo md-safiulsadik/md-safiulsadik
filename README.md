@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[All] this is God’s creation: show Me, then, what others than He may have created! Nay, but the evildoers are obviously lost in error!* — **Luqman (31:11)**
+> 📖 *and when the stars are scattered,* — **Al-Infitaar (82:2)**
 <!-- quran-verse-end -->
 
 ---
