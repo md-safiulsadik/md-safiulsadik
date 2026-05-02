@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas, whenever He tries him by straitening his means of livelihood, he says, "My Sustainer has disgraced me!"* — **Al-Fajr (89:16)**
+> 📖 *[Or do they deny the existence of God?] Have they themselves been created without anything [that might have caused their creation]? or were they, perchance, their own creators?* — **At-Tur (52:35)**
 <!-- quran-verse-end -->
 
 ---
