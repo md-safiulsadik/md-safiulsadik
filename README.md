@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
+> 📖 *Say: "Shall I tell you of better things than those [earthly joys]? For the God-conscious there are, with their Sustainer, gardens through which running waters flow, therein to abide, and spouses pure, and God's goodly acceptance." And God sees all that is in [the hearts of] His servants -* — **Aal-i-Imraan (3:15)**
 <!-- quran-verse-end -->
 
 ---
