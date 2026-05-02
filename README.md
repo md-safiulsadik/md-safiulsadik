@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *With thy Sustainer, on that Day, the journey's end will be!* — **Al-Qiyaama (75:12)**
+> 📖 *Thereupon [his brother’s son] Lot came to believe in him and said: “Verily, I [too] shall forsake the domain of evil [and turn] to my Sustainer: for, verily, He alone is almighty, truly wise!”* — **Al-Ankaboot (29:26)**
 <!-- quran-verse-end -->
 
 ---
