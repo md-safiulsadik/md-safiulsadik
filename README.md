@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the stars are scattered,* — **Al-Infitaar (82:2)**
+> 📖 *With thy Sustainer, on that Day, the journey's end will be!* — **Al-Qiyaama (75:12)**
 <!-- quran-verse-end -->
 
 ---
