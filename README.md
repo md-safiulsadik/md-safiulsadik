@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Many people think that they have bestowed a favour upon thee [O Prophet] by having surrendered [to thee]. Say thou: “Deem not your surrender a favour unto me: nay, but it is God who bestows a favour upon you by showing you the way to faith - if you are true to your word!”* — **Al-Hujuraat (49:17)**
+> 📖 *[All] this is God’s creation: show Me, then, what others than He may have created! Nay, but the evildoers are obviously lost in error!* — **Luqman (31:11)**
 <!-- quran-verse-end -->
 
 ---
