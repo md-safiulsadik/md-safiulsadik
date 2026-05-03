@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].* — **Al-Kawthar (108:2)**
+> 📖 *"O our Sustainer! Behold, I have settled some of my offspring in a valley in which there is no arable land, close to Thy sanctified Temple, so that, O our Sustainer, they might devote themselves to prayer: cause Thou, therefore, people's hearts to incline towards them and grant them fruitful sustenance, so that they might have cause to be grateful.* — **Ibrahim (14:37)**
 <!-- quran-verse-end -->
 
 ---
