@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Await, then, in all patience thy Sustainer's judgment, and pay no heed to any of them, who is a wilful sinner or an ingrate;* — **Al-Insaan (76:24)**
+> 📖 *O YOU who have attained to faith! Bow down and prostrate yourselves, and worship your Sustainer [alone], and do good, so that you might attain to a happy state!* — **Al-Hajj (22:77)**
 <!-- quran-verse-end -->
 
 ---
