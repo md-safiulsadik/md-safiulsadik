@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Bow down and prostrate yourselves, and worship your Sustainer [alone], and do good, so that you might attain to a happy state!* — **Al-Hajj (22:77)**
+> 📖 *rushing to assault at morn,* — **Al-Aadiyaat (100:3)**
 <!-- quran-verse-end -->
 
 ---
