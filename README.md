@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *save for such [of them] as repent ere you [O believers] become more powerful than they: for you must know that God is much-forgiving, a dispenser of grace.* — **Al-Maaida (5:34)**
+> 📖 *the Day when no friend shall be of the least avail to his friend, and when none shall be succoured* — **Ad-Dukhaan (44:41)**
 <!-- quran-verse-end -->
 
 ---
