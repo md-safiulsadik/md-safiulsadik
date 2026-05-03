@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *rushing to assault at morn,* — **Al-Aadiyaat (100:3)**
+> 📖 *Thus, He let loose upon them great swarms of flying creatures* — **Al-Fil (105:3)**
 <!-- quran-verse-end -->
 
 ---
