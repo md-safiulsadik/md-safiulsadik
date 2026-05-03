@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Taste it - thou who [on earth] hast considered thyself so mighty, so noble!* — **Ad-Dukhaan (44:49)**
+> 📖 *Await, then, in all patience thy Sustainer's judgment, and pay no heed to any of them, who is a wilful sinner or an ingrate;* — **Al-Insaan (76:24)**
 <!-- quran-verse-end -->
 
 ---
