@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *A fire kindled by God,* — **Al-Humaza (104:6)**
+> 📖 *save for such [of them] as repent ere you [O believers] become more powerful than they: for you must know that God is much-forgiving, a dispenser of grace.* — **Al-Maaida (5:34)**
 <!-- quran-verse-end -->
 
 ---
