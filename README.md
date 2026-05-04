@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Your Sustainer is fully aware of what you are [and what you deserve]: if He so wills, he will bestow [His] grace upon you; and if He so wills, He will chastise you. Hence, We have not sent thee [unto men, O Prophet,] with the power to determine their fate,* — **Al-Israa (17:54)**
+> 📖 *unless it be to an apostle whom He has been pleased to elect [there for]: and then He sends forth [the forces of heaven] to watch over him in whatever lies open before him and in what is beyond his ken –* — **Al-Jinn (72:27)**
 <!-- quran-verse-end -->
 
 ---
