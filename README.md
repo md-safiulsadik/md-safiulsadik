@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHEN GOD'S SUCCOUR comes, and victory,* — **An-Nasr (110:1)**
+> 📖 *Verily, God knows whatever it is that men invoke instead of Him for He alone is almighty, truly wise.* — **Al-Ankaboot (29:42)**
 <!-- quran-verse-end -->
 
 ---
