@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Oh, would that this [death of mine] had been the end of me!* — **Al-Haaqqa (69:27)**
+> 📖 *They have made their oaths a cover [for their falseness], and thus they turn others away from the Path of God. Evil indeed is all that they are wont to do:* — **Al-Munaafiqoon (63:2)**
 <!-- quran-verse-end -->
 
 ---
