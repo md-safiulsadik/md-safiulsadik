@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND REMEMBER that brother of [the tribe of] Ad, how - seeing that [other] warnings had already come and gone within his own knowledge as well as in times beyond his ken - he warned his people [who lived] among those sand-dunes: “Worship none but God! Verily, I fear lest suffering befall you on an awesome day!”* — **Al-Ahqaf (46:21)**
+> 📖 *Now [among the best of righteous deeds which] We have enjoined upon man [is] goodness towards his parents; yet [even so,] should they endeavour to make thee ascribe divinity, side by side with Me, to something which thy mind cannot accept [as divine], obey then, not: [for] it is unto Me that you all must return, whereupon I shall make you [truly] understand [the right and wrong of] all that you were doing [in life].* — **Al-Ankaboot (29:8)**
 <!-- quran-verse-end -->
 
 ---
