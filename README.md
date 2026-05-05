@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHEN THE SKY is cleft asunder,* — **Al-Infitaar (82:1)**
+> 📖 *Nay, but they [who lack inner certainty] are but Dying with their doubts.* — **Ad-Dukhaan (44:9)**
 <!-- quran-verse-end -->
 
 ---
