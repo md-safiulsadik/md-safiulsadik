@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *although the life to come is better and more enduring.* — **Al-A'laa (87:17)**
+> 📖 *GOD IS HE save whom there is no deity: the One who knows all that is beyond the reach of a created being’s perception, as well as all that can be wit­nessed by a creature’s senses or mind: He, the Most Gracious, the Dispenser of Grace.* — **Al-Hashr (59:22)**
 <!-- quran-verse-end -->
 
 ---
