@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O MEN! If you are in doubt as to the [truth of] resurrection, [remember that,] verily, We have created [every one of] you out of dust, then out of a drop of sperm, then out of a germ-cell, then out of an embryonic lump complete [in itself] and yet incom­plete so that We might make [your origin] clear unto you. And whatever We will [to be born] We cause to rest in the [mothers’] wombs for a term set [by Us], and then We bring you forth as infants and [allow you to live] so that [some of] you might attain to maturity: for among you are such as are caused to die [in childhood], just as many a one of you is reduced in old age to a most abject state, ceasing to know anything of what he once knew so well. And [if, O man, thou art still in doubt as to resur­rection, consider this:] thou canst see the earth dry and lifeless - and [suddenly,] when We send down waters upon it, it stirs and swells and puts forth every kind of lovely plant!* — **Al-Hajj (22:5)**
+> 📖 *AND REMEMBER that brother of [the tribe of] Ad, how - seeing that [other] warnings had already come and gone within his own knowledge as well as in times beyond his ken - he warned his people [who lived] among those sand-dunes: “Worship none but God! Verily, I fear lest suffering befall you on an awesome day!”* — **Al-Ahqaf (46:21)**
 <!-- quran-verse-end -->
 
 ---
