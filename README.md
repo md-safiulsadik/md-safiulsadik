@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but they [who lack inner certainty] are but Dying with their doubts.* — **Ad-Dukhaan (44:9)**
+> 📖 *together with his wife, that carrier of evil tales,* — **Al-Masad (111:4)**
 <!-- quran-verse-end -->
 
 ---
