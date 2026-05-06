@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [that], when the Qur’an is read unto them, they do not fall down in prostration?* — **Al-Inshiqaaq (84:21)**
+> 📖 *VERILY, it is God alone who will decide between men on Resurrection Day with regard to all on which they were wont to differ.* — **As-Sajda (32:25)**
 <!-- quran-verse-end -->
 
 ---
