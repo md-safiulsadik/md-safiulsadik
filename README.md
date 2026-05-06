@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *together with his wife, that carrier of evil tales,* — **Al-Masad (111:4)**
+> 📖 *and [that], when the Qur’an is read unto them, they do not fall down in prostration?* — **Al-Inshiqaaq (84:21)**
 <!-- quran-verse-end -->
 
 ---
