@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, when the sacred months are over, slay those who ascribe divinity to aught beside God wherever you may come upon them, and take them captive, and besiege them, and lie in wait for them at every conceivable place! Yet if they repent, and take to prayer, and render the purifying dues, let them go their way: for, behold, God is much forgiving, a dispenser of grace.* — **At-Tawba (9:5)**
+> 📖 *And [then,] the twilight of death brings with it the [full] truth that [very thing, O man,] from which thou wouldst always look away! –* — **Qaaf (50:19)**
 <!-- quran-verse-end -->
 
 ---
