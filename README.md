@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, long ago has Our word gone forth unto Our servants, the message- bearers,* — **As-Saaffaat (37:171)**
+> 📖 *And then they cast lots, and he was the one who lost;* — **As-Saaffaat (37:141)**
 <!-- quran-verse-end -->
 
 ---
