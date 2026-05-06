@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [then,] the twilight of death brings with it the [full] truth that [very thing, O man,] from which thou wouldst always look away! –* — **Qaaf (50:19)**
+> 📖 *and to establish them securely on earth, and to let Pharaoh and Haman and their hosts experience through those [children of Israel] the very thing against which they sought to protect themselves.* — **Al-Qasas (28:6)**
 <!-- quran-verse-end -->
 
 ---
