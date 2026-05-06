@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, it is God alone who will decide between men on Resurrection Day with regard to all on which they were wont to differ.* — **As-Sajda (32:25)**
+> 📖 *for, long ago has Our word gone forth unto Our servants, the message- bearers,* — **As-Saaffaat (37:171)**
 <!-- quran-verse-end -->
 
 ---
