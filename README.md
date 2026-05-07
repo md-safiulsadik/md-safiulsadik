@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND DO NOT think that God is unaware of what the evildoers are doing: He but grants them respite until the Day when their eyes will stare in horror,* — **Ibrahim (14:42)**
+> 📖 *Now these [people] deem it strange that a warner should have come unto them from their own midst - and [so] the deniers of the truth are saying: “A [mere] spellbinder is he, a liar!* — **Saad (38:4)**
 <!-- quran-verse-end -->
 
 ---
