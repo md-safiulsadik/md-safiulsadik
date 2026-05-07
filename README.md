@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
+> 📖 *[And] have they created the heavens and the earth? Nay, but they have no certainty of anything!* — **At-Tur (52:36)**
 <!-- quran-verse-end -->
 
 ---
