@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now these [people] deem it strange that a warner should have come unto them from their own midst - and [so] the deniers of the truth are saying: “A [mere] spellbinder is he, a liar!* — **Saad (38:4)**
+> 📖 *unless he be of those who attain to faith, and do good works, and enjoin upon one another the keeping to truth, and enjoin upon one another patience in adversity.* — **Al-Asr (103:3)**
 <!-- quran-verse-end -->
 
 ---
