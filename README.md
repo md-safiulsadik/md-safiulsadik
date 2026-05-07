@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *All this [is ordained by God]; and if one houours God’s sacred commandments, it will redound to his own good in his Sustainer’s sight. And all [kinds of] cattle have been made lawful to you [for sacrifice and food], save what is mentioned to you [as forbidden]. Shun, then, [all that God has forbidden and, most of all,] the loathsome evil of idolatrous beliefs and practices; and shun every word that is untrue,* — **Al-Hajj (22:30)**
+> 📖 *[But,] verily, they who attain to faith and do righteous deeds shall [in the life to come] have gardens through which running waters flow - that triumph most great!* — **Al-Burooj (85:11)**
 <!-- quran-verse-end -->
 
 ---
