@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND, INDEED, We have propounded unto men all kinds of parables in this Qur’an. But thus it is: if thou approach them with any [such] message, those who are bent on denying the truth are sure to say, “You are but making false claims!”* — **Ar-Room (30:58)**
+> 📖 *or the feeding, upon a day of [one's own] hunger,* — **Al-Balad (90:14)**
 <!-- quran-verse-end -->
 
 ---
