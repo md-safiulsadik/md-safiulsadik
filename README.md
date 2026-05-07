@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But,] verily, they who attain to faith and do righteous deeds shall [in the life to come] have gardens through which running waters flow - that triumph most great!* — **Al-Burooj (85:11)**
+> 📖 *“Be, then, conscious of God, and pay heed unto me,* — **Ash-Shu'araa (26:150)**
 <!-- quran-verse-end -->
 
 ---
