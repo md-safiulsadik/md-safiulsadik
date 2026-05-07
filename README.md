@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *or the feeding, upon a day of [one's own] hunger,* — **Al-Balad (90:14)**
+> 📖 *All this [is ordained by God]; and if one houours God’s sacred commandments, it will redound to his own good in his Sustainer’s sight. And all [kinds of] cattle have been made lawful to you [for sacrifice and food], save what is mentioned to you [as forbidden]. Shun, then, [all that God has forbidden and, most of all,] the loathsome evil of idolatrous beliefs and practices; and shun every word that is untrue,* — **Al-Hajj (22:30)**
 <!-- quran-verse-end -->
 
 ---
