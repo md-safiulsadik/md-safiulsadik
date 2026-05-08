@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Night of Destiny is better than a thousand months:* — **Al-Qadr (97:3)**
+> 📖 *this, because they cut themselves off from God and His Apostle: and as for him who cuts himself off from God and His Apostle - verily, God is severe in retribution!* — **Al-Hashr (59:4)**
 <!-- quran-verse-end -->
 
 ---
