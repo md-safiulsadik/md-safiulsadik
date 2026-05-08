@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And all shall be judged on that Day,] so that God may requite every human being for all that he has earned [in life]: verily, God is swift in reckoning!* — **Ibrahim (14:51)**
+> 📖 *The Night of Destiny is better than a thousand months:* — **Al-Qadr (97:3)**
 <!-- quran-verse-end -->
 
 ---
