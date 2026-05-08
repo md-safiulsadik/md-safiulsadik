@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whenever he believes himself to be self-sufficient:* — **Al-Alaq (96:7)**
+> 📖 *[And God] will say: "Join those hosts of invisible beings and humans who have gone before you into the fire!" [And] every time a host enters [the fire], it will curse its fellow-host -so much so that, when they all shall have passed into it, one after another, the last of them will speak [thus] of the first of them: "O our Sustainer! It is they who have led us astray: give, them, therefore, double suffering through fire!" He, will reply: "Every one of you deserves double suffering -but you know it not."* — **Al-A'raaf (7:38)**
 <!-- quran-verse-end -->
 
 ---
