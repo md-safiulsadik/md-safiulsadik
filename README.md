@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *this, because they cut themselves off from God and His Apostle: and as for him who cuts himself off from God and His Apostle - verily, God is severe in retribution!* — **Al-Hashr (59:4)**
+> 📖 *Consider the day as it reveals the world,* — **Ash-Shams (91:3)**
 <!-- quran-verse-end -->
 
 ---
