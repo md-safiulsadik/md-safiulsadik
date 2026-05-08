@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] have they created the heavens and the earth? Nay, but they have no certainty of anything!* — **At-Tur (52:36)**
+> 📖 *[But whatever they may say or do,] repel the evil [which they commit] with something that is bet­ter: We are fully aware of what they attribute [to Us].* — **Al-Muminoon (23:96)**
 <!-- quran-verse-end -->
 
 ---
