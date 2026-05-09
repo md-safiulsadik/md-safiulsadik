@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They aim to extinguish God's light with their utterances: but God has willed to spread His light in all its fullness, however hateful this may be to all who deny the truth* — **As-Saff (61:8)**
+> 📖 *sparks of fire striking,* — **Al-Aadiyaat (100:2)**
 <!-- quran-verse-end -->
 
 ---
