@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Pay heed, then, unto God, and pay heed unto the Apostle; and if you turn away, [know that] Our Apostle's only duty is a clear delivery of this message:* — **At-Taghaabun (64:12)**
+> 📖 *[and] there will be thrones [of happiness] raised high,* — **Al-Ghaashiya (88:13)**
 <!-- quran-verse-end -->
 
 ---
