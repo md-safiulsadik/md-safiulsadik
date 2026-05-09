@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thee alone do we worship; and unto Thee alone do we turn for aid.* — **Al-Faatiha (1:5)**
+> 📖 *AND ON WHATEVER you may differ, [O believers,] the verdict thereon rests with God. [Say, therefore:] “Such is God, my Sustainer: in Him have I placed my trust, and unto Him do I always turn!”* — **Ash-Shura (42:10)**
 <!-- quran-verse-end -->
 
 ---
