@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God does not like any evil to be mentioned openly, unless it be by him who has been wronged (thereby) And God is indeed all-hearing, all-knowing,* — **An-Nisaa (4:148)**
+> 📖 *They aim to extinguish God's light with their utterances: but God has willed to spread His light in all its fullness, however hateful this may be to all who deny the truth* — **As-Saff (61:8)**
 <!-- quran-verse-end -->
 
 ---
