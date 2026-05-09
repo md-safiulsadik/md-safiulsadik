@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND ON WHATEVER you may differ, [O believers,] the verdict thereon rests with God. [Say, therefore:] “Such is God, my Sustainer: in Him have I placed my trust, and unto Him do I always turn!”* — **Ash-Shura (42:10)**
+> 📖 *[KNOW,] THEN, that if they [who have heard Our call] keep firmly to the [right] path, We shall certainly shower them with blessings abundant,* — **Al-Jinn (72:16)**
 <!-- quran-verse-end -->
 
 ---
