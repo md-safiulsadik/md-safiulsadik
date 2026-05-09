@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And withal, they were not enjoined aught but that they should worship God, sincere in their faith in Him alone, turning away from all that is false; and that they should be constant in prayer; and that they should spend in charity: for this is a moral law endowed with ever-true soundness and clarity.* — **Al-Bayyina (98:5)**
+> 📖 *And what could make thee conceive what that crushing torment will be?* — **Al-Humaza (104:5)**
 <!-- quran-verse-end -->
 
 ---
