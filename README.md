@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And he marched westwards] till, when he came to the setting of the sun, it appeared to him that it was setting in a dark, turbid sea; and nearby he found a people [given to every kind of wrongdoing]. We said: "O thou Two-Horned One! Thou mayest either cause [them] to suffer or treat them with kindness!"* — **Al-Kahf (18:86)**
+> 📖 *as sustenance appor­tioned to men; and by [all] this We bring dead land to life: [and] even so will be [man’s] coming-forth from death.* — **Qaaf (50:11)**
 <!-- quran-verse-end -->
 
 ---
