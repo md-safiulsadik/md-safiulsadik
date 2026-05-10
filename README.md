@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[KNOW,] THEN, that if they [who have heard Our call] keep firmly to the [right] path, We shall certainly shower them with blessings abundant,* — **Al-Jinn (72:16)**
+> 📖 *Yet [it does happen that] when people become aware of [an occasion for] worldly gain or a passing delight, they rush headlong towards it, and leave thee standing [and preaching]. Say: "That which is with God is far better than all passing delight and all gain! And God is the best of providers!"* — **Al-Jumu'a (62:11)**
 <!-- quran-verse-end -->
 
 ---
