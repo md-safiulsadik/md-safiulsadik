@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and so We made them a thing of the past, and an example to those who would come after them.* — **Az-Zukhruf (43:56)**
+> 📖 *Said He: “O Iblis! What has kept thee from prostrating thyself before that [being] which I have created with My hands? Art thou too proud [to bow down before another created being], or art thou of those who think [only] of themselves as high?”* — **Saad (38:75)**
 <!-- quran-verse-end -->
 
 ---
