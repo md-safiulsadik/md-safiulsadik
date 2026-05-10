@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[even thus, O men,] are you bound to move; onward from stage to stage.* — **Al-Inshiqaaq (84:19)**
+> 📖 *and so We made them a thing of the past, and an example to those who would come after them.* — **Az-Zukhruf (43:56)**
 <!-- quran-verse-end -->
 
 ---
