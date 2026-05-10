@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And he who forsakes the domain of evil for the sake of God shall find on earth many a lonely road, as well as life abundant. And if anyone leaves his home, fleeing from evil unto God and His Apostle, and then death overtakes him - his reward is ready with God: for God iss indeed much-forgiving, a dis­penser of grace.* — **An-Nisaa (4:100)**
+> 📖 *[even thus, O men,] are you bound to move; onward from stage to stage.* — **Al-Inshiqaaq (84:19)**
 <!-- quran-verse-end -->
 
 ---
