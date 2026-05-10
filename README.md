@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"He begets not, and neither is He begotten;* — **Al-Ikhlaas (112:3)**
+> 📖 *[But God said:] "Now? -when ever before this thou hast been rebelling [against Us], and hast been among those who spread corruption?* — **Yunus (10:91)**
 <!-- quran-verse-end -->
 
 ---
