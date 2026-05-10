@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But God said:] "Now? -when ever before this thou hast been rebelling [against Us], and hast been among those who spread corruption?* — **Yunus (10:91)**
+> 📖 *And he who forsakes the domain of evil for the sake of God shall find on earth many a lonely road, as well as life abundant. And if anyone leaves his home, fleeing from evil unto God and His Apostle, and then death overtakes him - his reward is ready with God: for God iss indeed much-forgiving, a dis­penser of grace.* — **An-Nisaa (4:100)**
 <!-- quran-verse-end -->
 
 ---
