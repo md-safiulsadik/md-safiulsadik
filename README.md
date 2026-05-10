@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said He: “O Iblis! What has kept thee from prostrating thyself before that [being] which I have created with My hands? Art thou too proud [to bow down before another created being], or art thou of those who think [only] of themselves as high?”* — **Saad (38:75)**
+> 📖 *[And he marched westwards] till, when he came to the setting of the sun, it appeared to him that it was setting in a dark, turbid sea; and nearby he found a people [given to every kind of wrongdoing]. We said: "O thou Two-Horned One! Thou mayest either cause [them] to suffer or treat them with kindness!"* — **Al-Kahf (18:86)**
 <!-- quran-verse-end -->
 
 ---
