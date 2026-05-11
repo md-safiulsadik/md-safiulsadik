@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *TRULY, to a happy state shall attain the believers:* — **Al-Muminoon (23:1)**
+> 📖 *so that He might reward, out of His bounty, those who have attained to faith and done righteous deeds. Verily, He does not love those who refuse to acknowledge the truth –* — **Ar-Room (30:45)**
 <!-- quran-verse-end -->
 
 ---
