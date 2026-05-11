@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Why do you say one thing and do another?* — **As-Saff (61:2)**
+> 📖 *"I do not worship that which you worship,* — **Al-Kaafiroon (109:2)**
 <!-- quran-verse-end -->
 
 ---
