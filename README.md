@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *as sustenance appor­tioned to men; and by [all] this We bring dead land to life: [and] even so will be [man’s] coming-forth from death.* — **Qaaf (50:11)**
+> 📖 *TRULY, to a happy state shall attain the believers:* — **Al-Muminoon (23:1)**
 <!-- quran-verse-end -->
 
 ---
