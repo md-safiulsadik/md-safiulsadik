@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that He might reward, out of His bounty, those who have attained to faith and done righteous deeds. Verily, He does not love those who refuse to acknowledge the truth –* — **Ar-Room (30:45)**
+> 📖 *[MANY] WAYS of life have passed away before your time. Go, then, about the earth and behold what happened in the end to those who gave the lie to the truth:* — **Aal-i-Imraan (3:137)**
 <!-- quran-verse-end -->
 
 ---
