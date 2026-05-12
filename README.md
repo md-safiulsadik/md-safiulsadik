@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For [even] before thy time, [O Muhammad,] We never sent [as Our apostles] any but [mortal] men, whom We inspired - hence, [tell the deniers of the truth,] “If you do not know this, ask the followers of earlier revelation”* — **Al-Anbiyaa (21:7)**
+> 📖 *Behold, as for those who call God’s messages in question without having any evidence therefore in their hearts is nothing but overweening self-con­ceit, which they will never be able to satisfy: seek thou, then, refuge with God - for, verily, He alone is all-hearing, all-seeing!* — **Ghafir (40:56)**
 <!-- quran-verse-end -->
 
 ---
