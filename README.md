@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, as for those who call God’s messages in question without having any evidence therefore in their hearts is nothing but overweening self-con­ceit, which they will never be able to satisfy: seek thou, then, refuge with God - for, verily, He alone is all-hearing, all-seeing!* — **Ghafir (40:56)**
+> 📖 *That requital of God’s enemies will be the fire [of the hereafter]: in it will they have an abode of immeasurable duration as an outcome of their having knowingly rejected Our messages.* — **Fussilat (41:28)**
 <!-- quran-verse-end -->
 
 ---
