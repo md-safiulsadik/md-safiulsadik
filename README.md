@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.* — **Al-Qadr (97:1)**
+> 📖 *and then We create out of the drop of sperm a germ-cell, and then We create out of the germ-cell an embryonic lump, and then We create within the embryonic lump bones, and then We clothe the bones with flesh - and then We bring [all] this into being as a new creation: hallowed, therefore, is God, the best of artisans!* — **Al-Muminoon (23:14)**
 <!-- quran-verse-end -->
 
 ---
