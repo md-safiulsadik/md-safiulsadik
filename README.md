@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Read - for thy Sustainer is the Most Bountiful One* — **Al-Alaq (96:3)**
+> 📖 *“[And now] put thy hand into thy bosom: it will come forth [shining] white, without blemish. And [henceforth] hold thine arm close to thyself, free of all fear. “These, then, shall be the two signs [of thy bearing a message] from thy Sustainer unto Pharaoh and his great ones - for, behold, they are people depraved!”* — **Al-Qasas (28:32)**
 <!-- quran-verse-end -->
 
 ---
