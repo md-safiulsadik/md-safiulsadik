@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but all the while God encompasses them [with His knowledge and might] without their being aware of it.* — **Al-Burooj (85:20)**
+> 📖 *[Hence,] O you who have attained to faith, pay heed unto God and His Apostle, and do not turn away from Him now that you hear [His message];* — **Al-Anfaal (8:20)**
 <!-- quran-verse-end -->
 
 ---
