@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *shall find himself in a happy' state of life;* — **Al-Qaari'a (101:7)**
+> 📖 *What, then, [O man,] could henceforth cause thee to give the lie to this moral law?* — **At-Tin (95:7)**
 <!-- quran-verse-end -->
 
 ---
