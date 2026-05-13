@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *“[And now] put thy hand into thy bosom: it will come forth [shining] white, without blemish. And [henceforth] hold thine arm close to thyself, free of all fear. “These, then, shall be the two signs [of thy bearing a message] from thy Sustainer unto Pharaoh and his great ones - for, behold, they are people depraved!”* — **Al-Qasas (28:32)**
+> 📖 *so much so that they came to think, as you [once] thought, that God would never [again] send forth anyone [as His apostle].* — **Al-Jinn (72:7)**
 <!-- quran-verse-end -->
 
 ---
