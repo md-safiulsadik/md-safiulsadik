@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *What, then, [O man,] could henceforth cause thee to give the lie to this moral law?* — **At-Tin (95:7)**
+> 📖 *Let, then, the deniers of the truth have their will: let them have their will for a little while.* — **At-Taariq (86:17)**
 <!-- quran-verse-end -->
 
 ---
