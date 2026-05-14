@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Such, behold, will in truth be the [confusion and] mutual wrangling of the people of the fire!* — **Saad (38:64)**
+> 📖 *Say: “Our Sustainer will bring us all together [on Judgment Day], and then He will lay open the truth between us, in justice - for He alone is the One who opens all truth, the All-Knowing!”* — **Saba (34:26)**
 <!-- quran-verse-end -->
 
 ---
