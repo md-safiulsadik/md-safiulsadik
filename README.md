@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thereby storming [blindly] into any host!* — **Al-Aadiyaat (100:5)**
+> 📖 *Such, behold, will in truth be the [confusion and] mutual wrangling of the people of the fire!* — **Saad (38:64)**
 <!-- quran-verse-end -->
 
 ---
