@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "He is the One God:* — **Al-Ikhlaas (112:1)**
+> 📖 *IT IS GOD who has created you, and then has provided you with sustenance, and then will cause you to die, and then will bring you to life again. Can any of those beings or powers to whom you ascribe a share in His divinity do any of these things? Limitless is He in His glory, and sublimely exalted above anything to which men may ascribe a share in His divinity!* — **Ar-Room (30:40)**
 <!-- quran-verse-end -->
 
 ---
