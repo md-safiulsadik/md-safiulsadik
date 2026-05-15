@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And He it is who sends down, again and again, waters from the sky in due measure: and [as] We raise therewith dead land to life, even thus will you be brought forth [from the dead].* — **Az-Zukhruf (43:11)**
+> 📖 *And what could make thee conceive what that laying-bare of the truth will be?* — **Al-Haaqqa (69:3)**
 <!-- quran-verse-end -->
 
 ---
