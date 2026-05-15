@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The two replied: "O our Sustainer! We have sinned against ourselves -and unless Thou grant us forgiveness and bestow Thy mercy upon us, we shall most certainly be lost!"* — **Al-A'raaf (7:23)**
+> 📖 *Neither coolness shall they taste therein nor any [thirst-quenching] drink –* — **An-Naba (78:24)**
 <!-- quran-verse-end -->
 
 ---
