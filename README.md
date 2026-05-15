@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Neither coolness shall they taste therein nor any [thirst-quenching] drink –* — **An-Naba (78:24)**
+> 📖 *But [as for the wife, all] chastisement shall be averted from her by her calling God four times to witness that he is indeed telling a lie,* — **An-Noor (24:8)**
 <!-- quran-verse-end -->
 
 ---
