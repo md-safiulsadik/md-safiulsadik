@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But [as for the wife, all] chastisement shall be averted from her by her calling God four times to witness that he is indeed telling a lie,* — **An-Noor (24:8)**
+> 📖 *whereas those who have attained to faith and do righteous deeds, and have come to believe in what has been bestowed from on high on Muhammad - for it is the truth from their Sustainer - [shall attain to God’s grace:] He will efface their [past] bad deeds, and will set their hearts at rest.* — **Muhammad (47:2)**
 <!-- quran-verse-end -->
 
 ---
