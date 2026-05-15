@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NAY! I call to witness this land –* — **Al-Balad (90:1)**
+> 📖 *Verily, [O believer,] thy Sustainer will judge between them in His wisdom - for He alone is almighty, all-knowing.* — **An-Naml (27:78)**
 <!-- quran-verse-end -->
 
 ---
