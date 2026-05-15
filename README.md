@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, [O believer,] thy Sustainer will judge between them in His wisdom - for He alone is almighty, all-knowing.* — **An-Naml (27:78)**
+> 📖 *The two replied: "O our Sustainer! We have sinned against ourselves -and unless Thou grant us forgiveness and bestow Thy mercy upon us, we shall most certainly be lost!"* — **Al-A'raaf (7:23)**
 <!-- quran-verse-end -->
 
 ---
