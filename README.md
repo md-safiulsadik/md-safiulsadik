@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let, then, the deniers of the truth have their will: let them have their will for a little while.* — **At-Taariq (86:17)**
+> 📖 *knowing that a crushing calamity is about to befall them.* — **Al-Qiyaama (75:25)**
 <!-- quran-verse-end -->
 
 ---
