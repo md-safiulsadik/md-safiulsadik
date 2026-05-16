@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, withal, they have no call to watch over [the beliefs of] others...* — **Al-Mutaffifin (83:33)**
+> 📖 *and [then bethink thyself of] the promised Day,* — **Al-Burooj (85:2)**
 <!-- quran-verse-end -->
 
 ---
