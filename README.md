@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [then bethink thyself of] the promised Day,* — **Al-Burooj (85:2)**
+> 📖 *God has readied for them suffering severe [in the life to come]. Behold, evil indeed is what they are wont to do:* — **Al-Mujaadila (58:15)**
 <!-- quran-verse-end -->
 
 ---
