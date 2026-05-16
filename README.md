@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and calls the ultimate good a lie –* — **Al-Lail (92:9)**
+> 📖 *[He has sent] an apostle who conveys unto you God's clear messages, so that He might those who have attained to faith and do righteous deeds out of the depths of darkness into the light. And whoever believes in God and does what is right and just, him will He admit into gardens through which running waters flow, therein to abide beyond the count of time: indeed, a most goodly provision will God have granted him!* — **At-Talaaq (65:11)**
 <!-- quran-verse-end -->
 
 ---
