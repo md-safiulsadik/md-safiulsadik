@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAVE WE NOT opened up thy heart,* — **Ash-Sharh (94:1)**
+> 📖 *for, behold, thou keepest indeed to a sublime way of life;* — **Al-Qalam (68:4)**
 <!-- quran-verse-end -->
 
 ---
