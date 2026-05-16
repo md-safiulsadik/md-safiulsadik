@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God has readied for them suffering severe [in the life to come]. Behold, evil indeed is what they are wont to do:* — **Al-Mujaadila (58:15)**
+> 📖 *Let, then, the deniers of the truth have their will: let them have their will for a little while.* — **At-Taariq (86:17)**
 <!-- quran-verse-end -->
 
 ---
