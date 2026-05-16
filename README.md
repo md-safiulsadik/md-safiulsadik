@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.* — **An-Nasr (110:3)**
+> 📖 *Every human being is bound to taste death, [and] in the end unto Us shall all be brought back:* — **Al-Ankaboot (29:57)**
 <!-- quran-verse-end -->
 
 ---
