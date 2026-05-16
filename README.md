@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Every human being is bound to taste death, [and] in the end unto Us shall all be brought back:* — **Al-Ankaboot (29:57)**
+> 📖 *and calls the ultimate good a lie –* — **Al-Lail (92:9)**
 <!-- quran-verse-end -->
 
 ---
