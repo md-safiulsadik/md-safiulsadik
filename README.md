@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
+> 📖 *HAVE WE NOT opened up thy heart,* — **Ash-Sharh (94:1)**
 <!-- quran-verse-end -->
 
 ---
