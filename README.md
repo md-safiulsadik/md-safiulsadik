@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [yet,] those who are bent on denying the truth do say, “We shall never believe in this Qur’an, and neither in whatever there still remains of earlier revelations!” But if thou couldst only see [how it will be on Judgment Day,] when these evildoers shall be made to stand before their Sustainer, hurling reproaches back and forth at one another! Those [of them] who had been weak [on earth] will say unto those who had gloried in their arrogance: “Had it not been for you, we would certainly have been believers!”* — **Saba (34:31)**
+> 📖 *Hence, he who invokes, side by side with God, any other deity [- a deity] for whose existence he has no evidence - shall but find his reckoning with his Sustainer: [and,] verily, such deniers of the truth will never attain to a happy state!* — **Al-Muminoon (23:117)**
 <!-- quran-verse-end -->
 
 ---
