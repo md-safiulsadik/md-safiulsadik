@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, he who invokes, side by side with God, any other deity [- a deity] for whose existence he has no evidence - shall but find his reckoning with his Sustainer: [and,] verily, such deniers of the truth will never attain to a happy state!* — **Al-Muminoon (23:117)**
+> 📖 *and casts forth whatever is in it, and becomes utterly void,* — **Al-Inshiqaaq (84:4)**
 <!-- quran-verse-end -->
 
 ---
