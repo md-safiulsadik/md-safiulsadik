@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *verily, with every hardship comes ease!* — **Ash-Sharh (94:6)**
+> 📖 *And [always] listen for the day when He who issues the call [of death] shall call [thee] from close-by;* — **Qaaf (50:41)**
 <!-- quran-verse-end -->
 
 ---
