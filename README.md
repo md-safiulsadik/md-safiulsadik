@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [always] listen for the day when He who issues the call [of death] shall call [thee] from close-by;* — **Qaaf (50:41)**
+> 📖 *between it and [their own] burning-hot despair will they wander to and fro!* — **Ar-Rahmaan (55:44)**
 <!-- quran-verse-end -->
 
 ---
