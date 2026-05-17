@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, verily, nearness to Us awaits him [in the life to come], and the most beauteous of all goals!* — **Saad (38:40)**
+> 📖 *such as would call God’s messages in question without having any evidence therefor: [a sin] exceedingly loathsome in the sight of God and of those who have attained to faith. It is in this way that God sets a seal on every arrogant, self-exalting heart.”* — **Ghafir (40:35)**
 <!-- quran-verse-end -->
 
 ---
