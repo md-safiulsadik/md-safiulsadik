@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And who could be more astray than one who invokes, instead of God, such as will not respond to him either now or on the Day of Resurrection, and are not even conscious of being invoked?* — **Al-Ahqaf (46:5)**
+> 📖 *and when the graves are overturned –* — **Al-Infitaar (82:4)**
 <!-- quran-verse-end -->
 
 ---
