@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND, BEHOLD, this [divine writ] is indeed a means to know [that] the Last Hour [is bound to come]; hence, have no doubt whatever about it, but follow Me: this [alone] is a straight way.* — **Az-Zukhruf (43:61)**
+> 📖 *And who could be more astray than one who invokes, instead of God, such as will not respond to him either now or on the Day of Resurrection, and are not even conscious of being invoked?* — **Al-Ahqaf (46:5)**
 <!-- quran-verse-end -->
 
 ---
