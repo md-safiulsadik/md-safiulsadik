@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O you who have attained to faith! Turn unto God in sincere repentance: it may well be that your Sustainer will efface from you your bad deeds, and will admit you into gardens through which running waters flow, on a Day on which God will not shame the Prophet and those who share his faith: their light will spread rapidly before them, and on their right; [and] they will pray: "O our Sustainer! Cause this our light to shine for us forever, and forgive us our sins: for, verily, Thou hast the power to will anything!"* — **At-Tahrim (66:8)**
+> 📖 *AND, BEHOLD, this [divine writ] is indeed a means to know [that] the Last Hour [is bound to come]; hence, have no doubt whatever about it, but follow Me: this [alone] is a straight way.* — **Az-Zukhruf (43:61)**
 <!-- quran-verse-end -->
 
 ---
