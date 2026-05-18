@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the graves are overturned –* — **Al-Infitaar (82:4)**
+> 📖 *And, indeed, in time will thy Sustainer grant thee [what thy heart desires], and thou shalt be well-pleased.* — **Ad-Dhuhaa (93:5)**
 <!-- quran-verse-end -->
 
 ---
