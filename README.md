@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and casts forth whatever is in it, and becomes utterly void,* — **Al-Inshiqaaq (84:4)**
+> 📖 *and let him share my task,* — **Taa-Haa (20:32)**
 <!-- quran-verse-end -->
 
 ---
