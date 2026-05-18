@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, indeed, in time will thy Sustainer grant thee [what thy heart desires], and thou shalt be well-pleased.* — **Ad-Dhuhaa (93:5)**
+> 📖 *Any message which, We annul or consign to oblivion We replace with a better or a similar one. Dost thou not know that God has the power to will anything?* — **Al-Baqara (2:106)**
 <!-- quran-verse-end -->
 
 ---
