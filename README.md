@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and let him share my task,* — **Taa-Haa (20:32)**
+> 📖 *If thou cause them to suffer - verily, they are Thy servants; and if Thou forgive them - verily, Thou alone art almighty, truly wise!"* — **Al-Maaida (5:118)**
 <!-- quran-verse-end -->
 
 ---
