@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider these [messages] that spread [the truth] far and wide,* — **Al-Mursalaat (77:3)**
+> 📖 *Nay, but [how will you fare on Judgment Day,] when the earth is crushed with crushing upon crushing,* — **Al-Fajr (89:21)**
 <!-- quran-verse-end -->
 
 ---
