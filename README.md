@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NOW WHEN he arrived at the wells of Madyan, he found there a large group of men who were watering [their herds and flocks]; and at some distance from them he came upon two women who were keeping back their flock. He asked [them]: “What is the matter with you?” They answered: “We cannot water [our animals] until the herdsmen drive [theirs] home - for [we are weak and] our father is a very old man.”* — **Al-Qasas (28:23)**
+> 📖 *Consider these [messages] that spread [the truth] far and wide,* — **Al-Mursalaat (77:3)**
 <!-- quran-verse-end -->
 
 ---
