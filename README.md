@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[who bears] around her neck a rope of twisted strands!* — **Al-Masad (111:5)**
+> 📖 *but as for those who are bent on denying the truth, ill fortune awaits them, since He will let all their [good] deeds go to waste:* — **Muhammad (47:8)**
 <!-- quran-verse-end -->
 
 ---
