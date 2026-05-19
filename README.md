@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Any message which, We annul or consign to oblivion We replace with a better or a similar one. Dost thou not know that God has the power to will anything?* — **Al-Baqara (2:106)**
+> 📖 *[who bears] around her neck a rope of twisted strands!* — **Al-Masad (111:5)**
 <!-- quran-verse-end -->
 
 ---
