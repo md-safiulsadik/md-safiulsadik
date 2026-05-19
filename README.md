@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And can] the parable of the paradise which the God-conscious are promised [a paradise] wherein there are rivers of water which time does not corrupt, and rivers of milk the taste whereof never alters, and rivers of wine delightful to those who drink it, and rivers of honey of all impurity cleansed, and the enjoyment of all the fruits [of their good deeds] and of forgiveness from their Sustainer -: can this [parable of paradise] be likened unto [the parable of the recompense of] such as are to abide in the fire and be given waters of burning despair to drink, so that it will tear their bowels asunder?* — **Muhammad (47:15)**
+> 📖 *NOW WHEN he arrived at the wells of Madyan, he found there a large group of men who were watering [their herds and flocks]; and at some distance from them he came upon two women who were keeping back their flock. He asked [them]: “What is the matter with you?” They answered: “We cannot water [our animals] until the herdsmen drive [theirs] home - for [we are weak and] our father is a very old man.”* — **Al-Qasas (28:23)**
 <!-- quran-verse-end -->
 
 ---
