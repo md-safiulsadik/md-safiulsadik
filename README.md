@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "O followers of earlier revelation! Come unto that tenet which we and you hold in common: that we shall worship none but God, and that we shall not ascribe divinity to aught beside Him, and that we shall not take human beings for our lords beside God." And if they turn away, then say: "Bear witness that it is we who have surrendered ourselves unto Him."* — **Aal-i-Imraan (3:64)**
+> 📖 *"from all [temptation to evil by] invisible forces as well as men,"* — **An-Naas (114:6)**
 <!-- quran-verse-end -->
 
 ---
