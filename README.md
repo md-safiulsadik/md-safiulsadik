@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Have they, then, never journeyed about the earth, letting their hearts gain wisdom, and causing their ears to hear? Yet, verily, it is not their eyes that have become blind - but blind have become the hearts that are in their breasts!* — **Al-Hajj (22:46)**
+> 📖 *Say: "O followers of earlier revelation! Come unto that tenet which we and you hold in common: that we shall worship none but God, and that we shall not ascribe divinity to aught beside Him, and that we shall not take human beings for our lords beside God." And if they turn away, then say: "Bear witness that it is we who have surrendered ourselves unto Him."* — **Aal-i-Imraan (3:64)**
 <!-- quran-verse-end -->
 
 ---
