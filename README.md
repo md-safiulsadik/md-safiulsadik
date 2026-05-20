@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, you will indeed taste grievous suffering [in the life to come],* — **As-Saaffaat (37:38)**
+> 📖 *And spend on others out of what We have provided for you as sustenance, ere there come a time when death approaches any of you, and he then says, "O my Sustainer! If only Thou wouldst grant me a delay for a short while, so that I could give in charity and be among the righteous!"* — **Al-Munaafiqoon (63:10)**
 <!-- quran-verse-end -->
 
 ---
