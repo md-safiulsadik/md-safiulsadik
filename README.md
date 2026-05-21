@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *then pour over his head the anguish of burning despair!* — **Ad-Dukhaan (44:48)**
+> 📖 *Yet [to achieve] this is not given to any but those who are wont to be patient in adversity: it is not given to any but those endowed with the greatest good fortune!* — **Fussilat (41:35)**
 <!-- quran-verse-end -->
 
 ---
