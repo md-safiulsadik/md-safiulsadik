@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ALL THAT IS in the heavens and all that is on earth extols God’s limitless glory: for He alone is almighty, truly wise.* — **Al-Hashr (59:1)**
+> 📖 *if they could but find a place of refuge, or any cavern, or a crevice [in the earth], they would turn towards it in headlong haste.* — **At-Tawba (9:57)**
 <!-- quran-verse-end -->
 
 ---
