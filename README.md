@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHOEVER does what is just and right, does so for his own good; and whoever does evil, does so to his own hurt: and never does God do the least wrong to His creatures.* — **Fussilat (41:46)**
+> 📖 *ALL THAT IS in the heavens and all that is on earth extols God’s limitless glory: for He alone is almighty, truly wise.* — **Al-Hashr (59:1)**
 <!-- quran-verse-end -->
 
 ---
