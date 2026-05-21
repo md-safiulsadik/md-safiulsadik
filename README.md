@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *if they could but find a place of refuge, or any cavern, or a crevice [in the earth], they would turn towards it in headlong haste.* — **At-Tawba (9:57)**
+> 📖 *then pour over his head the anguish of burning despair!* — **Ad-Dukhaan (44:48)**
 <!-- quran-verse-end -->
 
 ---
