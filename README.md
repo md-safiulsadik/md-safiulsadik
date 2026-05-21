@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But those who attain to faith and do righteous deeds - [and] We do not burden any human being with more than he is well able to bear - they are destined for paradise, therein to abide,* — **Al-A'raaf (7:42)**
+> 📖 *[In such a paradise the blest will dwell,] reclin­ing upon carpets lined with rich brocade; and the fruit of both these gardens will be within easy reach.* — **Ar-Rahmaan (55:54)**
 <!-- quran-verse-end -->
 
 ---
