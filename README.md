@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet [to achieve] this is not given to any but those who are wont to be patient in adversity: it is not given to any but those endowed with the greatest good fortune!* — **Fussilat (41:35)**
+> 📖 *But those who attain to faith and do righteous deeds - [and] We do not burden any human being with more than he is well able to bear - they are destined for paradise, therein to abide,* — **Al-A'raaf (7:42)**
 <!-- quran-verse-end -->
 
 ---
