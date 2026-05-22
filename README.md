@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “Who is it that sustains the seven heavens and is enthroned in His awesome almightiness?”* — **Al-Muminoon (23:86)**
+> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:55)**
 <!-- quran-verse-end -->
 
 ---
