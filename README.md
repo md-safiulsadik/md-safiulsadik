@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now [among the best of righteous deeds which] We have enjoined upon man [is] goodness towards his parents; yet [even so,] should they endeavour to make thee ascribe divinity, side by side with Me, to something which thy mind cannot accept [as divine], obey then, not: [for] it is unto Me that you all must return, whereupon I shall make you [truly] understand [the right and wrong of] all that you were doing [in life].* — **Al-Ankaboot (29:8)**
+> 📖 *Verily, he that hates thee has indeed been cut off [from all that is good]!* — **Al-Kawthar (108:3)**
 <!-- quran-verse-end -->
 
 ---
