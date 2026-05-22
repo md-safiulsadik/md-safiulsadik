@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *be, then, con­scious of God, and pay heed unto me!* — **Ash-Shu'araa (26:126)**
+> 📖 *for, behold, unto thy Sustainer all must return.* — **Al-Alaq (96:8)**
 <!-- quran-verse-end -->
 
 ---
