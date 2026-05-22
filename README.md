@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, as for those who persecute believing men and believing women, and thereafter do not repent, hell's suffering awaits them: yea, suffering through fire awaits them!* — **Al-Burooj (85:10)**
+> 📖 *be, then, con­scious of God, and pay heed unto me!* — **Ash-Shu'araa (26:126)**
 <!-- quran-verse-end -->
 
 ---
