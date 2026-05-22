@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
+> 📖 *Say: “Who is it that sustains the seven heavens and is enthroned in His awesome almightiness?”* — **Al-Muminoon (23:86)**
 <!-- quran-verse-end -->
 
 ---
