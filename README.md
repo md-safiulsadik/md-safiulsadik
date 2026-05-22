@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, behold, unto thy Sustainer all must return.* — **Al-Alaq (96:8)**
+> 📖 *[It will take place] on a Day when the sky will be like molten lead,* — **Al-Ma'aarij (70:8)**
 <!-- quran-verse-end -->
 
 ---
