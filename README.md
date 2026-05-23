@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *unto Pharaoh, and Haman, and Qarun; but they [only] said, “A spellbinder is he, a liar!”* — **Ghafir (40:24)**
+> 📖 *Pay heed, then, unto God, and pay heed unto the Apostle; and if you turn away, [know that] Our Apostle's only duty is a clear delivery of this message:* — **At-Taghaabun (64:12)**
 <!-- quran-verse-end -->
 
 ---
