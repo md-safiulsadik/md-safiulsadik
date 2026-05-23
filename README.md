@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[It will take place] on a Day when the sky will be like molten lead,* — **Al-Ma'aarij (70:8)**
+> 📖 *far-reaching wisdom [was held out to them]: but [since] all warnings have been of no avail,* — **Al-Qamar (54:5)**
 <!-- quran-verse-end -->
 
 ---
