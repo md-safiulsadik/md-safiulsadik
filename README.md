@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"from the evil of aught that He has created,* — **Al-Falaq (113:2)**
+> 📖 *And as for him whose record shall be placed in his right hand,* — **Al-Inshiqaaq (84:7)**
 <!-- quran-verse-end -->
 
 ---
