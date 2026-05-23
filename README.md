@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *secure in their winter and summer journeys,* — **Quraish (106:2)**
+> 📖 *[Useless, though, will be his repentance: for [as long as he was alive] he did not accept the truth, nor did he pray [for enlightenment],* — **Al-Qiyaama (75:31)**
 <!-- quran-verse-end -->
 
 ---
