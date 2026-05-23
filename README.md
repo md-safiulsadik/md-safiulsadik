@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *far-reaching wisdom [was held out to them]: but [since] all warnings have been of no avail,* — **Al-Qamar (54:5)**
+> 📖 *Say: "I invoke my Sustainer alone, for I do not ascribe divinity to anyone beside Him."* — **Al-Jinn (72:20)**
 <!-- quran-verse-end -->
 
 ---
