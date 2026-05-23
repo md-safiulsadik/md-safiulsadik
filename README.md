@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Useless, though, will be his repentance: for [as long as he was alive] he did not accept the truth, nor did he pray [for enlightenment],* — **Al-Qiyaama (75:31)**
+> 📖 *"from the evil of aught that He has created,* — **Al-Falaq (113:2)**
 <!-- quran-verse-end -->
 
 ---
