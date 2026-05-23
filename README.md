@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And as for him whose record shall be placed in his right hand,* — **Al-Inshiqaaq (84:7)**
+> 📖 *unto Pharaoh, and Haman, and Qarun; but they [only] said, “A spellbinder is he, a liar!”* — **Ghafir (40:24)**
 <!-- quran-verse-end -->
 
 ---
