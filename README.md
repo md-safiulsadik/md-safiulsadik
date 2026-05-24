@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "There is no comparison between the bad things and the good things, even though very many of the bad things may please thee greatly. Be, then, conscious of God, O you who are endowed with insight, so that you might attain to a happy state!"* — **Al-Maaida (5:100)**
+> 📖 *on wide-open scrolls.* — **At-Tur (52:3)**
 <!-- quran-verse-end -->
 
 ---
