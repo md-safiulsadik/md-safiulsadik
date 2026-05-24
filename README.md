@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware that before God prostrate themselves all [things and beings] that are in the heavens and all that are on earth the sun, and the moon, and the stars, and the mountains, and the trees, and the beasts? And many human beings [submit to God con­sciously], whereas many [others, having defied Him,] will inevitably have to suffer [in the life to come]; and he whom God shall scorn [on Resur­rection Day] will have none who could bestow honour on him: for, verily, God does what He wills.* — **Al-Hajj (22:18)**
+> 📖 *They answered: "O Salih! Great hopes did we place in thee ere this! Wouldst thou forbid us to worship what our forefathers were wont to worship? Because [of this], behold, we are in grave doubt, amounting to suspicion, about [the meaning of] thy call to us!"* — **Hud (11:62)**
 <!-- quran-verse-end -->
 
 ---
