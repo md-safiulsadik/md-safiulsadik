@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *then He causes him to be begotten out of the essence of a humble fluid;* — **As-Sajda (32:8)**
+> 📖 *that had weighed so heavily on thy back?* — **Ash-Sharh (94:3)**
 <!-- quran-verse-end -->
 
 ---
