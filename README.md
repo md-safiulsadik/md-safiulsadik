@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They answered: "O Salih! Great hopes did we place in thee ere this! Wouldst thou forbid us to worship what our forefathers were wont to worship? Because [of this], behold, we are in grave doubt, amounting to suspicion, about [the meaning of] thy call to us!"* — **Hud (11:62)**
+> 📖 *Yet indeed, as for any who defend themselves after having been wronged - no blame whatever attaches to them:* — **Ash-Shura (42:41)**
 <!-- quran-verse-end -->
 
 ---
