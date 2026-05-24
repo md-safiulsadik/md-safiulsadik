@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thus they had to taste the evil outcome of their own doing: for, [in this world,] the end of their doings was ruin,* — **At-Talaaq (65:9)**
+> 📖 *ART THOU NOT aware that before God prostrate themselves all [things and beings] that are in the heavens and all that are on earth the sun, and the moon, and the stars, and the mountains, and the trees, and the beasts? And many human beings [submit to God con­sciously], whereas many [others, having defied Him,] will inevitably have to suffer [in the life to come]; and he whom God shall scorn [on Resur­rection Day] will have none who could bestow honour on him: for, verily, God does what He wills.* — **Al-Hajj (22:18)**
 <!-- quran-verse-end -->
 
 ---
