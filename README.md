@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet indeed, as for any who defend themselves after having been wronged - no blame whatever attaches to them:* — **Ash-Shura (42:41)**
+> 📖 *[This is] God’s promise. Never does God fail to fulfill His promise - but most people know [it] not:* — **Ar-Room (30:6)**
 <!-- quran-verse-end -->
 
 ---
