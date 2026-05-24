@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on wide-open scrolls.* — **At-Tur (52:3)**
+> 📖 *and thus they had to taste the evil outcome of their own doing: for, [in this world,] the end of their doings was ruin,* — **At-Talaaq (65:9)**
 <!-- quran-verse-end -->
 
 ---
