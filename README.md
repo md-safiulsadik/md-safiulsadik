@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thereby raising clouds of dust,* — **Al-Aadiyaat (100:4)**
+> 📖 *But never does God grant a delay to a human being when his term has come; and God is fully aware of all that you do.* — **Al-Munaafiqoon (63:11)**
 <!-- quran-verse-end -->
 
 ---
