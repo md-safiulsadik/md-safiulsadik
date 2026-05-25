@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *extol thy Sustainer's limitless glory, and praise Him, and seek His forgiveness: for, behold, He is ever an acceptor of repentance.* — **An-Nasr (110:3)**
+> 📖 *thereby raising clouds of dust,* — **Al-Aadiyaat (100:4)**
 <!-- quran-verse-end -->
 
 ---
