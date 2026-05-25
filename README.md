@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And behold, whenever I called unto them with a view to Thy granting them forgiveness, they put their fingers into their ears, and wrapped themselves up in their garments [of sin]; and grew obstinate, and became [yet more] arrogant in their false pride.* — **Nooh (71:7)**
+> 📖 *Whosoever shall come [before God] with a good deed will gain [further] good there from; but as for any who shall come with an evil deed - [know that] they who do evil deeds will not be requited with more than [the like of] what they have done.* — **Al-Qasas (28:84)**
 <!-- quran-verse-end -->
 
 ---
