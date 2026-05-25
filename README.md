@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Whosoever shall come [before God] with a good deed will gain [further] good there from; but as for any who shall come with an evil deed - [know that] they who do evil deeds will not be requited with more than [the like of] what they have done.* — **Al-Qasas (28:84)**
+> 📖 *GO ON towards that [resurrection] which you were wont to call a lie!* — **Al-Mursalaat (77:29)**
 <!-- quran-verse-end -->
 
 ---
