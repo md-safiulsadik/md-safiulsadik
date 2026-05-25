@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *GO ON towards that [resurrection] which you were wont to call a lie!* — **Al-Mursalaat (77:29)**
+> 📖 *[God says:] Exalt not yourselves against Me, but come unto Me in willing surrender!’”* — **An-Naml (27:31)**
 <!-- quran-verse-end -->
 
 ---
