@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which smote them with stone-hard blows of chastisement pre-ordained,* — **Al-Fil (105:4)**
+> 📖 *Indeed, you have had a good example in Abraham and those who followed him, when they said unto their [idolatrous] people: "Verily, we are quit of you and of all that you worship instead of God: we deny the truth of whatever you believe; and between us and you there has arisen enmity and hatred, to last until such a time as you come to believe in the One God!" The only exception was Abraham's saying to his father "I shall indeed pray for [God's] forgiveness for thee, although I have it not in my power to obtain anything from God in thy behalf." [And Abraham and his followers prayed:] "O our Sustainer! In Thee have we placed our trust, and unto Thee do we turn: for unto Thee is all journeys' end.* — **Al-Mumtahana (60:4)**
 <!-- quran-verse-end -->
 
 ---
