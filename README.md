@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But never does God grant a delay to a human being when his term has come; and God is fully aware of all that you do.* — **Al-Munaafiqoon (63:11)**
+> 📖 *which smote them with stone-hard blows of chastisement pre-ordained,* — **Al-Fil (105:4)**
 <!-- quran-verse-end -->
 
 ---
