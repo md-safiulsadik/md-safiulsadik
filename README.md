@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And the earth have We spread out wide - and how well have We ordered it!* — **Adh-Dhaariyat (51:48)**
+> 📖 *What will his wealth avail him, and all that he has gained?* — **Al-Masad (111:2)**
 <!-- quran-verse-end -->
 
 ---
