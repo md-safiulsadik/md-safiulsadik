@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BUT NAY! I call to witness the revolving stars,* — **At-Takwir (81:15)**
+> 📖 *And the earth have We spread out wide - and how well have We ordered it!* — **Adh-Dhaariyat (51:48)**
 <!-- quran-verse-end -->
 
 ---
