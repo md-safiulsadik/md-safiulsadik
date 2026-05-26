@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *What will his wealth avail him, and all that he has gained?* — **Al-Masad (111:2)**
+> 📖 *NOW HAD IT BEEN Our will [that men should not be able to discern between right and wrong], We could surely have deprived them of their sight, so that they would stray forever from the [right] way: for how could they have had insight [into what is true]?* — **Yaseen (36:66)**
 <!-- quran-verse-end -->
 
 ---
