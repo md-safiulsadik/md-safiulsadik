@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what it is, that Night of Destiny?* — **Al-Qadr (97:2)**
+> 📖 *But they cruelly slaughtered her. And thereupon [Salih] said: "[Only] for three days [more] shall you enjoy life in your homes: this is a judgment which will not be belied!"* — **Hud (11:65)**
 <!-- quran-verse-end -->
 
 ---
