@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Whither, then, will you go?* — **At-Takwir (81:26)**
+> 📖 *Say thou, [O Prophet:] "Knowledge thereof rests with God alone; and I am only a plain warner."* — **Al-Mulk (67:26)**
 <!-- quran-verse-end -->
 
 ---
