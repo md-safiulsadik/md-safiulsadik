@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but only out of a longing for the countenance of his Sustainer, the All-Highest:* — **Al-Lail (92:20)**
+> 📖 *BUT NAY! I call to witness the sunset's [fleeting] afterglow,* — **Al-Inshiqaaq (84:16)**
 <!-- quran-verse-end -->
 
 ---
