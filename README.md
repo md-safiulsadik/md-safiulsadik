@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and goblets placed ready,* — **Al-Ghaashiya (88:14)**
+> 📖 *but only out of a longing for the countenance of his Sustainer, the All-Highest:* — **Al-Lail (92:20)**
 <!-- quran-verse-end -->
 
 ---
