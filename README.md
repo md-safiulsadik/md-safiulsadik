@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *sparks of fire striking,* — **Al-Aadiyaat (100:2)**
+> 📖 *or of a needy [stranger] lying in the dust –* — **Al-Balad (90:16)**
 <!-- quran-verse-end -->
 
 ---
