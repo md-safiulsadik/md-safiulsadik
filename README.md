@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BUT NAY! I call to witness the sunset's [fleeting] afterglow,* — **Al-Inshiqaaq (84:16)**
+> 📖 *[But they will be told:] “Pray not today for one single extinction, but pray for many extinctions!”* — **Al-Furqaan (25:14)**
 <!-- quran-verse-end -->
 
 ---
