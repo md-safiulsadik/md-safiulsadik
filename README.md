@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Know that true] believers are only those who have attained to faith in God and His Apostle and have left all doubt behind, and who strive hard in God’s cause with their possessions and their lives: it is they, they who are true to their word!* — **Al-Hujuraat (49:15)**
+> 📖 *ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?* — **Al-Fil (105:1)**
 <!-- quran-verse-end -->
 
 ---
