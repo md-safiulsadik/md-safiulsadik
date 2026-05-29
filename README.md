@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and this land secure!* — **At-Tin (95:3)**
+> 📖 *those who, having attained to patience in adversity, in their Sustainer place their trust!* — **An-Nahl (16:42)**
 <!-- quran-verse-end -->
 
 ---
