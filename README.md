@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?* — **Al-Fil (105:1)**
+> 📖 *or of a needy [stranger] lying in the dust –* — **Al-Balad (90:16)**
 <!-- quran-verse-end -->
 
 ---
