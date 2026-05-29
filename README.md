@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"'Do you not see how God has created seven heavens in full harmony with one another,* — **Nooh (71:15)**
+> 📖 *and this land secure!* — **At-Tin (95:3)**
 <!-- quran-verse-end -->
 
 ---
