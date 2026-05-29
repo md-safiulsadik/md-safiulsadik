@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[But they will be told:] “Pray not today for one single extinction, but pray for many extinctions!”* — **Al-Furqaan (25:14)**
+> 📖 *Said they: "Fear not! Behold, we bring thee the glad tiding of [the birth of] a son who will be endowed with deep knowledge."* — **Al-Hijr (15:53)**
 <!-- quran-verse-end -->
 
 ---
