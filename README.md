@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said they: "Fear not! Behold, we bring thee the glad tiding of [the birth of] a son who will be endowed with deep knowledge."* — **Al-Hijr (15:53)**
+> 📖 *"'Do you not see how God has created seven heavens in full harmony with one another,* — **Nooh (71:15)**
 <!-- quran-verse-end -->
 
 ---
