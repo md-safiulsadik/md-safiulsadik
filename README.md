@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *or of a needy [stranger] lying in the dust –* — **Al-Balad (90:16)**
+> 📖 *These it is who shall have as their reward forgiveness from their Sustainer, and gardens through which running waters flow, therein to abide: and how excellent a reward for those who labour!* — **Aal-i-Imraan (3:136)**
 <!-- quran-verse-end -->
 
 ---
