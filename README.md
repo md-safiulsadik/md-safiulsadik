@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *so that He may forgive you some of your sins, and grant you respite until a term known [to Him alone]: but, behold, when the term appointed by God does come, it can never be put back - if you but knew it!"* — **Nooh (71:4)**
+> 📖 *Thou art nothing but a mortal like our­selves! Come, then, forward with a token [of thy mission] if thou art a man of truth!”* — **Ash-Shu'araa (26:154)**
 <!-- quran-verse-end -->
 
 ---
