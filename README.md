@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thou art nothing but a mortal like our­selves! Come, then, forward with a token [of thy mission] if thou art a man of truth!”* — **Ash-Shu'araa (26:154)**
+> 📖 *Nay, if you could but understand [it] with an understanding [born] of certainty,* — **At-Takaathur (102:5)**
 <!-- quran-verse-end -->
 
 ---
