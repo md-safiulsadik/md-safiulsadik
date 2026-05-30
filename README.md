@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *These it is who shall have as their reward forgiveness from their Sustainer, and gardens through which running waters flow, therein to abide: and how excellent a reward for those who labour!* — **Aal-i-Imraan (3:136)**
+> 📖 *These people of ours have taken to worshipping [other] deities instead of Him, without being able to adduce any reasonable evidence in support of their beliefs; and who could be more wicked than he who invents a lie about God?* — **Al-Kahf (18:15)**
 <!-- quran-verse-end -->
 
 ---
