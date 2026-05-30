@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, if you could but understand [it] with an understanding [born] of certainty,* — **At-Takaathur (102:5)**
+> 📖 *hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].* — **Al-Kawthar (108:2)**
 <!-- quran-verse-end -->
 
 ---
