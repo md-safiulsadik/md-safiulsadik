@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].* — **Al-Kawthar (108:2)**
+> 📖 *And once again: Nay, but in time they will come to understand!* — **An-Naba (78:5)**
 <!-- quran-verse-end -->
 
 ---
