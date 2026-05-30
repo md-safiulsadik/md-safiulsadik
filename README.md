@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *These people of ours have taken to worshipping [other] deities instead of Him, without being able to adduce any reasonable evidence in support of their beliefs; and who could be more wicked than he who invents a lie about God?* — **Al-Kahf (18:15)**
+> 📖 *although God's apostle had told them, "It is a she-camel belonging to God, so let her drink [and do her no harm]!"* — **Ash-Shams (91:13)**
 <!-- quran-verse-end -->
 
 ---
