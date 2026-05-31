@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *His is the dominion over the heavens and the earth; He grants life and deals death; and He has the power to will anything.* — **Al-Hadid (57:2)**
+> 📖 *AS FOR THOSE who are bent on denying the truth and on barring [others] from the path of God - all their [good] deeds will He let go to waste;* — **Muhammad (47:1)**
 <!-- quran-verse-end -->
 
 ---
