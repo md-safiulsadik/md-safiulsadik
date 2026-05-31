@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AS FOR THOSE who are bent on denying the truth and on barring [others] from the path of God - all their [good] deeds will He let go to waste;* — **Muhammad (47:1)**
+> 📖 *whereas the invisible beings We had created, [long] before that, out of the fire of scorching winds.* — **Al-Hijr (15:27)**
 <!-- quran-verse-end -->
 
 ---
