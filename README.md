@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND [know, O men, that] whether you keep your beliefs secret or state them openly, He has full knowledge indeed of all that is in [your] hearts.* — **Al-Mulk (67:13)**
+> 📖 *BELIEVE in God and His Apostle, and spend on others out of that of which He has made you trus­tees: for, those of you who have attained to faith and who spend freely [in God’s cause] shall have a great reward.* — **Al-Hadid (57:7)**
 <!-- quran-verse-end -->
 
 ---
