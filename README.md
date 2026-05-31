@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and will have no protector whatever to succour them against God: for he whom God lets go astray shall find no way [of escape].* — **Ash-Shura (42:46)**
+> 📖 *AND [know, O men, that] whether you keep your beliefs secret or state them openly, He has full knowledge indeed of all that is in [your] hearts.* — **Al-Mulk (67:13)**
 <!-- quran-verse-end -->
 
 ---
