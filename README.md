@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas the invisible beings We had created, [long] before that, out of the fire of scorching winds.* — **Al-Hijr (15:27)**
+> 📖 *and will have no protector whatever to succour them against God: for he whom God lets go astray shall find no way [of escape].* — **Ash-Shura (42:46)**
 <!-- quran-verse-end -->
 
 ---
