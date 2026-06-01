@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
+> 📖 *And when those who believe in Our messages come unto thee, say: "Peace be upon you. Your Sustainer has willed upon Himself the law of grace and mercy - so that if any of you does a bad deed out of ignorance, and thereafter repents and lives righteously, He shall be [found] much-forgiving, a dispenser of grace."* — **Al-An'aam (6:54)**
 <!-- quran-verse-end -->
 
 ---
