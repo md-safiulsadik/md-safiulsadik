@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *to replace them with [people] better than they are; for there is nothing to prevent Us [from doing what We will].* — **Al-Ma'aarij (70:41)**
+> 📖 *whereas they who are bent on denying the truth and giving the lie to Our messages-they are destined for the blazing fire.* — **Al-Maaida (5:10)**
 <!-- quran-verse-end -->
 
 ---
