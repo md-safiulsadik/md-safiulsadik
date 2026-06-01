@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thinking that his wealth will make him live forever!* — **Al-Humaza (104:3)**
+> 📖 *to replace them with [people] better than they are; for there is nothing to prevent Us [from doing what We will].* — **Al-Ma'aarij (70:41)**
 <!-- quran-verse-end -->
 
 ---
