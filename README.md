@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *whereas they who are bent on denying the truth and giving the lie to Our messages-they are destined for the blazing fire.* — **Al-Maaida (5:10)**
+> 📖 *And they will add: "Had we but listened [to those warnings], or [at least] used our own reason, we would not [now] be among those who are destined for the blazing flame!"* — **Al-Mulk (67:10)**
 <!-- quran-verse-end -->
 
 ---
