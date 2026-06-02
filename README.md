@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for one Day We shall raise up within every community a witness against them from among themselves. And thee [too, O Prophet,] have We brought forth to bear witness regarding those [whom thy message may have reached], inasmuch as We have bestowed from on high upon thee, step by step, this divine writ, to make everything clear, and to provide guidance and grace and a glad tiding unto all who have surrendered themselves to God.* — **An-Nahl (16:89)**
+> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
 <!-- quran-verse-end -->
 
 ---
