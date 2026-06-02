@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, as for those who persecute believing men and believing women, and thereafter do not repent, hell's suffering awaits them: yea, suffering through fire awaits them!* — **Al-Burooj (85:10)**
+> 📖 *And who could be more wicked than he who attributes his own lying inventions to God or gives the lie to His messages? Verily, such evildoers will never attain to a happy state:* — **Al-An'aam (6:21)**
 <!-- quran-verse-end -->
 
 ---
