@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
+> 📖 *does it make secure, until the rise of dawn.* — **Al-Qadr (97:5)**
 <!-- quran-verse-end -->
 
 ---
