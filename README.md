@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *does it make secure, until the rise of dawn.* — **Al-Qadr (97:5)**
+> 📖 *[They will not admit to themselves that] it We who have created them and strengthened their make - and [that] if it be Our will We can replace them entirely with others of their kind.* — **Al-Insaan (76:28)**
 <!-- quran-verse-end -->
 
 ---
