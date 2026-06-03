@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *If, however, one has reason to fear that the testator has committed a mistake or a [deliberate] wrong, and thereupon brings about a settlement between the heirs, he will incur no sin [thereby]. Verily, God is much-forgiving, a dispenser of grace.* — **Al-Baqara (2:182)**
+> 📖 *[And] those who were wont to glory in their arrogance will say unto those who had been weak: “Why - did we keep you [forcibly] from following the right path after it had become obvious to you? Nay, it was but you [yourselves] who were guilty!”* — **Saba (34:32)**
 <!-- quran-verse-end -->
 
 ---
