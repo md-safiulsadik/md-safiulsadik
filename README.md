@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: "O you who deny the truth!* — **Al-Kaafiroon (109:1)**
+> 📖 *and then We awakened Christianity was no longer persecuted and had even become the official religion of the Roman Empire. The ancient coin (dating from the reign of Decius) with which the young man wanted to pay for his purchases immediately aroused curiosity; people began to question the stranger, and the story of the Men of the Cave and their miraculous sleep came to light. them: [and We did all this] so that We might mark out [to the world] which of the two points of view showed a better comprehension of the time-span during which they had remained in this state.* — **Al-Kahf (18:12)**
 <!-- quran-verse-end -->
 
 ---
