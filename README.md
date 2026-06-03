@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And] those who were wont to glory in their arrogance will say unto those who had been weak: “Why - did we keep you [forcibly] from following the right path after it had become obvious to you? Nay, it was but you [yourselves] who were guilty!”* — **Saba (34:32)**
+> 📖 *VERILY, those who turn their backs [on this mes­sage] after guidance has been vouchsafed to them, [do it because] Satan has embellished their fancies and filled them with false hopes:* — **Muhammad (47:25)**
 <!-- quran-verse-end -->
 
 ---
