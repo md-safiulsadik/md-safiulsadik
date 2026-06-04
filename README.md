@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And how many a generation have We [thus] destroyed after [the time of] Noah! For, none has the like of thy Sustainer's awareness and insight into His creatures' sins.* — **Al-Israa (17:17)**
+> 📖 *and I follow the creed of my forefathers Abraham, Isaac and Jacob. It is not conceivable that we should [be allowed to] ascribe divinity to aught beside God: this is [an outcome] of God's bounty unto us and unto all mankind -but most people are ungrateful.* — **Yusuf (12:38)**
 <!-- quran-verse-end -->
 
 ---
