@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said [the servant]: "Wouldst thou believe it? When we betook ourselves to that rock for a rest, behold, I forgot about the fish-and none but Satan made me thus forget it - and it took its way into the sea! How strange!"* — **Al-Kahf (18:63)**
+> 📖 *and [I call to witness] parent and offspring:* — **Al-Balad (90:3)**
 <!-- quran-verse-end -->
 
 ---
