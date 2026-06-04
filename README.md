@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and I follow the creed of my forefathers Abraham, Isaac and Jacob. It is not conceivable that we should [be allowed to] ascribe divinity to aught beside God: this is [an outcome] of God's bounty unto us and unto all mankind -but most people are ungrateful.* — **Yusuf (12:38)**
+> 📖 *Said [the servant]: "Wouldst thou believe it? When we betook ourselves to that rock for a rest, behold, I forgot about the fish-and none but Satan made me thus forget it - and it took its way into the sea! How strange!"* — **Al-Kahf (18:63)**
 <!-- quran-verse-end -->
 
 ---
