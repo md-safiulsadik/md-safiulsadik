@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [I call to witness] parent and offspring:* — **Al-Balad (90:3)**
+> 📖 *Said she: "Oh, woe is me! Shall I bear a child, now that I am an old woman and this husband of mine is an old man? Verily, that would be a strange thing indeed!"* — **Hud (11:72)**
 <!-- quran-verse-end -->
 
 ---
