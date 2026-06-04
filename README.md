@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said she: "Oh, woe is me! Shall I bear a child, now that I am an old woman and this husband of mine is an old man? Verily, that would be a strange thing indeed!"* — **Hud (11:72)**
+> 📖 *And in that [paradise] they will be given to drink of a cup flavoured with ginger,* — **Al-Insaan (76:17)**
 <!-- quran-verse-end -->
 
 ---
