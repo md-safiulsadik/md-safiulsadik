@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the seas burst beyond their bounds,* — **Al-Infitaar (82:3)**
+> 📖 *And how many a generation have We [thus] destroyed after [the time of] Noah! For, none has the like of thy Sustainer's awareness and insight into His creatures' sins.* — **Al-Israa (17:17)**
 <!-- quran-verse-end -->
 
 ---
