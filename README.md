@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND IF any [secret] matter pertaining to peace or war comes within their ken, they spread it abroad - whereas, if they would but refer it unto the Apostle and unto those from among the believers who have been entrusted with authority, such of them as are engaged in obtaining intelligence would indeed know [what to do with] it And but for God's bounty towards you, and His grace, all but a few of you would certainly have followed Satan.* — **An-Nisaa (4:83)**
+> 📖 *O PROPHET! When you [intend to divorce women, divorce them with a view to the waiting period appointed for them, and reckon the period [carefully], and be conscious of God, your Sustainer. Do not expel them from their homes; and neither shall they [be made to] leave unless they become openly guilty of immoral conduct. These, then, are the bounds set by God - and he who transgresses the bounds set by God does indeed sin against himself: [for, O man, although] thou knowest it not, after that [first breach] God may well cause something new to come about.* — **At-Talaaq (65:1)**
 <!-- quran-verse-end -->
 
 ---
