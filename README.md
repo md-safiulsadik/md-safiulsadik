@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For it is thus that We have bestowed this divine writ from on high upon thee [O Muhammad]. And they to whom we have vouchsafed this divine writ believe in it just as among those [followers of earlier revelation] there are some who believe in it. And none could knowingly reject Our messages unless it be such as would deny [an obvious] truth:* — **Al-Ankaboot (29:47)**
+> 📖 *AND IF any [secret] matter pertaining to peace or war comes within their ken, they spread it abroad - whereas, if they would but refer it unto the Apostle and unto those from among the believers who have been entrusted with authority, such of them as are engaged in obtaining intelligence would indeed know [what to do with] it And but for God's bounty towards you, and His grace, all but a few of you would certainly have followed Satan.* — **An-Nisaa (4:83)**
 <!-- quran-verse-end -->
 
 ---
