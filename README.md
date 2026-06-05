@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ALL THAT IS in the heavens and all that is on earth extols the limitless glory of God, the Sovereign Supreme, the Holy, the Almighty, the Wise!* — **Al-Jumu'a (62:1)**
+> 📖 *For it is thus that We have bestowed this divine writ from on high upon thee [O Muhammad]. And they to whom we have vouchsafed this divine writ believe in it just as among those [followers of earlier revelation] there are some who believe in it. And none could knowingly reject Our messages unless it be such as would deny [an obvious] truth:* — **Al-Ankaboot (29:47)**
 <!-- quran-verse-end -->
 
 ---
