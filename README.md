@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and provides for him in a manner beyond all expectation; and for everyone who places his trust in God He [alone] is enough. Verily, God always attains to His purpose: [and] indeed, unto everything has God appointed its [term and] measure.* — **At-Talaaq (65:3)**
+> 📖 *THOSE of the children of Israel who were bent on denying the truth have [already] been cursed by the tongue of David and of Jesus, the son of Mary? this, because they rebelled [against God] and persisted in transgressing the bounds of what is right.* — **Al-Maaida (5:78)**
 <!-- quran-verse-end -->
 
 ---
