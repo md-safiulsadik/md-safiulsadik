@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *THOSE of the children of Israel who were bent on denying the truth have [already] been cursed by the tongue of David and of Jesus, the son of Mary? this, because they rebelled [against God] and persisted in transgressing the bounds of what is right.* — **Al-Maaida (5:78)**
+> 📖 *ALL THAT IS in the heavens and all that is on earth extols the limitless glory of God, the Sovereign Supreme, the Holy, the Almighty, the Wise!* — **Al-Jumu'a (62:1)**
 <!-- quran-verse-end -->
 
 ---
