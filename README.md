@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "Shall I tell you who, in the sight of God, deserves a yet worse retribution than these? They whom God has rejected and whom He has condemned, and whom He has turned into apes and swine because they worshipped the powers of evil: these are yet worse in station, and farther astray from the right path [than the mockers]."* — **Al-Maaida (5:60)**
+> 📖 *near unto the garden of promise.* — **An-Najm (53:15)**
 <!-- quran-verse-end -->
 
 ---
