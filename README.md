@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *verily, it will close in upon them* — **Al-Humaza (104:8)**
+> 📖 *the lying, rebellious forehead! –* — **Al-Alaq (96:16)**
 <!-- quran-verse-end -->
 
 ---
