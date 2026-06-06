@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Your worldly goods and your children are but a trial and a temptation, whereas with God there is a tremendous reward.* — **At-Taghaabun (64:15)**
+> 📖 *it is they, they who are truly believers! Theirs shall be great dignity in their Sustainer's sight, and forgiveness of sins, and a most excellent sustenance.* — **Al-Anfaal (8:4)**
 <!-- quran-verse-end -->
 
 ---
