@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER this divine writ, clear in itself and clearly showing the truth:* — **Az-Zukhruf (43:2)**
+> 📖 *Your worldly goods and your children are but a trial and a temptation, whereas with God there is a tremendous reward.* — **At-Taghaabun (64:15)**
 <!-- quran-verse-end -->
 
 ---
