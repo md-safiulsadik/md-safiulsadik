@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[The truly virtuous are] they [who] fulfil their vows, and stand in awe of a Day the woe of which is bound to spread far and wide,* — **Al-Insaan (76:7)**
+> 📖 *CONSIDER this divine writ, clear in itself and clearly showing the truth:* — **Az-Zukhruf (43:2)**
 <!-- quran-verse-end -->
 
 ---
