@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *it is they, they who are truly believers! Theirs shall be great dignity in their Sustainer's sight, and forgiveness of sins, and a most excellent sustenance.* — **Al-Anfaal (8:4)**
+> 📖 *HAST THOU ever considered [the kind of man] who makes his own desires his deity, and whom God has [thereupon] let go astray, knowing [that his mind is closed to all guidance], and whose hearing and heart He has sealed, and upon whose sight He has placed a veil? Who, then, could guide him after God [has abandoned him]? Will you not, then, bethink your­selves?* — **Al-Jaathiya (45:23)**
 <!-- quran-verse-end -->
 
 ---
