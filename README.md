@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Whoever does what is just and right, does so for his own good; and whoever does evil, does so to his own hurt; and in the end unto your Sustainer you all will be brought back.* — **Al-Jaathiya (45:15)**
+> 📖 *WHEN GOD'S SUCCOUR comes, and victory,* — **An-Nasr (110:1)**
 <!-- quran-verse-end -->
 
 ---
