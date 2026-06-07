@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Night of Destiny is better than a thousand months:* — **Al-Qadr (97:3)**
+> 📖 *Yea, indeed, We did test those who lived before them; and so, [too, shall be tested the people now living: and] most certainly will God mark out those who prove themselves true, and most certainly will He mark out those who are lying.* — **Al-Ankaboot (29:3)**
 <!-- quran-verse-end -->
 
 ---
