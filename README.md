@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and know that your worldly goods and your children are but a trial and a temptation, and that with God there is a tremendous reward.* — **Al-Anfaal (8:28)**
+> 📖 *and to this, behold, he [himself] bears witness indeed:* — **Al-Aadiyaat (100:7)**
 <!-- quran-verse-end -->
 
 ---
