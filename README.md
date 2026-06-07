@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *wherein there are ordinances of ever-true soundness and clarity.* — **Al-Bayyina (98:3)**
+> 📖 *But God’s is the dominion over the heavens and the earth: He forgives whomever He wills, and imposes suffering on whomever He wills - and [withal,] He is indeed much-forgiving, a dispenser of grace.* — **Al-Fath (48:14)**
 <!-- quran-verse-end -->
 
 ---
