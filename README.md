@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In the end you will indeed, most surely, behold it with the eye of certainty:* — **At-Takaathur (102:7)**
+> 📖 *The Night of Destiny is better than a thousand months:* — **Al-Qadr (97:3)**
 <!-- quran-verse-end -->
 
 ---
