@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHEN GOD'S SUCCOUR comes, and victory,* — **An-Nasr (110:1)**
+> 📖 *wherein there are ordinances of ever-true soundness and clarity.* — **Al-Bayyina (98:3)**
 <!-- quran-verse-end -->
 
 ---
