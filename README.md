@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for [we know] that sublimely exalted is our Sustainer's majesty: no consort has He ever taken unto Himself, nor a son!* — **Al-Jinn (72:3)**
+> 📖 *Say: “Do you, perchance, [want to] inform God of [the nature of] your faith although God knows all that is in the heavens and all that is on earth? Indeed, God has full knowledge of every­thing!”* — **Al-Hujuraat (49:16)**
 <!-- quran-verse-end -->
 
 ---
