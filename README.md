@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yea, indeed, We did test those who lived before them; and so, [too, shall be tested the people now living: and] most certainly will God mark out those who prove themselves true, and most certainly will He mark out those who are lying.* — **Al-Ankaboot (29:3)**
+> 📖 *and unto thy Sustainer turn with love.* — **Ash-Sharh (94:8)**
 <!-- quran-verse-end -->
 
 ---
