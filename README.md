@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *God has promised the believers, both men and women, gardens through which running waters flow, therein to abide, and goodly dwellings in gardens of perpetual bliss: but God's goodly acceptance is the greatest [bliss of all] -for this, this is the triumph supreme!* — **At-Tawba (9:72)**
+> 📖 *And they will ask their skins, “Why did you bear witness against us?” - [and] these will reply: “God, who gives speech to all things, has given speech to us [as well]: for He [it is who] has created you in the first instance - and unto Him you are [now] brought back.* — **Fussilat (41:21)**
 <!-- quran-verse-end -->
 
 ---
