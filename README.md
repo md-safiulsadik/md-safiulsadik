@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And they will ask their skins, “Why did you bear witness against us?” - [and] these will reply: “God, who gives speech to all things, has given speech to us [as well]: for He [it is who] has created you in the first instance - and unto Him you are [now] brought back.* — **Fussilat (41:21)**
+> 📖 *for [we know] that sublimely exalted is our Sustainer's majesty: no consort has He ever taken unto Himself, nor a son!* — **Al-Jinn (72:3)**
 <!-- quran-verse-end -->
 
 ---
