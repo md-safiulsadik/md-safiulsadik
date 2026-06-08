@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and unto thy Sustainer turn with love.* — **Ash-Sharh (94:8)**
+> 📖 *[Whereupon Iblis] said: "Now that Thou hast thwarted me," shall most certainly lie in ambush for them all along Thy straight way,* — **Al-A'raaf (7:16)**
 <!-- quran-verse-end -->
 
 ---
