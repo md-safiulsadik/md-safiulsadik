@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and on that Day you will most surely be called to account for [what you did with] the boon of life!* — **At-Takaathur (102:8)**
+> 📖 *BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.* — **Al-Qadr (97:1)**
 <!-- quran-verse-end -->
 
 ---
