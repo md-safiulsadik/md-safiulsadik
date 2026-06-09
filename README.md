@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.* — **Al-Qadr (97:1)**
+> 📖 *Thus, He let loose upon them great swarms of flying creatures* — **Al-Fil (105:3)**
 <!-- quran-verse-end -->
 
 ---
