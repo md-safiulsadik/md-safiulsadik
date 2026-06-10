@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [thus, O Prophet,] We have sent thee as [an evidence of Our] grace towards all the worlds.* — **Al-Anbiyaa (21:107)**
+> 📖 *and then, verily, O you who have gone astray and called the truth a lie,* — **Al-Waaqia (56:51)**
 <!-- quran-verse-end -->
 
 ---
