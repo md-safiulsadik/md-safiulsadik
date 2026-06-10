@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WOE unto every slanderer, fault-finder!* — **Al-Humaza (104:1)**
+> 📖 *but aloof from it will remain that most hapless wretch –* — **Al-A'laa (87:11)**
 <!-- quran-verse-end -->
 
 ---
