@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but aloof from it will remain that most hapless wretch –* — **Al-A'laa (87:11)**
+> 📖 *SO THAT the Quraysh might remain secure,* — **Quraish (106:1)**
 <!-- quran-verse-end -->
 
 ---
