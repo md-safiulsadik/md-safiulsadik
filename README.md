@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *As against this they who of their Sustainer are conscious shall [in the life to come] have man­sions raised upon mansions high, beneath which run­ning waters flow: [this is] God’s promise - [and] never does God fail to fulfill His promise.* — **Az-Zumar (39:20)**
+> 📖 *Behold, [in his earthly life] he lived joyfully among people of his own kind* — **Al-Inshiqaaq (84:13)**
 <!-- quran-verse-end -->
 
 ---
