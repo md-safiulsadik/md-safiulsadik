@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thus, He let loose upon them great swarms of flying creatures* — **Al-Fil (105:3)**
+> 📖 *Thereupon the command will go forth:] "Lay hold of him, and shackle him,* — **Al-Haaqqa (69:30)**
 <!-- quran-verse-end -->
 
 ---
