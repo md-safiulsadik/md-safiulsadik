@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Thereupon the command will go forth:] "Lay hold of him, and shackle him,* — **Al-Haaqqa (69:30)**
+> 📖 *Read - for thy Sustainer is the Most Bountiful One* — **Al-Alaq (96:3)**
 <!-- quran-verse-end -->
 
 ---
