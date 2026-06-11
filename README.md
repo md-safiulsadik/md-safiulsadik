@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [this retribution will befall all evildoers because] they devise that false imagery of theirs - and all their false imagery is within God's knowledge. [And never can the blasphemers prevail against the truth - not] even if their false imagery were so (well devised and so powerful] that mountains could be moved thereby.* — **Ibrahim (14:46)**
+> 📖 *and never - not on earth and not in the skies - can you [hope to] elude Him: and you have none to protect you from God, and none to bring you succour.”* — **Al-Ankaboot (29:22)**
 <!-- quran-verse-end -->
 
 ---
