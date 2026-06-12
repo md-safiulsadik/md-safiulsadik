@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"Go unto Pharaoh - for, verily, he has transgressed all bounds of what is right -* — **An-Naazi'aat (79:17)**
+> 📖 *ART THOU NOT aware of those who would be friends with people whom God has condemned? They are neither of you [O believers] nor of those [who utterly reject the truth]: and so they swear to a falsehood the while they know [it to be false].* — **Al-Mujaadila (58:14)**
 <!-- quran-verse-end -->
 
 ---
