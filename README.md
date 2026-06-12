@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, [in his earthly life] he lived joyfully among people of his own kind* — **Al-Inshiqaaq (84:13)**
+> 📖 *Said the most right-minded among them: "Did I not tell you, 'Will you not extol God's limitless glory?’"* — **Al-Qalam (68:28)**
 <!-- quran-verse-end -->
 
 ---
