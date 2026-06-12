@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said the most right-minded among them: "Did I not tell you, 'Will you not extol God's limitless glory?’"* — **Al-Qalam (68:28)**
+> 📖 *"Go unto Pharaoh - for, verily, he has transgressed all bounds of what is right -* — **An-Naazi'aat (79:17)**
 <!-- quran-verse-end -->
 
 ---
