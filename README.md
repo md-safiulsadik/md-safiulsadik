@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
+> 📖 *Ha. Mim.* — **Al-Jaathiya (45:1)**
 <!-- quran-verse-end -->
 
 ---
