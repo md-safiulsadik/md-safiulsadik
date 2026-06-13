@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and you do not urge one another to feed the needy,* — **Al-Fajr (89:18)**
+> 📖 *YOUR SUSTAINER is He who causes ships to move onward for you through the sea, so that you might go about in quest of some of His bounty: verily, a dispenser of grace is He unto you.* — **Al-Israa (17:66)**
 <!-- quran-verse-end -->
 
 ---
