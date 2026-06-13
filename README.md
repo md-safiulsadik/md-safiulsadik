@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In that case, we shall most certainly produce before thee the like thereof! Appoint, then, a tryst between us and thee - which we shall not fail to keep, nor [mayest] thou -at a suitable place!"* — **Taa-Haa (20:58)**
+> 📖 *and you do not urge one another to feed the needy,* — **Al-Fajr (89:18)**
 <!-- quran-verse-end -->
 
 ---
