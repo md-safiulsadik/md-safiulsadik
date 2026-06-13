@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [it shall be offered, too, unto the poor from among] those who, before them, had their abode in this realm and in faith - [those] who love all that come to them in search of refuge, and who harbour in their hearts no grudge for whatever the others may have been given, but rather give them preference over themselves, even though poverty be their own lot: for, such as from their own covetousness are saved - it is they, they that shall attain to a happy state!* — **Al-Hashr (59:9)**
+> 📖 *But as for him whose record shall be placed in his left hand, he will exclaim: "Oh, would that I had never been shown this my record,* — **Al-Haaqqa (69:25)**
 <!-- quran-verse-end -->
 
 ---
