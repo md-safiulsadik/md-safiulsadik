@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He answered: "Dost thou dislike my gods, O Abraham? Indeed, if thou desist not, I shall most certainly cause thee to be stoned to death! Now begone from me for good!"* — **Maryam (19:46)**
+> 📖 *In that case, we shall most certainly produce before thee the like thereof! Appoint, then, a tryst between us and thee - which we shall not fail to keep, nor [mayest] thou -at a suitable place!"* — **Taa-Haa (20:58)**
 <!-- quran-verse-end -->
 
 ---
