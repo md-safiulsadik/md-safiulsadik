@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND IT IS We who have built the universe with [Our creative] power; and, verily, it is We who are steadily expanding it.* — **Adh-Dhaariyat (51:47)**
+> 📖 *O YOU who have attained to faith! Be ever steadfast in your devotion to God, bearing witness to the truth in all equity; and never let hatred of any-one lead you into the sin of deviating from justice. Be just: this is closest to being God-conscious. And remain conscious of God: verily, God is aware of all that you do.* — **Al-Maaida (5:8)**
 <!-- quran-verse-end -->
 
 ---
