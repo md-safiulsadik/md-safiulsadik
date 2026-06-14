@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *who was wont to ask [me], ‘Why - art thou really one of those who believe it to be true* — **As-Saaffaat (37:52)**
+> 📖 *Thus have We determined [the nature of man's creation]: and excellent indeed is Our power to determine [what is to be]!* — **Al-Mursalaat (77:23)**
 <!-- quran-verse-end -->
 
 ---
