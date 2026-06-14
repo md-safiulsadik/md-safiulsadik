@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They challenge thee to hasten the coming upon them of [God’s] chastisement: but, verily, hell is bound to encompass all who deny the truth –* — **Al-Ankaboot (29:54)**
+> 📖 *and to whose life I gave so wide a scope:* — **Al-Muddaththir (74:14)**
 <!-- quran-verse-end -->
 
 ---
