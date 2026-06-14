@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and to whose life I gave so wide a scope:* — **Al-Muddaththir (74:14)**
+> 📖 *Endure it [now]! But [whether you] bear yourselves with patience or without patience, it will be the same to you: you are but being requited for what you were wont to do.”* — **At-Tur (52:16)**
 <!-- quran-verse-end -->
 
 ---
