@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "Unto whom belongs all that is in the heavens and on earth?" Say: "Unto God, who has willed upon Himself the law of grace and mercy. He will assuredly gather you all together on the Day of Resurrection, [the coming of] which is beyond all doubt: yet those who have squandered their own selves-it is they who refuse to believe [in Him],* — **Al-An'aam (6:12)**
+> 📖 *who was wont to ask [me], ‘Why - art thou really one of those who believe it to be true* — **As-Saaffaat (37:52)**
 <!-- quran-verse-end -->
 
 ---
