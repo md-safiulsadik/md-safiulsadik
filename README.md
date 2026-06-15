@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *excepting [from this interdict] only those who afterwards repent and made amends: for, behold, God is much forgiving, a dispenser of grace.* — **An-Noor (24:5)**
+> 📖 *that you should worship God [alone] and be conscious of Him. "Now do pay heed unto me,* — **Nooh (71:3)**
 <!-- quran-verse-end -->
 
 ---
