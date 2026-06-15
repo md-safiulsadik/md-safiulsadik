@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for him shall We make easy the path towards [ultimate] ease.* — **Al-Lail (92:7)**
+> 📖 *excepting [from this interdict] only those who afterwards repent and made amends: for, behold, God is much forgiving, a dispenser of grace.* — **An-Noor (24:5)**
 <!-- quran-verse-end -->
 
 ---
