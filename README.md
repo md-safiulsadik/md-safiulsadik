@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *that you should worship God [alone] and be conscious of Him. "Now do pay heed unto me,* — **Nooh (71:3)**
+> 📖 *or add to it [at will]; and [during that time] recite the Qur’an calmly and distinctly, with thy mind attuned to its meaning.* — **Al-Muzzammil (73:4)**
 <!-- quran-verse-end -->
 
 ---
