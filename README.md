@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And as for those who malign believing men and believing women without their having done any wrong - they surely burden themselves with the guilt of calumny, and [thus] with a flagrant sin!* — **Al-Ahzaab (33:58)**
+> 📖 *"And, O my people, no benefit do I ask of you for this [message]: my reward rests with none but God. And I shall not repulse [any of] those who have attained to faith. Verily, they [know that they] are destined to meet their Sustainer, whereas in you I see people without any awareness [of right and wrong]!* — **Hud (11:29)**
 <!-- quran-verse-end -->
 
 ---
