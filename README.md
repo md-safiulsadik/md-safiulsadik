@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *or add to it [at will]; and [during that time] recite the Qur’an calmly and distinctly, with thy mind attuned to its meaning.* — **Al-Muzzammil (73:4)**
+> 📖 *which smote them with stone-hard blows of chastisement pre-ordained,* — **Al-Fil (105:4)**
 <!-- quran-verse-end -->
 
 ---
