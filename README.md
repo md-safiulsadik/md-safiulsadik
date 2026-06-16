@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and unto thy Sustainer turn with love.* — **Ash-Sharh (94:8)**
+> 📖 *And as for those who malign believing men and believing women without their having done any wrong - they surely burden themselves with the guilt of calumny, and [thus] with a flagrant sin!* — **Al-Ahzaab (33:58)**
 <!-- quran-verse-end -->
 
 ---
