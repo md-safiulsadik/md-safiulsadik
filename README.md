@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But those who had been weak will say unto those who had gloried in their arrogance: “Nay, [what kept us away was your] devising of false arguments, night and day, [against God’s messages- as you did] when you persuaded us to blaspheme against God and to claim that there are powers that could rival Him!” And when they see the suffering [that awaits them], they will [all] be unable to express [the full depth of] their remorse: for We shall have put shackles around the necks of those who had been bent on denying the truth: [and] will this be aught but a [just] requital for what they were doing?* — **Saba (34:33)**
+> 📖 *and unto thy Sustainer turn with love.* — **Ash-Sharh (94:8)**
 <!-- quran-verse-end -->
 
 ---
