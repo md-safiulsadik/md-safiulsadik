@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"And, O my people, no benefit do I ask of you for this [message]: my reward rests with none but God. And I shall not repulse [any of] those who have attained to faith. Verily, they [know that they] are destined to meet their Sustainer, whereas in you I see people without any awareness [of right and wrong]!* — **Hud (11:29)**
+> 📖 *And so, when the truth came to them from Us, they said, "Behold, this is clearly nothing but sorcery!"* — **Yunus (10:76)**
 <!-- quran-verse-end -->
 
 ---
