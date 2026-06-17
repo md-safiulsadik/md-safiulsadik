@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, when the truth came to them from Us, they said, "Behold, this is clearly nothing but sorcery!"* — **Yunus (10:76)**
+> 📖 *and We said, “Go you both unto the people who have given the lie to Our messages!” - and thereupon We broke those [sinners] to smithereens.* — **Al-Furqaan (25:36)**
 <!-- quran-verse-end -->
 
 ---
