@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND, INDEED, We gave unto Moses nine clear messages. Ask, then, the children of Israel [to tell thee what happened] when he came unto them, [and appealed to Pharaoh,] and Pharaoh said unto him, "Verily, O Moses, I think that thou art full of sorcery!"* — **Al-Israa (17:101)**
+> 📖 *And so, when Our judgment came to pass, by Our grace We saved Shu'ayb and those who shared his faith, whereas the blast [of Our punishment] overtook those who had been bent on evildoing: and then they lay lifeless, in their very homes, on the ground,* — **Hud (11:94)**
 <!-- quran-verse-end -->
 
 ---
