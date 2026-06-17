@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and We said, “Go you both unto the people who have given the lie to Our messages!” - and thereupon We broke those [sinners] to smithereens.* — **Al-Furqaan (25:36)**
+> 📖 *Alif. Lam. Mim. Ra. THESE ARE MESSAGES of revelation: and what has been bestowed upon thee from on high by thy Sustainer is the truth-yet most people will not believe [in it]?* — **Ar-Ra'd (13:1)**
 <!-- quran-verse-end -->
 
 ---
