@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, when Our judgment came to pass, by Our grace We saved Shu'ayb and those who shared his faith, whereas the blast [of Our punishment] overtook those who had been bent on evildoing: and then they lay lifeless, in their very homes, on the ground,* — **Hud (11:94)**
+> 📖 *Guide us the straight way.* — **Al-Faatiha (1:6)**
 <!-- quran-verse-end -->
 
 ---
