@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And what could make thee conceive what that [abyss] will be?* — **Al-Qaari'a (101:10)**
+> 📖 *Said some [of them]: “We heard a youth speak of these [gods with scorn]: he is called Abraham.”* — **Al-Anbiyaa (21:60)**
 <!-- quran-verse-end -->
 
 ---
