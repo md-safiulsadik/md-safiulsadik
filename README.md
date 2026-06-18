@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “This is a message tremendous:* — **Saad (38:67)**
+> 📖 *And what could make thee conceive what that [abyss] will be?* — **Al-Qaari'a (101:10)**
 <!-- quran-verse-end -->
 
 ---
