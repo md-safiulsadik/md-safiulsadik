@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on the Day when We shall seize [all sinners] with a most mighty onslaught, We shall, verily, inflict Our retribution [on you as well]!* — **Ad-Dukhaan (44:16)**
+> 📖 *Say: “This is a message tremendous:* — **Saad (38:67)**
 <!-- quran-verse-end -->
 
 ---
