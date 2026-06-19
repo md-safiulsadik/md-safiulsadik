@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said some [of them]: “We heard a youth speak of these [gods with scorn]: he is called Abraham.”* — **Al-Anbiyaa (21:60)**
+> 📖 *therein to abide as long as the heavens and the earth endure-unless thy Sustainer wills it otherwise: for, verily, thy Sustainer is a sovereign doer of whatever He wills.* — **Hud (11:107)**
 <!-- quran-verse-end -->
 
 ---
