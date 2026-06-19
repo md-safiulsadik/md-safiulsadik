@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *therein to abide as long as the heavens and the earth endure-unless thy Sustainer wills it otherwise: for, verily, thy Sustainer is a sovereign doer of whatever He wills.* — **Hud (11:107)**
+> 📖 *SAY: "O you who deny the truth!* — **Al-Kaafiroon (109:1)**
 <!-- quran-verse-end -->
 
 ---
