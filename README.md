@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *On that Day will all men come forward, cut off from one another, to be shown their [past] deeds.* — **Az-Zalzala (99:6)**
+> 📖 *But Satan whispered unto him, saying: "O Adam! Shall I lead thee to the tree of life eternal; and [thus] to a kingdom that will never decay?"* — **Taa-Haa (20:120)**
 <!-- quran-verse-end -->
 
 ---
