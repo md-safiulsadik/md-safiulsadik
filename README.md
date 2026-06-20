@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He [it is who] has created the skies without any supports that you could see, and has placed firm mountains upon the earth, lest it sway with you, and has caused all manner of living creatures to multiply thereon. And We send down water from the skies, and thus We cause every noble kind [of life] to grow on earth.* — **Luqman (31:10)**
+> 📖 *for, verily, to the love of wealth is he most ardently devoted.* — **Al-Aadiyaat (100:8)**
 <!-- quran-verse-end -->
 
 ---
