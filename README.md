@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the mountains are made to vanish,* — **At-Takwir (81:3)**
+> 📖 *and remembers his Sustainer's name, and prays [unto Him].* — **Al-A'laa (87:15)**
 <!-- quran-verse-end -->
 
 ---
