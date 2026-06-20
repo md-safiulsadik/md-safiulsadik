@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HE FROWNED and turned away* — **Abasa (80:1)**
+> 📖 *which smote them with stone-hard blows of chastisement pre-ordained,* — **Al-Fil (105:4)**
 <!-- quran-verse-end -->
 
 ---
