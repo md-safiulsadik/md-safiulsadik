@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, verily, to the love of wealth is he most ardently devoted.* — **Al-Aadiyaat (100:8)**
+> 📖 *and when the mountains are made to vanish,* — **At-Takwir (81:3)**
 <!-- quran-verse-end -->
 
 ---
