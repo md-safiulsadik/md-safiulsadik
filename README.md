@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and remembers his Sustainer's name, and prays [unto Him].* — **Al-A'laa (87:15)**
+> 📖 *and, withal, deny all assistance [to their fellow-men]!* — **Al-Maa'un (107:7)**
 <!-- quran-verse-end -->
 
 ---
