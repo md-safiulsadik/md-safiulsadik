@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *fully conscious of what they are doing to the believers,* — **Al-Burooj (85:7)**
+> 📖 *O you who have attained to faith! Remain conscious of God. and give up all outstanding gains from usury, if you are [truly] believers;* — **Al-Baqara (2:278)**
 <!-- quran-verse-end -->
 
 ---
