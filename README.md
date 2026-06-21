@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and, behold, it is with my Sustainer - and your Sustainer - that I seek refuge against all your endeavours to revile me.* — **Ad-Dukhaan (44:20)**
+> 📖 *BEHOLD, God enjoins justice, and the doing of good, and generosity towards [one's] fellow-men; and He forbids all that is shameful and all that runs counter to reason, as well as envy; [and] He exhorts you [repeatedly] so that you might bear [all this] in mind.* — **An-Nahl (16:90)**
 <!-- quran-verse-end -->
 
 ---
