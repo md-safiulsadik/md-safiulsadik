@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And at the sky, how it is raised aloft?* — **Al-Ghaashiya (88:18)**
+> 📖 *Say: “This is a message tremendous:* — **Saad (38:67)**
 <!-- quran-verse-end -->
 
 ---
