@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “This is a message tremendous:* — **Saad (38:67)**
+> 📖 *In what other tiding, then, will they, after this, believe?* — **Al-Mursalaat (77:50)**
 <!-- quran-verse-end -->
 
 ---
