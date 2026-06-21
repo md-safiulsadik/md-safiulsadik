@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Indeed, in [the story of] Joseph and his brothers there are messages for all who search [after truth].* — **Yusuf (12:7)**
+> 📖 *AND [then] We appointed for Moses thirty nights [on Mount Sinai]; and We added to them ten, whereby the term of forty nights set bye, his Sustainer was fulfilled. And Moses said unto his brother Aaron: "Take thou my place among my people; and act righteously, and follow not the path of the spreaders of corruption."* — **Al-A'raaf (7:142)**
 <!-- quran-verse-end -->
 
 ---
