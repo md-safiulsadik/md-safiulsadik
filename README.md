@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, God enjoins justice, and the doing of good, and generosity towards [one's] fellow-men; and He forbids all that is shameful and all that runs counter to reason, as well as envy; [and] He exhorts you [repeatedly] so that you might bear [all this] in mind.* — **An-Nahl (16:90)**
+> 📖 *Indeed, in [the story of] Joseph and his brothers there are messages for all who search [after truth].* — **Yusuf (12:7)**
 <!-- quran-verse-end -->
 
 ---
