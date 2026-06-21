@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O you who have attained to faith! Remain conscious of God. and give up all outstanding gains from usury, if you are [truly] believers;* — **Al-Baqara (2:278)**
+> 📖 *and, behold, it is with my Sustainer - and your Sustainer - that I seek refuge against all your endeavours to revile me.* — **Ad-Dukhaan (44:20)**
 <!-- quran-verse-end -->
 
 ---
