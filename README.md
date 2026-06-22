@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *EXTOL, then, God’s limitless glory when you enter upon the evening hours, and when you rise at morn;* — **Ar-Room (30:17)**
+> 📖 *And once again he chose the right means [to achieve a right end].* — **Al-Kahf (18:89)**
 <!-- quran-verse-end -->
 
 ---
