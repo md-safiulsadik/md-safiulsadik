@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ALL THAT IS in the heavens and all that is on earth extols God's limitless glory: His is all dominion, and to Him all praise is due; and He has the power to will anything.* — **At-Taghaabun (64:1)**
+> 📖 *ART THOU NOT aware that it is God whose limit­less glory all [creatures] that are in the heavens and on earth extol, even the birds as they spread out their wings? Each [of them] knows indeed how to pray unto Him and to glorify Him; and God has full knowledge of all that they do:* — **An-Noor (24:41)**
 <!-- quran-verse-end -->
 
 ---
