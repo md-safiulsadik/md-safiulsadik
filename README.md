@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware that it is God whose limit­less glory all [creatures] that are in the heavens and on earth extol, even the birds as they spread out their wings? Each [of them] knows indeed how to pray unto Him and to glorify Him; and God has full knowledge of all that they do:* — **An-Noor (24:41)**
+> 📖 *Said he: "O my people! Do you hold my family in greater esteem than God? -for, Him you regard as something that may be cast behind you and be forgotten! Verily, my Sustainer encompasses [with His might] all that you do!* — **Hud (11:92)**
 <!-- quran-verse-end -->
 
 ---
