@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And once again he chose the right means [to achieve a right end].* — **Al-Kahf (18:89)**
+> 📖 *a source [of bliss] whereof those who are drawn close unto God shall drink.* — **Al-Mutaffifin (83:28)**
 <!-- quran-verse-end -->
 
 ---
