@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *In what other tiding, then, will they, after this, believe?* — **Al-Mursalaat (77:50)**
+> 📖 *EXTOL, then, God’s limitless glory when you enter upon the evening hours, and when you rise at morn;* — **Ar-Room (30:17)**
 <!-- quran-verse-end -->
 
 ---
