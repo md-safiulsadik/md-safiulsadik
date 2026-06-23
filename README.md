@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Said he: "O my people! Do you hold my family in greater esteem than God? -for, Him you regard as something that may be cast behind you and be forgotten! Verily, my Sustainer encompasses [with His might] all that you do!* — **Hud (11:92)**
+> 📖 *And what could make thee conceive what it is, that Night of Destiny?* — **Al-Qadr (97:2)**
 <!-- quran-verse-end -->
 
 ---
