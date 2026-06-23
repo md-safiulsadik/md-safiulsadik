@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet, you dwelt in the dwelling-places of those who had sinned against their own selves [before your time], and it was made obvious to you how We had dealt with them: for We have set forth unto you many a parable [of sin, resurrection and divine retribution]."* — **Ibrahim (14:45)**
+> 📖 *AND IF thou couldst but see [how it will be] when He causes those who are bent on denying the truth to die: the angels will strike their faces: and their backs, and [will say]: "Taste suffering through fire* — **Al-Anfaal (8:50)**
 <!-- quran-verse-end -->
 
 ---
