@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *clear, delightful to those who drink it:* — **As-Saaffaat (37:46)**
+> 📖 *And yet, you dwelt in the dwelling-places of those who had sinned against their own selves [before your time], and it was made obvious to you how We had dealt with them: for We have set forth unto you many a parable [of sin, resurrection and divine retribution]."* — **Ibrahim (14:45)**
 <!-- quran-verse-end -->
 
 ---
