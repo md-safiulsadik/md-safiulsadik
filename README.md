@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *(It is) they who [truly] follow God’s revelation, and are constant in prayer, and spend on others, secretly and openly, out of what We provide for them as sustenance - it is they who may look forward to a bargain that can never fail,* — **Faatir (35:29)**
+> 📖 *clear, delightful to those who drink it:* — **As-Saaffaat (37:46)**
 <!-- quran-verse-end -->
 
 ---
