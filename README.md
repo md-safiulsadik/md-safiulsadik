@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND IF thou couldst but see [how it will be] when He causes those who are bent on denying the truth to die: the angels will strike their faces: and their backs, and [will say]: "Taste suffering through fire* — **Al-Anfaal (8:50)**
+> 📖 *knowing all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind - the Almighty, the Wise!* — **At-Taghaabun (64:18)**
 <!-- quran-verse-end -->
 
 ---
