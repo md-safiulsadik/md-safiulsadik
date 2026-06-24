@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, verily, neither you [blasphemers] nor the objects of your worship* — **As-Saaffaat (37:161)**
+> 📖 *And bid thy people to pray, and persevere therein. [But remember:] We do not ask thee to provide sustenance [for Us]: it is We who provide sustenance for thee. And the future belongs to the God-conscious.* — **Taa-Haa (20:132)**
 <!-- quran-verse-end -->
 
 ---
