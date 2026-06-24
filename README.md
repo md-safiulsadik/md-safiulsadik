@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *knowing all that is beyond the reach of a created being's perception as well as all that can be witnessed by a creature's senses or mind - the Almighty, the Wise!* — **At-Taghaabun (64:18)**
+> 📖 *for, verily, neither you [blasphemers] nor the objects of your worship* — **As-Saaffaat (37:161)**
 <!-- quran-verse-end -->
 
 ---
