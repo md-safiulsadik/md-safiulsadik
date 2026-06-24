@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And bid thy people to pray, and persevere therein. [But remember:] We do not ask thee to provide sustenance [for Us]: it is We who provide sustenance for thee. And the future belongs to the God-conscious.* — **Taa-Haa (20:132)**
+> 📖 *[Or do they deny the existence of God?] Have they themselves been created without anything [that might have caused their creation]? or were they, perchance, their own creators?* — **At-Tur (52:35)**
 <!-- quran-verse-end -->
 
 ---
