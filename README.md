@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, We shall bestow upon thee a weighty message –* — **Al-Muzzammil (73:5)**
+> 📖 *Does he [claim to] have knowledge of some­thing that is beyond the reach of human perception, so that he can see [it clearly]?* — **An-Najm (53:35)**
 <!-- quran-verse-end -->
 
 ---
