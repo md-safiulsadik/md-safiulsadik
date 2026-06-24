@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and] who incessantly persevere in their prayer* — **Al-Ma'aarij (70:23)**
+> 📖 *although thou art not accountable for his failure to attain to purity;* — **Abasa (80:7)**
 <!-- quran-verse-end -->
 
 ---
