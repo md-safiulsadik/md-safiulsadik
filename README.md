@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Or do they deny the existence of God?] Have they themselves been created without anything [that might have caused their creation]? or were they, perchance, their own creators?* — **At-Tur (52:35)**
+> 📖 *Verily, he that hates thee has indeed been cut off [from all that is good]!* — **Al-Kawthar (108:3)**
 <!-- quran-verse-end -->
 
 ---
