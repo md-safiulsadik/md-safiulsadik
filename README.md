@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Does he [claim to] have knowledge of some­thing that is beyond the reach of human perception, so that he can see [it clearly]?* — **An-Najm (53:35)**
+> 📖 *[and] who incessantly persevere in their prayer* — **Al-Ma'aarij (70:23)**
 <!-- quran-verse-end -->
 
 ---
