@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *although thou art not accountable for his failure to attain to purity;* — **Abasa (80:7)**
+> 📖 *And how could we fail to believe in God and in whatever truth has come unto us, when we so fervently desire that our Sustainer count us among the righteous?"* — **Al-Maaida (5:84)**
 <!-- quran-verse-end -->
 
 ---
