@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and to establish them securely on earth, and to let Pharaoh and Haman and their hosts experience through those [children of Israel] the very thing against which they sought to protect themselves.* — **Al-Qasas (28:6)**
+> 📖 *Behold, they who lower their voices in the presence of God’s Apostle - it is they whose hearts God has tested [and opened] to consciousness of Himself; [and] theirs shall be forgiveness and a reward supreme.* — **Al-Hujuraat (49:3)**
 <!-- quran-verse-end -->
 
 ---
