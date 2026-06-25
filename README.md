@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And Pharaoh commanded: "Bring before me every sorcerer of great knowledge!"* — **Yunus (10:79)**
+> 📖 *and to establish them securely on earth, and to let Pharaoh and Haman and their hosts experience through those [children of Israel] the very thing against which they sought to protect themselves.* — **Al-Qasas (28:6)**
 <!-- quran-verse-end -->
 
 ---
