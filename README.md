@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And how could we fail to believe in God and in whatever truth has come unto us, when we so fervently desire that our Sustainer count us among the righteous?"* — **Al-Maaida (5:84)**
+> 📖 *Have, then, they [who deny the truth] never considered the birds, enabled [by God] to fly in mid-air, with none but God holding them aloft? In this, behold, there are messages indeed for people who will believe!* — **An-Nahl (16:79)**
 <!-- quran-verse-end -->
 
 ---
