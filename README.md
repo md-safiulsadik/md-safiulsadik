@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, they who lower their voices in the presence of God’s Apostle - it is they whose hearts God has tested [and opened] to consciousness of Himself; [and] theirs shall be forgiveness and a reward supreme.* — **Al-Hujuraat (49:3)**
+> 📖 *[And,] verily, those who have attained to faith, and do righteous deeds - it is they, they who are the best of all creatures.* — **Al-Bayyina (98:7)**
 <!-- quran-verse-end -->
 
 ---
