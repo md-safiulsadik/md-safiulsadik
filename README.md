@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[And,] verily, those who have attained to faith, and do righteous deeds - it is they, they who are the best of all creatures.* — **Al-Bayyina (98:7)**
+> 📖 *For, indeed, you did long for death [in God’s cause] before you came face to face with it; and now you have seen it with your own eyes!* — **Aal-i-Imraan (3:143)**
 <!-- quran-verse-end -->
 
 ---
