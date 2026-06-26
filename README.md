@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"the Sovereign of men,* — **An-Naas (114:2)**
+> 📖 *Now whatever calamity may befall you [on Judgment Day] will be an outcome of what your own hands have wrought, although He pardons much;* — **Ash-Shura (42:30)**
 <!-- quran-verse-end -->
 
 ---
