@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For, indeed, you did long for death [in God’s cause] before you came face to face with it; and now you have seen it with your own eyes!* — **Aal-i-Imraan (3:143)**
+> 📖 *just as for those who are [willing to be] guided, He increases their [ability to follow His] guidance and causes them to grow in God-consciousness.* — **Muhammad (47:17)**
 <!-- quran-verse-end -->
 
 ---
