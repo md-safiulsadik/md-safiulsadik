@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Will they not, then, ponder over this Qur’an? - or are there locks upon their hearts?* — **Muhammad (47:24)**
+> 📖 *"the Sovereign of men,* — **An-Naas (114:2)**
 <!-- quran-verse-end -->
 
 ---
