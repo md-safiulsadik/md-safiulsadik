@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *that you should worship God [alone] and be conscious of Him. "Now do pay heed unto me,* — **Nooh (71:3)**
+> 📖 *[for] all this is God's commandment, which He has bestowed upon you from on high. And unto everyone who is conscious of God will He pardon [some of] his bad deeds, and will grant him a vast reward.* — **At-Talaaq (65:5)**
 <!-- quran-verse-end -->
 
 ---
