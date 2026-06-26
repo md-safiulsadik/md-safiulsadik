@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[for] all this is God's commandment, which He has bestowed upon you from on high. And unto everyone who is conscious of God will He pardon [some of] his bad deeds, and will grant him a vast reward.* — **At-Talaaq (65:5)**
+> 📖 *[Remember how it was] when He caused inner calm to enfold you, as an assurance from Him, and sent down upon you water from the skies, so that He might purify you thereby and free you from Satan's unclean whisperings and strengthen your hearts and thus make firm your steps.* — **Al-Anfaal (8:11)**
 <!-- quran-verse-end -->
 
 ---
