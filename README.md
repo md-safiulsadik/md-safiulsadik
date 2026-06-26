@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Remember how it was] when He caused inner calm to enfold you, as an assurance from Him, and sent down upon you water from the skies, so that He might purify you thereby and free you from Satan's unclean whisperings and strengthen your hearts and thus make firm your steps.* — **Al-Anfaal (8:11)**
+> 📖 *Will they not, then, ponder over this Qur’an? - or are there locks upon their hearts?* — **Muhammad (47:24)**
 <!-- quran-verse-end -->
 
 ---
