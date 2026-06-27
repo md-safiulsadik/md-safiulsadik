@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And leave Me alone [to deal] with those who give the lie to the truth - those who enjoy the blessings of life [without any thought of God] - and bear thou with them for a little while:* — **Al-Muzzammil (73:11)**
+> 📖 *And [so,] convey to the believers the glad tiding that a great bounty from God awaits them;* — **Al-Ahzaab (33:47)**
 <!-- quran-verse-end -->
 
 ---
