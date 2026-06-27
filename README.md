@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [so,] convey to the believers the glad tiding that a great bounty from God awaits them;* — **Al-Ahzaab (33:47)**
+> 📖 *Believe in that which I have [now] bestowed from on high, confirming the truth already in your possession, and be not foremost among those who deny its truth; and do not barter away My messages for a trifling gain; and of Me, of Me be conscious* — **Al-Baqara (2:41)**
 <!-- quran-verse-end -->
 
 ---
