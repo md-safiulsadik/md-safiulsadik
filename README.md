@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the sun and its radiant brightness,* — **Ash-Shams (91:1)**
+> 📖 *But what have they [now] in their favour that God should not chastise them-seeing that they bar [the believers] from the Inviolable House of Worship, although they are not its [rightful] guardians? None but the God-conscious can be its guardians: but of this most of these [evildoers] are unaware;* — **Al-Anfaal (8:34)**
 <!-- quran-verse-end -->
 
 ---
