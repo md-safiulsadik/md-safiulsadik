@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now whatever calamity may befall you [on Judgment Day] will be an outcome of what your own hands have wrought, although He pardons much;* — **Ash-Shura (42:30)**
+> 📖 *AND ONCE AGAIN: We vouchsafed the divine writ unto Moses in fulfilment [of Our favour] upon those who persevered in doing good, clearly spelling out everything, and [thus providing] guidance and grace, so that they might have faith in the [final] meeting with their Sustainer.* — **Al-An'aam (6:154)**
 <!-- quran-verse-end -->
 
 ---
