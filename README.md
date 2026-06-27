@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *It will claim all such as turn their backs [on what is right], and turn away [from the truth],* — **Al-Ma'aarij (70:17)**
+> 📖 *AS FOR THOSE who are bent on denying the truth and on barring [others] from the path of God - all their [good] deeds will He let go to waste;* — **Muhammad (47:1)**
 <!-- quran-verse-end -->
 
 ---
