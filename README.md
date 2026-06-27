@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *But what have they [now] in their favour that God should not chastise them-seeing that they bar [the believers] from the Inviolable House of Worship, although they are not its [rightful] guardians? None but the God-conscious can be its guardians: but of this most of these [evildoers] are unaware;* — **Al-Anfaal (8:34)**
+> 📖 *But [bear in mind that] neither your kinsfolk nor [even] your own children will be of any benefit to you on Resurrection Day, [for then] He will decide between you [on your merit alone]: and God sees all that you do.* — **Al-Mumtahana (60:3)**
 <!-- quran-verse-end -->
 
 ---
