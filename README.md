@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND ONCE AGAIN: We vouchsafed the divine writ unto Moses in fulfilment [of Our favour] upon those who persevered in doing good, clearly spelling out everything, and [thus providing] guidance and grace, so that they might have faith in the [final] meeting with their Sustainer.* — **Al-An'aam (6:154)**
+> 📖 *CONSIDER the sun and its radiant brightness,* — **Ash-Shams (91:1)**
 <!-- quran-verse-end -->
 
 ---
