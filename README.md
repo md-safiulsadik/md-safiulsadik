@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[It will occur] on the Day when men will be like moths swarming in confusion,* — **Al-Qaari'a (101:4)**
+> 📖 *and thereafter We reduce him to the lowest of low* — **At-Tin (95:5)**
 <!-- quran-verse-end -->
 
 ---
