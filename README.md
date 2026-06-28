@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, turn towards your Sustainer [alone] and surrender yourselves unto Him ere the suffering [of death and resurrection] comes upon you, for then you will not be succoured.* — **Az-Zumar (39:54)**
+> 📖 *Hence, when thou art freed [from distress], remain steadfast,* — **Ash-Sharh (94:7)**
 <!-- quran-verse-end -->
 
 ---
