@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the mountains will be like fluffy tufts of wool....* — **Al-Qaari'a (101:5)**
+> 📖 *Hence, turn towards your Sustainer [alone] and surrender yourselves unto Him ere the suffering [of death and resurrection] comes upon you, for then you will not be succoured.* — **Az-Zumar (39:54)**
 <!-- quran-verse-end -->
 
 ---
