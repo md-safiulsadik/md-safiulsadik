@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, We have bestowed upon thee good in abundance:* — **Al-Kawthar (108:1)**
+> 📖 *And We gave them clear indications of the purpose [of faith]; and it was only after all this knowledge had been vouchsafed to them that they began, out of mutual jealousy, to hold divergent views: [but,] verily, thy Sustainer will judge be­tween them on Resurrection Day regarding all whereon they were wont to differ.* — **Al-Jaathiya (45:17)**
 <!-- quran-verse-end -->
 
 ---
