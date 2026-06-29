@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Let them, therefore, worship the Sustainer of this Temple;* — **Quraish (106:3)**
+> 📖 *but I shall bring all their scheming to nought.* — **At-Taariq (86:16)**
 <!-- quran-verse-end -->
 
 ---
