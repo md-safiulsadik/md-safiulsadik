@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, when thou art freed [from distress], remain steadfast,* — **Ash-Sharh (94:7)**
+> 📖 *but if the truth happens to be to their liking, they are quite willing to accept it!* — **An-Noor (24:49)**
 <!-- quran-verse-end -->
 
 ---
