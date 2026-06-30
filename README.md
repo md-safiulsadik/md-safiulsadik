@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Easy is it for Him to create likeness and variety:] thus, the two great bodies of water [on earth] are not alike the one sweet, thirst-allaying, pleasant to drink, and the other salty and bitter: and yet, from either of them do you eat fresh meat, and [from either] you take gems which you may wear; and on either thou canst see ships ploughing through the waves, so that you might [be able to] go forth in quest of some of His bounty, and thus have cause to be grateful.* — **Faatir (35:12)**
+> 📖 *VERILY, Abraham was a man who combined within himself all virtues, devoutly obeying God's will, turning away from all that is false, and not being of those who ascribe divinity to aught beside God:* — **An-Nahl (16:120)**
 <!-- quran-verse-end -->
 
 ---
