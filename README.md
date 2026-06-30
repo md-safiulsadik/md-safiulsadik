@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And We gave them clear indications of the purpose [of faith]; and it was only after all this knowledge had been vouchsafed to them that they began, out of mutual jealousy, to hold divergent views: [but,] verily, thy Sustainer will judge be­tween them on Resurrection Day regarding all whereon they were wont to differ.* — **Al-Jaathiya (45:17)**
+> 📖 *[Easy is it for Him to create likeness and variety:] thus, the two great bodies of water [on earth] are not alike the one sweet, thirst-allaying, pleasant to drink, and the other salty and bitter: and yet, from either of them do you eat fresh meat, and [from either] you take gems which you may wear; and on either thou canst see ships ploughing through the waves, so that you might [be able to] go forth in quest of some of His bounty, and thus have cause to be grateful.* — **Faatir (35:12)**
 <!-- quran-verse-end -->
 
 ---
