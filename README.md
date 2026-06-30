@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *This [message] is no less than a reminder to all mankind –* — **At-Takwir (81:27)**
+> 📖 *and who are intent on inner purity;* — **Al-Muminoon (23:4)**
 <!-- quran-verse-end -->
 
 ---
