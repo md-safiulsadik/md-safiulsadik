@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *VERILY, Abraham was a man who combined within himself all virtues, devoutly obeying God's will, turning away from all that is false, and not being of those who ascribe divinity to aught beside God:* — **An-Nahl (16:120)**
+> 📖 *This [message] is no less than a reminder to all mankind –* — **At-Takwir (81:27)**
 <!-- quran-verse-end -->
 
 ---
