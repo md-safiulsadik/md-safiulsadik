@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Pharaoh] exclaimed: “Behold, [this] your ‘apostle’ who [claims that he] has been sent unto you is mad indeed!* — **Ash-Shu'araa (26:27)**
+> 📖 *given to drink from a boiling spring.* — **Al-Ghaashiya (88:5)**
 <!-- quran-verse-end -->
 
 ---
