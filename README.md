@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *given to drink from a boiling spring.* — **Al-Ghaashiya (88:5)**
+> 📖 *[They will be seated] on gold-encrusted thrones of happiness,* — **Al-Waaqia (56:15)**
 <!-- quran-verse-end -->
 
 ---
