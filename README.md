@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[They will be seated] on gold-encrusted thrones of happiness,* — **Al-Waaqia (56:15)**
+> 📖 *Said some [of them]: “We heard a youth speak of these [gods with scorn]: he is called Abraham.”* — **Al-Anbiyaa (21:60)**
 <!-- quran-verse-end -->
 
 ---
