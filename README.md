@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[To pay heed to God’s signs and messages:] this is [the meaning of] guidance; on the other hand, for those who are bent on denying the truth of their Sustainer’s messages there is grievous suffering in store as an outcome of [their] vileness.* — **Al-Jaathiya (45:11)**
+> 📖 *Verily, he that hates thee has indeed been cut off [from all that is good]!* — **Al-Kawthar (108:3)**
 <!-- quran-verse-end -->
 
 ---
