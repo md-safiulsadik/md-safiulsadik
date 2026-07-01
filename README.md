@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND, INDEED, [long before Muhammad] We vouchsafed revelation unto Moses, and appointed his brother Aaron to help him to bear his burden;* — **Al-Furqaan (25:35)**
+> 📖 *O you who have attained to faith! Turn unto God in sincere repentance: it may well be that your Sustainer will efface from you your bad deeds, and will admit you into gardens through which running waters flow, on a Day on which God will not shame the Prophet and those who share his faith: their light will spread rapidly before them, and on their right; [and] they will pray: "O our Sustainer! Cause this our light to shine for us forever, and forgive us our sins: for, verily, Thou hast the power to will anything!"* — **At-Tahrim (66:8)**
 <!-- quran-verse-end -->
 
 ---
