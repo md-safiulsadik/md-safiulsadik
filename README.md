@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yea indeed! His Sustainer did see all that was in him!* — **Al-Inshiqaaq (84:15)**
+> 📖 *[Pharaoh] exclaimed: “Behold, [this] your ‘apostle’ who [claims that he] has been sent unto you is mad indeed!* — **Ash-Shu'araa (26:27)**
 <!-- quran-verse-end -->
 
 ---
