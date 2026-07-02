@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and which they shall not [be able to] evade.* — **Al-Infitaar (82:16)**
+> 📖 *verily, it will close in upon them* — **Al-Humaza (104:8)**
 <!-- quran-verse-end -->
 
 ---
