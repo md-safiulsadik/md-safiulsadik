@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware that God has created the heavens and the earth in accordance with [an inner] truth? He can, if He so wills, do away with you and bring forth a new mankind [in your stead]:* — **Ibrahim (14:19)**
+> 📖 *O men! It is you, who stand in need of God, whereas He alone is self-sufficient, the One to whom all praise is due.* — **Faatir (35:15)**
 <!-- quran-verse-end -->
 
 ---
