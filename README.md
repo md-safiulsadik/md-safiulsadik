@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *on that Day will she recount all her tidings,* — **Az-Zalzala (99:4)**
+> 📖 *and which they shall not [be able to] evade.* — **Al-Infitaar (82:16)**
 <!-- quran-verse-end -->
 
 ---
