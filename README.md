@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *verily, it will close in upon them* — **Al-Humaza (104:8)**
+> 📖 *VERILY, as for him who shall appear before his Sustainer [on Judgment Day] lost in sin - his [portion], behold, shall be hell: he will neither die therein nor live;* — **Taa-Haa (20:74)**
 <!-- quran-verse-end -->
 
 ---
