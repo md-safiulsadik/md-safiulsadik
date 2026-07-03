@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BEHOLD, from on high have We bestowed this [divine writ] on Night of Destiny.* — **Al-Qadr (97:1)**
+> 📖 *and then he looks [around for new arguments],* — **Al-Muddaththir (74:21)**
 <!-- quran-verse-end -->
 
 ---
