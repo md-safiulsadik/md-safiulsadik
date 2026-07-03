@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *crystal-like, [but] of silver - the measure whereof they alone will determine.* — **Al-Insaan (76:16)**
+> 📖 *for I have chosen thee for Mine Own service.* — **Taa-Haa (20:41)**
 <!-- quran-verse-end -->
 
 ---
