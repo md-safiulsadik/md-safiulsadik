@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then he looks [around for new arguments],* — **Al-Muddaththir (74:21)**
+> 📖 *in endless columns!* — **Al-Humaza (104:9)**
 <!-- quran-verse-end -->
 
 ---
