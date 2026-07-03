@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"He begets not, and neither is He begotten;* — **Al-Ikhlaas (112:3)**
+> 📖 *Behold, they [who refuse to accept it] devise many a false argument [to disprove its truth];* — **At-Taariq (86:15)**
 <!-- quran-verse-end -->
 
 ---
