@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *shall find himself in a happy' state of life;* — **Al-Qaari'a (101:7)**
+> 📖 *and if you [think that you] have a subterfuge left, try to outwit Me!"* — **Al-Mursalaat (77:39)**
 <!-- quran-verse-end -->
 
 ---
