@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and when the graves are overturned –* — **Al-Infitaar (82:4)**
+> 📖 *and you devour the inheritance [of others] with devouring greed,* — **Al-Fajr (89:19)**
 <!-- quran-verse-end -->
 
 ---
