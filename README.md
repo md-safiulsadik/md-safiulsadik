@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And whatever good they do, they shall never be denied the reward thereof: for, God has full knowledge of those who are conscious of Him.* — **Aal-i-Imraan (3:115)**
+> 📖 *"from the evil of aught that He has created,* — **Al-Falaq (113:2)**
 <!-- quran-verse-end -->
 
 ---
