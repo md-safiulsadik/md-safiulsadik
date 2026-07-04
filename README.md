@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereupon causes it to decay into rust-brown stubble!* — **Al-A'laa (87:5)**
+> 📖 *and when the graves are overturned –* — **Al-Infitaar (82:4)**
 <!-- quran-verse-end -->
 
 ---
