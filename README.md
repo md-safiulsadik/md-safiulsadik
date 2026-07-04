@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *in endless columns!* — **Al-Humaza (104:9)**
+> 📖 *as for those who attained to faith and did righteous deeds, they shall be made happy in a garden of delight;* — **Ar-Room (30:15)**
 <!-- quran-verse-end -->
 
 ---
