@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and it is He who accepts repen­tance from His servants, and pardons bad deeds, and knows all that you do,* — **Ash-Shura (42:25)**
+> 📖 *And whatever good they do, they shall never be denied the reward thereof: for, God has full knowledge of those who are conscious of Him.* — **Aal-i-Imraan (3:115)**
 <!-- quran-verse-end -->
 
 ---
