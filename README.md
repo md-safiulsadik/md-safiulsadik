@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [thus] shall We make easy for thee the path towards [ultimate] ease.* — **Al-A'laa (87:8)**
+> 📖 *and it is He who accepts repen­tance from His servants, and pardons bad deeds, and knows all that you do,* — **Ash-Shura (42:25)**
 <!-- quran-verse-end -->
 
 ---
