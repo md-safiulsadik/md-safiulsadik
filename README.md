@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"from the evil of aught that He has created,* — **Al-Falaq (113:2)**
+> 📖 *and thereupon causes it to decay into rust-brown stubble!* — **Al-A'laa (87:5)**
 <!-- quran-verse-end -->
 
 ---
