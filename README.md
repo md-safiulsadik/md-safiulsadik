@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Unto you, your moral law, and unto me, mine!"* — **Al-Kaafiroon (109:6)**
+> 📖 *Now had God so willed, He could surely have made them all one single community: none the less, He admits unto His grace him that wills [to be admitted] whereas the evildoers shall have none to protect them and none to succour them [on Judgment Day].* — **Ash-Shura (42:8)**
 <!-- quran-verse-end -->
 
 ---
