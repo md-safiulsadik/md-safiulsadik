@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[the word] of one to be heeded, and worthy of trust!* — **At-Takwir (81:21)**
+> 📖 *for none [of them] had any fear of what might befall them.* — **Ash-Shams (91:15)**
 <!-- quran-verse-end -->
 
 ---
