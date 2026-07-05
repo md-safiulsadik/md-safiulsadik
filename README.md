@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *to abide therein in accordance with God’s true promise: for He alone is almighty, truly wise.* — **Luqman (31:9)**
+> 📖 *Behold, this [Qur’an] is indeed the [inspired] word of a noble apostle,* — **Al-Haaqqa (69:40)**
 <!-- quran-verse-end -->
 
 ---
