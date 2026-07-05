@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Have they, then, any deity other than God? Utterly remote is God, in His limitless glory, from anything to which men may ascribe a share in His divinity!* — **At-Tur (52:43)**
+> 📖 *to abide therein in accordance with God’s true promise: for He alone is almighty, truly wise.* — **Luqman (31:9)**
 <!-- quran-verse-end -->
 
 ---
