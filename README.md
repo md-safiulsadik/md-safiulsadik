@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now had God so willed, He could surely have made them all one single community: none the less, He admits unto His grace him that wills [to be admitted] whereas the evildoers shall have none to protect them and none to succour them [on Judgment Day].* — **Ash-Shura (42:8)**
+> 📖 *They answered: "We are sent to people lost in sin [who are to be destroyed],* — **Al-Hijr (15:58)**
 <!-- quran-verse-end -->
 
 ---
