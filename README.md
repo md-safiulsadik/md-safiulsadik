@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for none [of them] had any fear of what might befall them.* — **Ash-Shams (91:15)**
+> 📖 *And what could make thee conceive what that [abyss] will be?* — **Al-Qaari'a (101:10)**
 <!-- quran-verse-end -->
 
 ---
