@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Behold, this [Qur’an] is indeed the [inspired] word of a noble apostle,* — **Al-Haaqqa (69:40)**
+> 📖 *Unto you, your moral law, and unto me, mine!"* — **Al-Kaafiroon (109:6)**
 <!-- quran-verse-end -->
 
 ---
