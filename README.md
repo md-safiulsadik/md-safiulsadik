@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, suffering in hell awaits all who are [thus] bent on blaspheming against their Sustainer: and how vile a journey's end!* — **Al-Mulk (67:6)**
+> 📖 *although there is no beast that walks on earth and no bird that flies on its two wings which is not [God's] creature like yourselves: no single thing have We neglected in Our decree. And once again: Unto their Sustainer shall they [all] be gathered.* — **Al-An'aam (6:38)**
 <!-- quran-verse-end -->
 
 ---
