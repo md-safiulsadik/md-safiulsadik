@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They answered: "We are sent to people lost in sin [who are to be destroyed],* — **Al-Hijr (15:58)**
+> 📖 *for him shall We make easy the path towards [ultimate] ease.* — **Al-Lail (92:7)**
 <!-- quran-verse-end -->
 
 ---
