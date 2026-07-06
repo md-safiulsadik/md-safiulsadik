@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for all the evil that they had done fell [back] upon them, and they were overwhelmed by the very thing which they had been wont to deride.* — **An-Nahl (16:34)**
+> 📖 *verily, it will close in upon them* — **Al-Humaza (104:8)**
 <!-- quran-verse-end -->
 
 ---
