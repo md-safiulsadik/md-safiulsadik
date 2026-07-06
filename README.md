@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for him shall We make easy the path towards [ultimate] ease.* — **Al-Lail (92:7)**
+> 📖 *for all the evil that they had done fell [back] upon them, and they were overwhelmed by the very thing which they had been wont to deride.* — **An-Nahl (16:34)**
 <!-- quran-verse-end -->
 
 ---
