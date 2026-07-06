@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *verily, it will close in upon them* — **Al-Humaza (104:8)**
+> 📖 *and so the blast [of Our punishment] overtook them at early morn,* — **Al-Hijr (15:83)**
 <!-- quran-verse-end -->
 
 ---
