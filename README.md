@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and so the blast [of Our punishment] overtook them at early morn,* — **Al-Hijr (15:83)**
+> 📖 *[say thou:] "Am I, then, to look unto anyone but God for judgment [as to what is right and wrong], when it is He who has bestowed upon you from on high this divine writ, clearly spelling out the truth?" And those unto whom We have vouchsafed revelation aforetime know that this one, too, has been bestowed from on high, step by step, by thy Sustainer. Be not, then, among the doubters-* — **Al-An'aam (6:114)**
 <!-- quran-verse-end -->
 
 ---
