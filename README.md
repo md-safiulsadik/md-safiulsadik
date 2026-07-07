@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but this [divine writ which they reject] is a discourse sublime,* — **Al-Burooj (85:21)**
+> 📖 *Endure it [now]! But [whether you] bear yourselves with patience or without patience, it will be the same to you: you are but being requited for what you were wont to do.”* — **At-Tur (52:16)**
 <!-- quran-verse-end -->
 
 ---
