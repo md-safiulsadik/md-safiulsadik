@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *As for them it is all the same whether thou dost pray that they be forgiven or dost not pray for them: God will nor forgive them - for, behold, God does not bestow His guidance upon such iniquitous folk.* — **Al-Munaafiqoon (63:6)**
+> 📖 *Whenever We will anything to be, We but say unto it Our word "Be" -and it is.* — **An-Nahl (16:40)**
 <!-- quran-verse-end -->
 
 ---
