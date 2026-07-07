@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *although there is no beast that walks on earth and no bird that flies on its two wings which is not [God's] creature like yourselves: no single thing have We neglected in Our decree. And once again: Unto their Sustainer shall they [all] be gathered.* — **Al-An'aam (6:38)**
+> 📖 *As for them it is all the same whether thou dost pray that they be forgiven or dost not pray for them: God will nor forgive them - for, behold, God does not bestow His guidance upon such iniquitous folk.* — **Al-Munaafiqoon (63:6)**
 <!-- quran-verse-end -->
 
 ---
