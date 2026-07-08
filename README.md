@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *until you go down to your graves.* — **At-Takaathur (102:2)**
+> 📖 *Said [the apostles]: “Our Sustainer knows that we have indeed been sent unto you;* — **Yaseen (36:16)**
 <!-- quran-verse-end -->
 
 ---
