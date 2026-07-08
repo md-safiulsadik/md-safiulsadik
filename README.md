@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *noble, recording,* — **Al-Infitaar (82:11)**
+> 📖 *and preferred the life of this world [to the good of his soul],* — **An-Naazi'aat (79:38)**
 <!-- quran-verse-end -->
 
 ---
