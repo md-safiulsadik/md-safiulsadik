@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SAY: “All praise is due to God, and peace be upon those servants of His whom He chose [to be His message-bearers]!” Is not God far better than anything to which men [falsely] ascribe a share in His divinity?* — **An-Naml (27:59)**
+> 📖 *Hence, verily, it is unto Him that we must always turn.”* — **Az-Zukhruf (43:14)**
 <!-- quran-verse-end -->
 
 ---
