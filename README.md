@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: “On the Day of the Final Decision, their [newly-found] faith will be of no use to those who [in their lifetime] were bent on denying the truth, nor will they be granted respite!” –* — **As-Sajda (32:29)**
+> 📖 *SAY: “All praise is due to God, and peace be upon those servants of His whom He chose [to be His message-bearers]!” Is not God far better than anything to which men [falsely] ascribe a share in His divinity?* — **An-Naml (27:59)**
 <!-- quran-verse-end -->
 
 ---
