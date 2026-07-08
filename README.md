@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now among His signs are the night and the day, as well as the sun and the moon: [hence,] adore not the sun or the moon, but prostrate yourselves in adoration before God, who has created them - if it is Him whom you [really] worship.* — **Fussilat (41:37)**
+> 📖 *Say: “On the Day of the Final Decision, their [newly-found] faith will be of no use to those who [in their lifetime] were bent on denying the truth, nor will they be granted respite!” –* — **As-Sajda (32:29)**
 <!-- quran-verse-end -->
 
 ---
