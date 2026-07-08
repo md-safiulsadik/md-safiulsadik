@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *IT IS NOT [conceivable] that such as are bent on denying the truth - [be they] from among the followers of earlier revelation or from among those who ascribe divinity to aught beside God should ever be abandoned [by Him] ere there comes unto them the [full] evidence of the truth:* — **Al-Bayyina (98:1)**
+> 📖 *Now among His signs are the night and the day, as well as the sun and the moon: [hence,] adore not the sun or the moon, but prostrate yourselves in adoration before God, who has created them - if it is Him whom you [really] worship.* — **Fussilat (41:37)**
 <!-- quran-verse-end -->
 
 ---
