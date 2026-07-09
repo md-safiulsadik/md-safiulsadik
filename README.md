@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Or dost thou think that most of them listen [to thy message] and use their reason? Nay, they are but like cattle - nay, they are even less conscious of the right way!* — **Al-Furqaan (25:44)**
+> 📖 *And after the two had walked some distance, [Moses] said to his servant: "Bring us our mid-day meal; we have indeed suffered hardship on this [day of] our journey!"* — **Al-Kahf (18:62)**
 <!-- quran-verse-end -->
 
 ---
