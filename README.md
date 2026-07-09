@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Extol, then, the limitless glory of thy Sus­tainer’s mighty name!* — **Al-Waaqia (56:96)**
+> 📖 *Or dost thou think that most of them listen [to thy message] and use their reason? Nay, they are but like cattle - nay, they are even less conscious of the right way!* — **Al-Furqaan (25:44)**
 <!-- quran-verse-end -->
 
 ---
