@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and] to whom the dominion of the heavens and the earth belongs. But God is witness unto everything!* — **Al-Burooj (85:9)**
+> 📖 *and then leave them alone, and wait [for the truth to unfold as] they, behold, are waiting.* — **As-Sajda (32:30)**
 <!-- quran-verse-end -->
 
 ---
