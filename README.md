@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then leave them alone, and wait [for the truth to unfold as] they, behold, are waiting.* — **As-Sajda (32:30)**
+> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
 <!-- quran-verse-end -->
 
 ---
