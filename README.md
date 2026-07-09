@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:69)**
+> 📖 *Extol, then, the limitless glory of thy Sus­tainer’s mighty name!* — **Al-Waaqia (56:96)**
 <!-- quran-verse-end -->
 
 ---
