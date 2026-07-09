@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Hence, verily, it is unto Him that we must always turn.”* — **Az-Zukhruf (43:14)**
+> 📖 *Which, then, of your Sustainer’s powers can you disavow?* — **Ar-Rahmaan (55:69)**
 <!-- quran-verse-end -->
 
 ---
