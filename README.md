@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And after the two had walked some distance, [Moses] said to his servant: "Bring us our mid-day meal; we have indeed suffered hardship on this [day of] our journey!"* — **Al-Kahf (18:62)**
+> 📖 *[and] to whom the dominion of the heavens and the earth belongs. But God is witness unto everything!* — **Al-Burooj (85:9)**
 <!-- quran-verse-end -->
 
 ---
