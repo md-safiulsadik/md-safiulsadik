@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for none [of them] had any fear of what might befall them.* — **Ash-Shams (91:15)**
+> 📖 *Say [O Prophet]: "This is my way: Resting upon conscious insight accessible to reason, I am calling [you all] unto God - I and they who follow me." And [say:] "Limitless is God in His glory; and I am not one of those who ascribe divinity to aught beside Him!"* — **Yusuf (12:108)**
 <!-- quran-verse-end -->
 
 ---
