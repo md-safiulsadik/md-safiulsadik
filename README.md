@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the flight of time!* — **Al-Asr (103:1)**
+> 📖 *and who, whenever they spend on others, are neither wasteful nor niggardly but [remember that] there is always a just mean between those [two extremes];* — **Al-Furqaan (25:67)**
 <!-- quran-verse-end -->
 
 ---
