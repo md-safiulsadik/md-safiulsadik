@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Had it not been for a decree from God that had already gone forth, there would indeed have befallen you a tremendous chastisement on account of all [the captives] that you took.* — **Al-Anfaal (8:68)**
+> 📖 *but when they have to measure or weigh whatever they owe to others, give less than what is due!* — **Al-Mutaffifin (83:3)**
 <!-- quran-verse-end -->
 
 ---
