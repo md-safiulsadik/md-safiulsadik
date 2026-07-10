@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *but when they have to measure or weigh whatever they owe to others, give less than what is due!* — **Al-Mutaffifin (83:3)**
+> 📖 *nor any food save the filth* — **Al-Haaqqa (69:36)**
 <!-- quran-verse-end -->
 
 ---
