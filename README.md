@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who, whenever they spend on others, are neither wasteful nor niggardly but [remember that] there is always a just mean between those [two extremes];* — **Al-Furqaan (25:67)**
+> 📖 *for none [of them] had any fear of what might befall them.* — **Ash-Shams (91:15)**
 <!-- quran-verse-end -->
 
 ---
