@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say [O Prophet]: "This is my way: Resting upon conscious insight accessible to reason, I am calling [you all] unto God - I and they who follow me." And [say:] "Limitless is God in His glory; and I am not one of those who ascribe divinity to aught beside Him!"* — **Yusuf (12:108)**
+> 📖 *ARE, THEN, they who are bent on denying the truth not aware that the heavens and the earth were [once] one single entity, which We then parted asunder? – and [that] We made out of water every living thing? Will they not, then, [begin to] believe?* — **Al-Anbiyaa (21:30)**
 <!-- quran-verse-end -->
 
 ---
