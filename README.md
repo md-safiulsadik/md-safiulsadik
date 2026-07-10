@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ARE, THEN, they who are bent on denying the truth not aware that the heavens and the earth were [once] one single entity, which We then parted asunder? – and [that] We made out of water every living thing? Will they not, then, [begin to] believe?* — **Al-Anbiyaa (21:30)**
+> 📖 *Had it not been for a decree from God that had already gone forth, there would indeed have befallen you a tremendous chastisement on account of all [the captives] that you took.* — **Al-Anfaal (8:68)**
 <!-- quran-verse-end -->
 
 ---
