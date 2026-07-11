@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and [man] will have neither strength nor helper!* — **At-Taariq (86:10)**
+> 📖 *And when they who were wont to ascribe divinity to beings other than God behold [on Judgment Day] those beings to whom they were wont to ascribe a share in His divinity, they will exclaim: "O our Sustainer! These are the beings to whom we ascribed a share in Thy divinity, and whom we were wont to invoke instead of Thee!" -whereupon [those beings] will fling at them the retort: "Behold, you have indeed been lying [to yourselves]!"* — **An-Nahl (16:86)**
 <!-- quran-verse-end -->
 
 ---
