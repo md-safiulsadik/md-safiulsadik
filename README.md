@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"who whispers in the hearts of men* — **An-Naas (114:5)**
+> 📖 *For, unto Him belongs every being that is in the heavens and on earth; all things devoutly obey His will.* — **Ar-Room (30:26)**
 <!-- quran-verse-end -->
 
 ---
