@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and Mount Sinai,* — **At-Tin (95:2)**
+> 📖 *who but wait to see what betides you: thus, if triumph comes to you from God, they say, "Were we not on your side?"- whereas if those who deny the truth are in luck, they say [to them], "Have we not earned your affection by defending you against those be­lievers?'' But God will judge between you all on the Day of Resurrection; and never will God allow those who deny the truth to harm the believers.* — **An-Nisaa (4:141)**
 <!-- quran-verse-end -->
 
 ---
