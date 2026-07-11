@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *well-nigh bursting with fury; [and] every time a host [of such sinners] is flung into it, its keepers will ask them, "Has no warner ever come to you?"* — **Al-Mulk (67:8)**
+> 📖 *[In such a paradise the blest will dwell,] reclin­ing upon carpets lined with rich brocade; and the fruit of both these gardens will be within easy reach.* — **Ar-Rahmaan (55:54)**
 <!-- quran-verse-end -->
 
 ---
