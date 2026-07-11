@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And when they who were wont to ascribe divinity to beings other than God behold [on Judgment Day] those beings to whom they were wont to ascribe a share in His divinity, they will exclaim: "O our Sustainer! These are the beings to whom we ascribed a share in Thy divinity, and whom we were wont to invoke instead of Thee!" -whereupon [those beings] will fling at them the retort: "Behold, you have indeed been lying [to yourselves]!"* — **An-Nahl (16:86)**
+> 📖 *And who could be more wicked than he who invents a lie about God, or says, "This has been revealed unto me," the while nothing has been revealed to him? - or he who says, "I, too, can bestow from on high the like of what God has bestowed"? If thou couldst but see [how it will be] when these evildoers find themselves in the agonies of death, and the angels stretch forth their hands [and call]: "Give up your souls! Today you shall be requited with the suffering of humiliation for having attributed to God something that is not true, and for having persistently scorned His messages in your arrogance!"* — **Al-An'aam (6:93)**
 <!-- quran-verse-end -->
 
 ---
