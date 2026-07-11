@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet thus it is [with most people]: if thou ask them, “Who is it that has created the heavens and the earth?” - they will surely answer, “The Almighty, the All-Knowing has created them.”* — **Az-Zukhruf (43:9)**
+> 📖 *well-nigh bursting with fury; [and] every time a host [of such sinners] is flung into it, its keepers will ask them, "Has no warner ever come to you?"* — **Al-Mulk (67:8)**
 <!-- quran-verse-end -->
 
 ---
