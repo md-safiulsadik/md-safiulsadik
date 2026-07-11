@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And who could be more wicked than he who invents a lie about God, or says, "This has been revealed unto me," the while nothing has been revealed to him? - or he who says, "I, too, can bestow from on high the like of what God has bestowed"? If thou couldst but see [how it will be] when these evildoers find themselves in the agonies of death, and the angels stretch forth their hands [and call]: "Give up your souls! Today you shall be requited with the suffering of humiliation for having attributed to God something that is not true, and for having persistently scorned His messages in your arrogance!"* — **Al-An'aam (6:93)**
+> 📖 *"who whispers in the hearts of men* — **An-Naas (114:5)**
 <!-- quran-verse-end -->
 
 ---
