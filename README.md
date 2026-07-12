@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Indeed, in [the story of] Joseph and his brothers there are messages for all who search [after truth].* — **Yusuf (12:7)**
+> 📖 *and thereafter became a germ-cell - whereupon He created and formed [it] in accordance with what [it] was meant to be,* — **Al-Qiyaama (75:38)**
 <!-- quran-verse-end -->
 
 ---
