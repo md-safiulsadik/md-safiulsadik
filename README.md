@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *BUT NAY! I call to witness the sunset's [fleeting] afterglow,* — **Al-Inshiqaaq (84:16)**
+> 📖 *AND, INDEED, We have propounded unto men all kinds of parables in this Qur’an. But thus it is: if thou approach them with any [such] message, those who are bent on denying the truth are sure to say, “You are but making false claims!”* — **Ar-Room (30:58)**
 <!-- quran-verse-end -->
 
 ---
