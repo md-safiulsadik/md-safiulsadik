@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thinking that his wealth will make him live forever!* — **Al-Humaza (104:3)**
+> 📖 *Woe on that Day unto those who give the lie to the truth!* — **Al-Mursalaat (77:28)**
 <!-- quran-verse-end -->
 
 ---
