@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which none but the sinners eat!"* — **Al-Haaqqa (69:37)**
+> 📖 *thinking that his wealth will make him live forever!* — **Al-Humaza (104:3)**
 <!-- quran-verse-end -->
 
 ---
