@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *He makes the night grow longer by shortening the day, and He makes the day grow longer by shortening the night; and He has made the sun and the moon subservient [to His laws], each running its course for a term set [by Him]. Thus is God, your Sustainer: unto Him belongs all dominion - whereas those whom you invoke instead of Him do not own so much as the husk of a date-stone!* — **Faatir (35:13)**
+> 📖 *And thou canst see many of them vie with one another in sinning and tyrannical conduct and in their swallowing of all that is evil.* — **Al-Maaida (5:62)**
 <!-- quran-verse-end -->
 
 ---
