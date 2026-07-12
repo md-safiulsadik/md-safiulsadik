@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thereafter We reduce him to the lowest of low* — **At-Tin (95:5)**
+> 📖 *which none but the sinners eat!"* — **Al-Haaqqa (69:37)**
 <!-- quran-verse-end -->
 
 ---
