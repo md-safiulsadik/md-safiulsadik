@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and, behold, Ours is [the dominion over] the life to come as well as [over] this earlier part [of your life]:* — **Al-Lail (92:13)**
+> 📖 *"who whispers in the hearts of men* — **An-Naas (114:5)**
 <!-- quran-verse-end -->
 
 ---
