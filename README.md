@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].* — **Al-Kawthar (108:2)**
+> 📖 *and man cries out, "What has happened to her?" -* — **Az-Zalzala (99:3)**
 <!-- quran-verse-end -->
 
 ---
