@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *SO THAT the Quraysh might remain secure,* — **Quraish (106:1)**
+> 📖 *hence, pray unto thy Sustainer [alone], and sacrifice [unto Him alone].* — **Al-Kawthar (108:2)**
 <!-- quran-verse-end -->
 
 ---
