@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [as for those who now deny the truth,] one Day He will gather them all together, and will ask the angels, “Was it you that they were wont to worship?”* — **Saba (34:40)**
+> 📖 *SO THAT the Quraysh might remain secure,* — **Quraish (106:1)**
 <!-- quran-verse-end -->
 
 ---
