@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and man cries out, "What has happened to her?" -* — **Az-Zalzala (99:3)**
+> 📖 *[an angel] endowed with sur­passing power, who in time manifested himself in his true shape and nature,* — **An-Najm (53:6)**
 <!-- quran-verse-end -->
 
 ---
