@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"who whispers in the hearts of men* — **An-Naas (114:5)**
+> 📖 *These it is who in the gardens [of paradise] shall be honoured!* — **Al-Ma'aarij (70:35)**
 <!-- quran-verse-end -->
 
 ---
