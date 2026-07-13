@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"and there is nothing that could be compared with Him.* — **Al-Ikhlaas (112:4)**
+> 📖 *and, behold, Ours is [the dominion over] the life to come as well as [over] this earlier part [of your life]:* — **Al-Lail (92:13)**
 <!-- quran-verse-end -->
 
 ---
