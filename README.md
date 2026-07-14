@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the Sustainer of the heavens and the earth and all that is between them - if you could but grasp it with inner certainty!* — **Ad-Dukhaan (44:7)**
+> 📖 *AND UNTO GOD belongs the dominion over the heavens and the earth: and God has the power to will anything.* — **Aal-i-Imraan (3:189)**
 <!-- quran-verse-end -->
 
 ---
