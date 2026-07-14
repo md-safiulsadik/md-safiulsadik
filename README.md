@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[an angel] endowed with sur­passing power, who in time manifested himself in his true shape and nature,* — **An-Najm (53:6)**
+> 📖 *You worship only [lifeless] idols instead of God, and [thus] you give visible shape to a lie! Behold, those [things and beings] that you worship instead of God have it not in their power to provide sustenance for you: seek, then, all [your] sustenance from God, and worship Him [alone] and be grateful to Him: [for] unto Him you shall be brought back!* — **Al-Ankaboot (29:17)**
 <!-- quran-verse-end -->
 
 ---
