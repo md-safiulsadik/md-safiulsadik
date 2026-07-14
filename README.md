@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *CONSIDER the fig and the olive,* — **At-Tin (95:1)**
+> 📖 *the Sustainer of the heavens and the earth and all that is between them - if you could but grasp it with inner certainty!* — **Ad-Dukhaan (44:7)**
 <!-- quran-verse-end -->
 
 ---
