@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, numerous among you are those who would falsely accuse others of unchastity: [but, O you who are thus wronged,] deem it not a bad thing for you: nay, it is good for you! [As for the slanderers,] unto every one of them [will be accounted] all that he has earned by [thus] sinning; and awesome suffering awaits any of them who takes it upon himself to enhance this [sin]!* — **An-Noor (24:11)**
+> 📖 *and who guard their prayers [from all worldly intent].* — **Al-Ma'aarij (70:34)**
 <!-- quran-verse-end -->
 
 ---
