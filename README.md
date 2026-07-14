@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *HAD WE bestowed this Qur’an from on high upon a mountain, thou wouldst indeed see it humbling itself, breaking asunder for awe of God. And [all] such parables We propound unto men, so that they might [learn to] think.* — **Al-Hashr (59:21)**
+> 📖 *Verily, numerous among you are those who would falsely accuse others of unchastity: [but, O you who are thus wronged,] deem it not a bad thing for you: nay, it is good for you! [As for the slanderers,] unto every one of them [will be accounted] all that he has earned by [thus] sinning; and awesome suffering awaits any of them who takes it upon himself to enhance this [sin]!* — **An-Noor (24:11)**
 <!-- quran-verse-end -->
 
 ---
