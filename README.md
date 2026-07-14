@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *because the blind man approached him!* — **Abasa (80:2)**
+> 📖 *HAD WE bestowed this Qur’an from on high upon a mountain, thou wouldst indeed see it humbling itself, breaking asunder for awe of God. And [all] such parables We propound unto men, so that they might [learn to] think.* — **Al-Hashr (59:21)**
 <!-- quran-verse-end -->
 
 ---
