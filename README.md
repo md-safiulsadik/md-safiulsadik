@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Not equal are those who are destined for the fire and those who are destined for paradise: those who are destined for paradise - it is they, they [alone] who shall triumph [on Judgment Day]!* — **Al-Hashr (59:20)**
+> 📖 *All praise is due to God alone, the Sustainer of all the worlds,* — **Al-Faatiha (1:2)**
 <!-- quran-verse-end -->
 
 ---
