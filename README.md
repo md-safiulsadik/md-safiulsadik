@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *of those who have responded to their Sustainer with a goodly response, and of those who did not respond to Him. [As for the latter,] if they possessed all that is on earth, and twice as much, they would surely offer it as ransom [on the Day of Judgment]: a most evil reckoning awaits them, and their goal is hell: and how evil a resting-place!* — **Ar-Ra'd (13:18)**
+> 📖 *If He so wills, He can do away with you and bring forth a new mankind [in your stead]:* — **Faatir (35:16)**
 <!-- quran-verse-end -->
 
 ---
