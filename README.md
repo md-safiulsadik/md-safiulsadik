@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Announce unto them:] "Go, then, [freely] about the earth for four months -but know that you can never elude God, and that, verily, God shall bring disgrace upon all who refuse to acknowledge the truth!"* — **At-Tawba (9:2)**
+> 📖 *Not equal are those who are destined for the fire and those who are destined for paradise: those who are destined for paradise - it is they, they [alone] who shall triumph [on Judgment Day]!* — **Al-Hashr (59:20)**
 <!-- quran-verse-end -->
 
 ---
