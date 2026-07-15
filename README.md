@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *All praise is due to God alone, the Sustainer of all the worlds,* — **Al-Faatiha (1:2)**
+> 📖 *And [now] throw that [staff] which is in thy right hand -it shall swallow up all that they have wrought: [for] they have wrought only a sorcerer's artifice, and the sorcerer can never come to any good, whatever he may aim at!"* — **Taa-Haa (20:69)**
 <!-- quran-verse-end -->
 
 ---
