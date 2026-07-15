@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and bethink thyself, too, of] the Day on which all [human beings] will in truth hear the final blast - that Day of [their] coming-forth [from death].* — **Qaaf (50:42)**
+> 📖 *It is the star that pierces through [life's] darkness:* — **At-Taariq (86:3)**
 <!-- quran-verse-end -->
 
 ---
