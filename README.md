@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *If He so wills, He can do away with you and bring forth a new mankind [in your stead]:* — **Faatir (35:16)**
+> 📖 *[Announce unto them:] "Go, then, [freely] about the earth for four months -but know that you can never elude God, and that, verily, God shall bring disgrace upon all who refuse to acknowledge the truth!"* — **At-Tawba (9:2)**
 <!-- quran-verse-end -->
 
 ---
