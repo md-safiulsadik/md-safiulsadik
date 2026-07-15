@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [now] throw that [staff] which is in thy right hand -it shall swallow up all that they have wrought: [for] they have wrought only a sorcerer's artifice, and the sorcerer can never come to any good, whatever he may aim at!"* — **Taa-Haa (20:69)**
+> 📖 *And how could we not place our trust in God, seeing that it is He who has shown us the path which we are to follow? "Hence, we shall certainly bear with patience whatever hurt you may do us: for, all who have trust [in His existence] must place their trust in God [alone]!"* — **Ibrahim (14:12)**
 <!-- quran-verse-end -->
 
 ---
