@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *AND UNTO GOD belongs the dominion over the heavens and the earth: and God has the power to will anything.* — **Aal-i-Imraan (3:189)**
+> 📖 *And on the Day when He shall gather them [unto Himself, it will seem to them] as if they had not tarried [on earth] longer than an hour of a day, knowing one another; [and] lost indeed will be they who [in their lifetime] considered it a lie that they were destined to meet God, and [thus] failed to find the right' way.* — **Yunus (10:45)**
 <!-- quran-verse-end -->
 
 ---
