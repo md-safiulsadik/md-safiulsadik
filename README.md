@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *providing guidance and grace unto the doers of good* — **Luqman (31:3)**
+> 📖 *And immortal youths will wait upon them: when thou seest them, thou wouldst deem them to be scattered pearls;* — **Al-Insaan (76:19)**
 <!-- quran-verse-end -->
 
 ---
