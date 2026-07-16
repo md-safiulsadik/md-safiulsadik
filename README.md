@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Many people think that they have bestowed a favour upon thee [O Prophet] by having surrendered [to thee]. Say thou: “Deem not your surrender a favour unto me: nay, but it is God who bestows a favour upon you by showing you the way to faith - if you are true to your word!”* — **Al-Hujuraat (49:17)**
+> 📖 *Had it not been for a decree from God that had already gone forth, there would indeed have befallen you a tremendous chastisement on account of all [the captives] that you took.* — **Al-Anfaal (8:68)**
 <!-- quran-verse-end -->
 
 ---
