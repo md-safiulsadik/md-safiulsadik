@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and the mountains will move with [an awesome] movement.* — **At-Tur (52:10)**
+> 📖 *[for, resting in paradise] on couches, they will look on [and say to themselves]:* — **Al-Mutaffifin (83:35)**
 <!-- quran-verse-end -->
 
 ---
