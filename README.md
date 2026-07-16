@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[for, resting in paradise] on couches, they will look on [and say to themselves]:* — **Al-Mutaffifin (83:35)**
+> 📖 *providing guidance and grace unto the doers of good* — **Luqman (31:3)**
 <!-- quran-verse-end -->
 
 ---
