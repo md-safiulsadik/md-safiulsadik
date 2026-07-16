@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And how could we not place our trust in God, seeing that it is He who has shown us the path which we are to follow? "Hence, we shall certainly bear with patience whatever hurt you may do us: for, all who have trust [in His existence] must place their trust in God [alone]!"* — **Ibrahim (14:12)**
+> 📖 *and the mountains will move with [an awesome] movement.* — **At-Tur (52:10)**
 <!-- quran-verse-end -->
 
 ---
