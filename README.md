@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And We let loose the winds to fertilize [plants] and We send down water from the skies and let you drink thereof: and it is not you who dispose of its source-* — **Al-Hijr (15:22)**
+> 📖 *and then, behold, it will be for Us to make its meaning clear.* — **Al-Qiyaama (75:19)**
 <!-- quran-verse-end -->
 
 ---
