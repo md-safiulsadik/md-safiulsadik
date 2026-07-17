@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *That requital of God’s enemies will be the fire [of the hereafter]: in it will they have an abode of immeasurable duration as an outcome of their having knowingly rejected Our messages.* — **Fussilat (41:28)**
+> 📖 *when that most hapless wretch from among them rushed forward [to commit his evil deed],* — **Ash-Shams (91:12)**
 <!-- quran-verse-end -->
 
 ---
