@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *when that most hapless wretch from among them rushed forward [to commit his evil deed],* — **Ash-Shams (91:12)**
+> 📖 *And, behold, there are indeed among you such as would lag behind, and then, if calamity befalls you, say, "God has bestowed His favour upon me in that I did not accompany them."* — **An-Nisaa (4:72)**
 <!-- quran-verse-end -->
 
 ---
