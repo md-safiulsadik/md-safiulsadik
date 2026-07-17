@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *The Night of Destiny is better than a thousand months:* — **Al-Qadr (97:3)**
+> 📖 *“And, O our Sustainer, bring them into the gardens of perpetual bliss which Thou hast promised them, together with the righteous from among their forebears, and their spouses, and their offspring - for, verily, Thou alone art almighty, truly wise –* — **Ghafir (40:8)**
 <!-- quran-verse-end -->
 
 ---
