@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *which smote them with stone-hard blows of chastisement pre-ordained,* — **Al-Fil (105:4)**
+> 📖 *Excepted, however, shall be they that repent, and put themselves to rights, and make known the truth: and it is they whose repentance I shall accept-for I alone am the Acceptor of Repentance, the Dispenser of Grace.* — **Al-Baqara (2:160)**
 <!-- quran-verse-end -->
 
 ---
