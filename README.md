@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and then, behold, it will be for Us to make its meaning clear.* — **Al-Qiyaama (75:19)**
+> 📖 *even though a short while ago, [just] before it was sent down upon them, they had abandoned all hope!* — **Ar-Room (30:49)**
 <!-- quran-verse-end -->
 
 ---
