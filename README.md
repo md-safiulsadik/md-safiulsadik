@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, behold, there are indeed among you such as would lag behind, and then, if calamity befalls you, say, "God has bestowed His favour upon me in that I did not accompany them."* — **An-Nisaa (4:72)**
+> 📖 *And We let loose the winds to fertilize [plants] and We send down water from the skies and let you drink thereof: and it is not you who dispose of its source-* — **Al-Hijr (15:22)**
 <!-- quran-verse-end -->
 
 ---
