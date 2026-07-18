@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, suffering in hell awaits all who are [thus] bent on blaspheming against their Sustainer: and how vile a journey's end!* — **Al-Mulk (67:6)**
+> 📖 *Yet [thus it is] that whenever a servant of God stands up in prayer to Him, they [who are bent on denying the truth] would gladly overwhelm him with their crowds.* — **Al-Jinn (72:19)**
 <!-- quran-verse-end -->
 
 ---
