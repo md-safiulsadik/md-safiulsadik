@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Yet [thus it is] that whenever a servant of God stands up in prayer to Him, they [who are bent on denying the truth] would gladly overwhelm him with their crowds.* — **Al-Jinn (72:19)**
+> 📖 *and thou seest people enter God's religion in hosts,* — **An-Nasr (110:2)**
 <!-- quran-verse-end -->
 
 ---
