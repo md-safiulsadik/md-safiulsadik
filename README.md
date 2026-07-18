@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for, verily, thy Sustainer is ever on the watch!* — **Al-Fajr (89:14)**
+> 📖 *crystal-like, [but] of silver - the measure whereof they alone will determine.* — **Al-Insaan (76:16)**
 <!-- quran-verse-end -->
 
 ---
