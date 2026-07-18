@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And so, when Our judgment came to pass, by Our grace We saved Hud and those who shared his faith; and We saved them [too] from suffering severe [in the life to come].* — **Hud (11:58)**
+> 📖 *for, suffering in hell awaits all who are [thus] bent on blaspheming against their Sustainer: and how vile a journey's end!* — **Al-Mulk (67:6)**
 <!-- quran-verse-end -->
 
 ---
