@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and thou seest people enter God's religion in hosts,* — **An-Nasr (110:2)**
+> 📖 *for, verily, thy Sustainer is ever on the watch!* — **Al-Fajr (89:14)**
 <!-- quran-verse-end -->
 
 ---
