@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *crystal-like, [but] of silver - the measure whereof they alone will determine.* — **Al-Insaan (76:16)**
+> 📖 *AND CALL to mind, through this divine writ, Ishmael. Behold, he was always true to his promise, and was an apostle [of God], a prophet,* — **Maryam (19:54)**
 <!-- quran-verse-end -->
 
 ---
