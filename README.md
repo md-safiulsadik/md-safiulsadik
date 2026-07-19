@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *For [thus it is:] if any of them is given the glad tiding of [the birth of] what he so readily attributes to the Most Gracious, his face darkens, and he is filled with suppressed anger:* — **Az-Zukhruf (43:17)**
+> 📖 *no headiness will be in it, and they will not get drunk thereon.* — **As-Saaffaat (37:47)**
 <!-- quran-verse-end -->
 
 ---
