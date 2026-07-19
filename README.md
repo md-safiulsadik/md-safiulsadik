@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Consider the human self, and how it is formed in accordance with what it is meant to be,* — **Ash-Shams (91:7)**
+> 📖 *And it is in this way that We cause the great ones in every land to become its [greatest] evildoers, there to weave their schemes: yet it is only against themselves that they scheme -and they perceive it not.* — **Al-An'aam (6:123)**
 <!-- quran-verse-end -->
 
 ---
