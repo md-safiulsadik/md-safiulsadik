@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and whenever they return to people of their own kind, they return full of jests;* — **Al-Mutaffifin (83:31)**
+> 📖 *and who have devised a most awesome blasphemy [against Thee],* — **Nooh (71:22)**
 <!-- quran-verse-end -->
 
 ---
