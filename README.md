@@ -15,7 +15,7 @@
 <!-- quran-verse-end -->
 
 ---
-
+<!--
 ## 📚 Tech Stack
 <p align="left">
   <a href="https://www.java.com/" target="_blank">
@@ -34,7 +34,7 @@
     <img src="https://www.vectorlogo.zone/logos/pytorch/pytorch-icon.svg" alt="PyTorch" width="42" height="42"/>
   </a>
 </p>
-
+-->
 ---
 ## 📈 GitHub Stats
 <p align="center">
