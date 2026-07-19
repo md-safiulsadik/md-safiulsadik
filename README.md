@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And it is in this way that We cause the great ones in every land to become its [greatest] evildoers, there to weave their schemes: yet it is only against themselves that they scheme -and they perceive it not.* — **Al-An'aam (6:123)**
+> 📖 *For [thus it is:] if any of them is given the glad tiding of [the birth of] what he so readily attributes to the Most Gracious, his face darkens, and he is filled with suppressed anger:* — **Az-Zukhruf (43:17)**
 <!-- quran-verse-end -->
 
 ---
