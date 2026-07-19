@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and who have devised a most awesome blasphemy [against Thee],* — **Nooh (71:22)**
+> 📖 *And so they said: “Shall we believe [them] two mortals like ourselves - although their people are our slaves?”* — **Al-Muminoon (23:47)**
 <!-- quran-verse-end -->
 
 ---
