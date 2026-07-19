@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *no headiness will be in it, and they will not get drunk thereon.* — **As-Saaffaat (37:47)**
+> 📖 *And so she said to his sister, “Follow him” - and [the girl] watched him from afar, while they [who had taken him in] were not aware of it,* — **Al-Qasas (28:11)**
 <!-- quran-verse-end -->
 
 ---
