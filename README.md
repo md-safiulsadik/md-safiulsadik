@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Now those who have been vouchsafed revelation aforetime did break up their unity [of faith] after such an evidence of the truth had come to them.* — **Al-Bayyina (98:4)**
+> 📖 *And abide quietly in your homes, and do not flaunt your charms as they used to flaunt them in the old days of pagan ignorance; and be constant in prayer, and render the purifying dues, and pay heed unto God and His Apostle: for God only wants to remove from you all that might be loathsome, O you members of the [Prophet’s] household, and to purify you to utmost purity.* — **Al-Ahzaab (33:33)**
 <!-- quran-verse-end -->
 
 ---
