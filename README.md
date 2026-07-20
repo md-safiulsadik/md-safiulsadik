@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *ART THOU NOT aware of how thy Sustainer dealt with the Army of the Elephant?* — **Al-Fil (105:1)**
+> 📖 *of Pharaoh, and of [the tribe of] Thamud?* — **Al-Burooj (85:18)**
 <!-- quran-verse-end -->
 
 ---
