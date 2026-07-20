@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O you who have attained to faith! If you help [the cause of] God, He will help you, and will make firm your steps;* — **Muhammad (47:7)**
+> 📖 *[Now,] behold, for those who deny the truth We have readied chains and shackles, and a blazing flame* — **Al-Insaan (76:4)**
 <!-- quran-verse-end -->
 
 ---
