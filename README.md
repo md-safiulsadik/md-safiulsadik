@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Hence, O men,] respond to your Sustainer before there comes, at God’s behest, a Day on which there will be no turning back: [for] on that Day you will have no place of refuge, and neither will you be able to deny aught [of the wrong that you have done].* — **Ash-Shura (42:47)**
+> 📖 *[and so it is that] they who attain to faith and do righteous deeds are destined for happiness [in this world] and the most beauteous of all goals [in the life to come]!"* — **Ar-Ra'd (13:29)**
 <!-- quran-verse-end -->
 
 ---
