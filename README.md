@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *the Day when none of their scheming will be of the least avail to them, and they will receive no succour.* — **At-Tur (52:46)**
+> 📖 *O you who have attained to faith! If you help [the cause of] God, He will help you, and will make firm your steps;* — **Muhammad (47:7)**
 <!-- quran-verse-end -->
 
 ---
