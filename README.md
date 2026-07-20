@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *having given the lie to Our messages one and all:* — **An-Naba (78:28)**
+> 📖 *[Hence, O men,] respond to your Sustainer before there comes, at God’s behest, a Day on which there will be no turning back: [for] on that Day you will have no place of refuge, and neither will you be able to deny aught [of the wrong that you have done].* — **Ash-Shura (42:47)**
 <!-- quran-verse-end -->
 
 ---
