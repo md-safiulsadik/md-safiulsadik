@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *of Pharaoh, and of [the tribe of] Thamud?* — **Al-Burooj (85:18)**
+> 📖 *having given the lie to Our messages one and all:* — **An-Naba (78:28)**
 <!-- quran-verse-end -->
 
 ---
