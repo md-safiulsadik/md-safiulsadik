@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[and so it is that] they who attain to faith and do righteous deeds are destined for happiness [in this world] and the most beauteous of all goals [in the life to come]!"* — **Ar-Ra'd (13:29)**
+> 📖 *the Day when none of their scheming will be of the least avail to them, and they will receive no succour.* — **At-Tur (52:46)**
 <!-- quran-verse-end -->
 
 ---
