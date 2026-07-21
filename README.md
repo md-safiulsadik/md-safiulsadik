@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And they will be waited upon with vessels of silver and goblets that will [seem to] be crystal –* — **Al-Insaan (76:15)**
+> 📖 *in mind will keep it he who stands in awe [of God],* — **Al-A'laa (87:10)**
 <!-- quran-verse-end -->
 
 ---
