@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And yet, among men there is many a one who argues about God without having any knowledge [of Him], and follows every rebellious satanic force* — **Al-Hajj (22:3)**
+> 📖 *And [the word] will be spoken: “Today We shall be oblivious of you as you were oblivious of the coming of this your Day [of Judgment]; and so your goal is the fire, and you shall have none to succour you:* — **Al-Jaathiya (45:34)**
 <!-- quran-verse-end -->
 
 ---
