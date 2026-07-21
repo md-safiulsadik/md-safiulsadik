@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[Now,] behold, for those who deny the truth We have readied chains and shackles, and a blazing flame* — **Al-Insaan (76:4)**
+> 📖 *all those who [throughout their lives] but idly played with things vain –* — **At-Tur (52:12)**
 <!-- quran-verse-end -->
 
 ---
