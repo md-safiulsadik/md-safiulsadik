@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Verily, man is bound to lose himself* — **Al-Asr (103:2)**
+> 📖 *and the earth, bursting forth with plants!* — **At-Taariq (86:12)**
 <!-- quran-verse-end -->
 
 ---
