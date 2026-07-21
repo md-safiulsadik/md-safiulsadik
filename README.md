@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *all those who [throughout their lives] but idly played with things vain –* — **At-Tur (52:12)**
+> 📖 *They answered: "Nay, but we have come unto thee with [the announcement of] something that they [who are given to evil] have always been wont to call in question,* — **Al-Hijr (15:63)**
 <!-- quran-verse-end -->
 
 ---
