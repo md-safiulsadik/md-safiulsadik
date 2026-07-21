@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *They answered: "Nay, but we have come unto thee with [the announcement of] something that they [who are given to evil] have always been wont to call in question,* — **Al-Hijr (15:63)**
+> 📖 *And they will be waited upon with vessels of silver and goblets that will [seem to] be crystal –* — **Al-Insaan (76:15)**
 <!-- quran-verse-end -->
 
 ---
