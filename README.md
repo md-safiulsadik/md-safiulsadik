@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Nay, but whereas thou dost marvel, they [only] scoff;* — **As-Saaffaat (37:12)**
+> 📖 *And yet, among men there is many a one who argues about God without having any knowledge [of Him], and follows every rebellious satanic force* — **Al-Hajj (22:3)**
 <!-- quran-verse-end -->
 
 ---
