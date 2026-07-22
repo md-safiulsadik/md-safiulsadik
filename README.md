@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *"O our Sustainer! Make us surrender ourselves unto Thee, and make out of our offspring a community that shall surrender itself unto Thee, and show us our ways of worship, and accept our repentance: for, verily, Thou alone art the Acceptor of Repentance, the Dispenser of Grace!* — **Al-Baqara (2:128)**
+> 📖 *[And she has recognized the truth] although that which she has been wont to worship instead of God had kept her away [from the right path]: for, behold, she is descended of people who deny the truth!”* — **An-Naml (27:43)**
 <!-- quran-verse-end -->
 
 ---
