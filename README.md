@@ -39,23 +39,23 @@
 ## 📈 GitHub Stats
 <p align="center">
   <picture>
-    <source media="(prefers-color-scheme: dark)" srcset="https://github-readme-stats.vercel.app/api?username=md-safiulsadik&show_icons=true&theme=radical&locale=en">
-    <img src="https://github-readme-stats.vercel.app/api?username=md-safiulsadik&show_icons=true&theme=default&locale=en" alt="GitHub Stats"/> 
+    <source media="(prefers-color-scheme: dark)" srcset="https://github-readme-stats.vercel.app/api?username=safiulSadik&show_icons=true&theme=radical&locale=en">
+    <img src="https://github-readme-stats.vercel.app/api?username=safiulSadik&show_icons=true&theme=default&locale=en" alt="GitHub Stats"/> 
   </picture>
 </p>
 
 <p align="center">
   <picture>
-    <source media="(prefers-color-scheme: dark)" srcset="https://github-readme-streak-stats.herokuapp.com?user=md-safiulsadik&theme=radical">
+    <source media="(prefers-color-scheme: dark)" srcset="https://github-readme-streak-stats.herokuapp.com?user=safiulSadik&theme=radical">
  <!--     <img src="https://github-readme-streak-stats.herokuapp.com?user=md-safiulsadik&theme=radical" alt="GitHub Streak" /> -->
-        <img src="https://github-readme-streak-stats.herokuapp.com?user=md-safiulsadik&theme=default" alt="GitHub Streak" /> 
+        <img src="https://github-readme-streak-stats.herokuapp.com?user=safiulSadik&theme=default" alt="GitHub Streak" /> 
   </picture>
 </p>
 
 <p align="center">
   <picture>
-    <source media="(prefers-color-scheme: dark)" srcset="https://github-readme-stats.vercel.app/api/top-langs/?username=md-safiulsadik&layout=compact&theme=radical&hide=css,scss">
-    <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=md-safiulsadik&layout=compact&theme=default&hide=css,scss" alt="Top Languages" />
+    <source media="(prefers-color-scheme: dark)" srcset="https://github-readme-stats.vercel.app/api/top-langs/?username=safiulSadik&layout=compact&theme=radical&hide=css,scss">
+    <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=safiulSadik&layout=compact&theme=default&hide=css,scss" alt="Top Languages" />
   </picture>
 </p>
 
@@ -64,7 +64,7 @@
 <p align="center">
   <picture>
     <source media="(prefers-color-scheme: dark)" srcset="https://github-profile-trophy.vercel.app/?username=md-safiulsadik&theme=onedark">
-    <img src="https://github-profile-trophy.vercel.app/?username=md-safiulsadik&theme=flat" alt="GitHub Trophies" />
+    <img src="https://github-profile-trophy.vercel.app/?username=safiulSadik&theme=flat" alt="GitHub Trophies" />
   </picture>
 </p>
 
@@ -78,7 +78,7 @@
   <!-- <a href="https://www.linkedin.com/in/your-linkedin/" target="_blank">
     <img src="https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white" alt="LinkedIn Badge"/>
   </a> -->
-  <a href="https://github.com/md-safiulsadik" target="_blank">
+  <a href="https://github.com/safiulSadik" target="_blank">
     <img src="https://img.shields.io/badge/GitHub-100000?style=for-the-badge&logo=github&logoColor=white" alt="GitHub Badge"/>
   </a>
 </p>
@@ -88,7 +88,7 @@
 
 
 <picture>
-  <source media="(prefers-color-scheme: dark)" srcset="https://raw.githubusercontent.com/md-safiulsadik/md-safiulsadik/output/github-snake-dark.svg" />
-  <source media="(prefers-color-scheme: light)" srcset="https://raw.githubusercontent.com/md-safiulsadik/md-safiulsadik/output/github-snake.svg" />
-  <img alt="github-snake" src="https://raw.githubusercontent.com/md-safiulsadik/md-safiulsadik/output/github-snake.svg" />
+  <source media="(prefers-color-scheme: dark)" srcset="https://raw.githubusercontent.com/md-safiulsadik/safiulSadik/output/github-snake-dark.svg" />
+  <source media="(prefers-color-scheme: light)" srcset="https://raw.githubusercontent.com/md-safiulsadik/safiulSadik/output/github-snake.svg" />
+  <img alt="github-snake" src="https://raw.githubusercontent.com/md-safiulsadik/safiulSadik/output/github-snake.svg" />
 </picture>
