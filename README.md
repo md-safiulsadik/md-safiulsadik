@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "Can you see yourselves invoking any but God when God's chastisement befalls you [in this world], or the Last Hour comes upon you? [Tell me this,] if you are men of truth!* — **Al-An'aam (6:40)**
+> 📖 *"O our Sustainer! Make us surrender ourselves unto Thee, and make out of our offspring a community that shall surrender itself unto Thee, and show us our ways of worship, and accept our repentance: for, verily, Thou alone art the Acceptor of Repentance, the Dispenser of Grace!* — **Al-Baqara (2:128)**
 <!-- quran-verse-end -->
 
 ---
