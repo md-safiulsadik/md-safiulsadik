@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [the word] will be spoken: “Today We shall be oblivious of you as you were oblivious of the coming of this your Day [of Judgment]; and so your goal is the fire, and you shall have none to succour you:* — **Al-Jaathiya (45:34)**
+> 📖 *And [God has willed] to impose suffering [in the life to come] on the hypocrites, both men and women, and on those who ascribe divinity to aught beside Him, both men and women: all who entertain evil thoughts about God. Evil encompasses them from all sides, and God’s condemnation rests upon them; and He has rejected them [from His grace], and has readied hell for them: and how evil a journey’s end!* — **Al-Fath (48:6)**
 <!-- quran-verse-end -->
 
 ---
