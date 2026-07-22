@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *NAY, VERILY - the record of the truly virtuous is [set down] in a mode most lofty!* — **Al-Mutaffifin (83:18)**
+> 📖 *it will not be lightened for them; and therein they will be lost in hopeless despair.* — **Az-Zukhruf (43:75)**
 <!-- quran-verse-end -->
 
 ---
