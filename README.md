@@ -63,7 +63,7 @@
 ## 🏆 Trophies
 <p align="center">
   <picture>
-    <source media="(prefers-color-scheme: dark)" srcset="https://github-profile-trophy.vercel.app/?username=md-safiulsadik&theme=onedark">
+    <source media="(prefers-color-scheme: dark)" srcset="https://github-profile-trophy.vercel.app/?username=safiulSadik&theme=onedark">
     <img src="https://github-profile-trophy.vercel.app/?username=safiulSadik&theme=flat" alt="GitHub Trophies" />
   </picture>
 </p>
@@ -88,7 +88,7 @@
 
 
 <picture>
-  <source media="(prefers-color-scheme: dark)" srcset="https://raw.githubusercontent.com/md-safiulsadik/safiulSadik/output/github-snake-dark.svg" />
-  <source media="(prefers-color-scheme: light)" srcset="https://raw.githubusercontent.com/md-safiulsadik/safiulSadik/output/github-snake.svg" />
-  <img alt="github-snake" src="https://raw.githubusercontent.com/md-safiulsadik/safiulSadik/output/github-snake.svg" />
+  <source media="(prefers-color-scheme: dark)" srcset="https://raw.githubusercontent.com/safiulSadik/safiulSadik/output/github-snake-dark.svg" />
+  <source media="(prefers-color-scheme: light)" srcset="https://raw.githubusercontent.com/safiulSadik/safiulSadik/output/github-snake.svg" />
+  <img alt="github-snake" src="https://raw.githubusercontent.com/safiulSadik/safiulSadik/output/github-snake.svg" />
 </picture>
