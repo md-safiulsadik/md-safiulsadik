@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [God has willed] to impose suffering [in the life to come] on the hypocrites, both men and women, and on those who ascribe divinity to aught beside Him, both men and women: all who entertain evil thoughts about God. Evil encompasses them from all sides, and God’s condemnation rests upon them; and He has rejected them [from His grace], and has readied hell for them: and how evil a journey’s end!* — **Al-Fath (48:6)**
+> 📖 *O men! Call to mind the blessings which God has bestowed upon you! Is there any creator, other than God, that could provide for you sustenance out of heaven and earth? There is no deity save Him: and yet, how perverted are your minds!* — **Faatir (35:3)**
 <!-- quran-verse-end -->
 
 ---
