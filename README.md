@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *it will not be lightened for them; and therein they will be lost in hopeless despair.* — **Az-Zukhruf (43:75)**
+> 📖 *as well as [in] Manat, the third and last [of this triad]?* — **An-Najm (53:20)**
 <!-- quran-verse-end -->
 
 ---
