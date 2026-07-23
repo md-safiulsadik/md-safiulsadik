@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *You are to believe in God and His Apostle, and to strive hard in God's cause with your possessions and your lives: this is for your own good - if you but knew it!* — **As-Saff (61:11)**
+> 📖 *for We did vouchsafe them Our messages, but they obstinately turned their backs upon them-* — **Al-Hijr (15:81)**
 <!-- quran-verse-end -->
 
 ---
