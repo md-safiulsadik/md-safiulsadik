@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *[To pay heed to God’s signs and messages:] this is [the meaning of] guidance; on the other hand, for those who are bent on denying the truth of their Sustainer’s messages there is grievous suffering in store as an outcome of [their] vileness.* — **Al-Jaathiya (45:11)**
+> 📖 *And [in time] We gave him the glad tiding of Isaac, [who, too, would be] a prophet, one of the righteous;* — **As-Saaffaat (37:112)**
 <!-- quran-verse-end -->
 
 ---
