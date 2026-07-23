@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *thus, indeed, have they given the lie (to this message as well). But [in time] they will come to understand what it was that they were wont to deride!* — **Ash-Shu'araa (26:6)**
+> 📖 *[To pay heed to God’s signs and messages:] this is [the meaning of] guidance; on the other hand, for those who are bent on denying the truth of their Sustainer’s messages there is grievous suffering in store as an outcome of [their] vileness.* — **Al-Jaathiya (45:11)**
 <!-- quran-verse-end -->
 
 ---
