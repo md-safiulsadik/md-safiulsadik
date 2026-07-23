@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *WHEN THE SKY is split asunder,* — **Al-Inshiqaaq (84:1)**
+> 📖 *thus, indeed, have they given the lie (to this message as well). But [in time] they will come to understand what it was that they were wont to deride!* — **Ash-Shu'araa (26:6)**
 <!-- quran-verse-end -->
 
 ---
