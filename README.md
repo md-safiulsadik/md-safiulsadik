@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And [in time] We gave him the glad tiding of Isaac, [who, too, would be] a prophet, one of the righteous;* — **As-Saaffaat (37:112)**
+> 📖 *You are to believe in God and His Apostle, and to strive hard in God's cause with your possessions and your lives: this is for your own good - if you but knew it!* — **As-Saff (61:11)**
 <!-- quran-verse-end -->
 
 ---
