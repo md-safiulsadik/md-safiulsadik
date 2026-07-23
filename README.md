@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *for We did vouchsafe them Our messages, but they obstinately turned their backs upon them-* — **Al-Hijr (15:81)**
+> 📖 *Say: "I invoke my Sustainer alone, for I do not ascribe divinity to anyone beside Him."* — **Al-Jinn (72:20)**
 <!-- quran-verse-end -->
 
 ---
