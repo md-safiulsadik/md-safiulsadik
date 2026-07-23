@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *Say: "I invoke my Sustainer alone, for I do not ascribe divinity to anyone beside Him."* — **Al-Jinn (72:20)**
+> 📖 *and of all the kinsfolk who ever sheltered him,* — **Al-Ma'aarij (70:13)**
 <!-- quran-verse-end -->
 
 ---
