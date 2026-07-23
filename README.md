@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *and of all the kinsfolk who ever sheltered him,* — **Al-Ma'aarij (70:13)**
+> 📖 *O YOU who have attained to faith! Shall I point out to you a bargain that will save you from grievous suffering [in this world and in the life to come]?* — **As-Saff (61:10)**
 <!-- quran-verse-end -->
 
 ---
