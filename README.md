@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *And, behold, well do We know that among you are such as will give the lie to it:* — **Al-Haaqqa (69:49)**
+> 📖 *"Peace be upon you, because you have persevered!" How excellent, then, this fulfilment in the hereafter!* — **Ar-Ra'd (13:24)**
 <!-- quran-verse-end -->
 
 ---
