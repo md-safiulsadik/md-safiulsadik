@@ -11,7 +11,7 @@
 ### 🕋 Quranic Verse of the Hour
 
 <!-- quran-verse-start -->
-> 📖 *O YOU who have attained to faith! Do not attempt to pray while you are in a state of drunkenness, [but wait] until you know what you are saying; nor yet [while you are] in a state requiring total ablution, until you have bathed - except if you are travelling [and are unable to do so]. But if you are ill, or are travelling, or have just satisfied a want of nature, or have cohabited with a woman, and can find no water - then take resort to pure dust, passing [there­with] lightly over your face and your hands. Behold, God is indeed an absolver of sins, much-forgiving.* — **An-Nisaa (4:43)**
+> 📖 *And, behold, well do We know that among you are such as will give the lie to it:* — **Al-Haaqqa (69:49)**
 <!-- quran-verse-end -->
 
 ---
